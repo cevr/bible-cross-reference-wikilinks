@@ -1,0 +1,7 @@
+[[Exodus 26:33]]
+[[1 Kings 6:16]]
+[[1 Kings 6:19]]
+[[Ezekiel 41:4]]
+[[Hebrews 9:3]]
+[[Hebrews 9:9]]
+[[Hebrews 10:19]]

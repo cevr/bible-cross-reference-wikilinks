@@ -1,0 +1,5 @@
+[[Genesis 30:20]]
+[[Genesis 46:14]]
+[[Genesis 49:13]]
+[[Numbers 2:7]]
+[[Numbers 26:26]]

@@ -1,0 +1,6 @@
+[[Exodus 15:21]]
+[[1 Samuel 21:11]]
+[[1 Samuel 21:12]]
+[[1 Samuel 29:5]]
+[[2 Samuel 23:1]]
+[[Psalms 24:7]]

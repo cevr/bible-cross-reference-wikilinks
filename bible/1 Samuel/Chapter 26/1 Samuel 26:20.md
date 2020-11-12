@@ -1,0 +1,6 @@
+[[1 Samuel 2:9]]
+[[1 Samuel 24:14]]
+[[1 Samuel 24:15]]
+[[1 Samuel 25:29]]
+[[Matthew 26:47]]
+[[Matthew 26:55]]

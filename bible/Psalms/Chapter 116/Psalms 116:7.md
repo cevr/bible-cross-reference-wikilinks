@@ -1,0 +1,8 @@
+[[Psalms 13:6]]
+[[Psalms 95:11]]
+[[Psalms 119:17]]
+[[Jeremiah 6:16]]
+[[Jeremiah 30:10]]
+[[Hosea 2:7]]
+[[Matthew 11:28]]
+[[Hebrews 4:8]]

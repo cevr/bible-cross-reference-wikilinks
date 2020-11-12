@@ -1,0 +1,8 @@
+[[Acts 20:4]]
+[[1 Corinthians 4:1]]
+[[Ephesians 6:21]]
+[[Philippians 2:25]]
+[[Colossians 4:9]]
+[[Colossians 4:12]]
+[[2 Timothy 4:12]]
+[[Titus 3:12]]

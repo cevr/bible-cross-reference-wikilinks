@@ -1,0 +1,6 @@
+[[Numbers 22:20]]
+[[Joshua 24:10]]
+[[Psalms 81:12]]
+[[Proverbs 28:18]]
+[[Isaiah 37:26]]
+[[2 Thessalonians 2:9]]

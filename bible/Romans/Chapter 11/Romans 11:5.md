@@ -1,0 +1,5 @@
+[[Romans 9:11]]
+[[Romans 9:27]]
+[[Romans 11:6]]
+[[Romans 11:28]]
+[[Ephesians 1:5]]

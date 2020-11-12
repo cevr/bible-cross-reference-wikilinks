@@ -1,0 +1,5 @@
+[[Exodus 12:44]]
+[[Psalms 2:8]]
+[[Isaiah 14:1]]
+[[Isaiah 14:2]]
+[[Revelation 2:26]]

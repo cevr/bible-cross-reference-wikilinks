@@ -1,0 +1,8 @@
+[[Isaiah 58:12]]
+[[Jeremiah 32:43]]
+[[Jeremiah 33:10]]
+[[Jeremiah 50:19]]
+[[Ezekiel 36:10]]
+[[Amos 9:14]]
+[[Zechariah 8:7]]
+[[Zechariah 8:8]]

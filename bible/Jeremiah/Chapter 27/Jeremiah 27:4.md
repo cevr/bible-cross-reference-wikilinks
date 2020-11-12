@@ -1,0 +1,6 @@
+[[Exodus 5:1]]
+[[Jeremiah 10:10]]
+[[Jeremiah 10:16]]
+[[Jeremiah 25:27]]
+[[Jeremiah 28:14]]
+[[Jeremiah 51:19]]

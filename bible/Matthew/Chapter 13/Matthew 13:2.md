@@ -1,0 +1,6 @@
+[[Genesis 49:10]]
+[[Matthew 4:25]]
+[[Matthew 15:30]]
+[[Mark 4:1]]
+[[Luke 5:3]]
+[[Luke 8:4]]

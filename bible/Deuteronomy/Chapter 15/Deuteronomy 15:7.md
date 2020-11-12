@@ -1,0 +1,8 @@
+[[Leviticus 25:35]]
+[[Deuteronomy 15:9]]
+[[Esther 9:19]]
+[[Esther 9:22]]
+[[Proverbs 21:13]]
+[[Matthew 18:30]]
+[[James 2:15]]
+[[1 John 3:16]]

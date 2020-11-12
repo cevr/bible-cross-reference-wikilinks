@@ -1,0 +1,5 @@
+[[Leviticus 26:19]]
+[[1 Kings 17:1]]
+[[1 Kings 18:2]]
+[[Jeremiah 14:1]]
+[[Amos 4:7]]

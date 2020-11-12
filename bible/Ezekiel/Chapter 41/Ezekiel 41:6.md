@@ -1,0 +1,5 @@
+[[1 Kings 6:5]]
+[[1 Kings 6:10]]
+[[Ezekiel 40:17]]
+[[Ezekiel 42:6]]
+[[1 Peter 1:5]]

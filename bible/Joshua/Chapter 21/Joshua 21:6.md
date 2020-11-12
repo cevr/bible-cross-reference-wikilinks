@@ -1,0 +1,8 @@
+[[Exodus 6:16]]
+[[Exodus 6:17]]
+[[Numbers 3:21]]
+[[Joshua 21:27]]
+[[Joshua 21:33]]
+[[1 Chronicles 6:56]]
+[[1 Chronicles 6:62]]
+[[1 Chronicles 6:71]]

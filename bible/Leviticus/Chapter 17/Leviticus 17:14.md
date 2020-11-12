@@ -1,0 +1,5 @@
+[[Genesis 9:4]]
+[[Exodus 30:33]]
+[[Leviticus 3:17]]
+[[Leviticus 17:11]]
+[[Deuteronomy 12:23]]

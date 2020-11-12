@@ -1,0 +1,5 @@
+[[Exodus 19:3]]
+[[Exodus 19:20]]
+[[Exodus 32:16]]
+[[Deuteronomy 10:1]]
+[[Deuteronomy 10:3]]

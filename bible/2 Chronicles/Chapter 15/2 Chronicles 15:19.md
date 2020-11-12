@@ -1,0 +1,5 @@
+[[1 Kings 15:16]]
+[[1 Kings 15:31]]
+[[1 Kings 15:33]]
+[[2 Chronicles 16:1]]
+[[2 Chronicles 16:9]]

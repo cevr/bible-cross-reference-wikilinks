@@ -1,0 +1,8 @@
+[[1 Samuel 2:1]]
+[[Psalms 89:17]]
+[[Psalms 92:10]]
+[[Psalms 101:8]]
+[[Psalms 148:14]]
+[[Jeremiah 48:25]]
+[[Zechariah 1:20]]
+[[Luke 1:69]]

@@ -1,0 +1,5 @@
+[[1 Chronicles 8:28]]
+[[2 Chronicles 11:16]]
+[[2 Chronicles 30:11]]
+[[Nehemiah 11:1]]
+[[Nehemiah 11:4]]

@@ -1,0 +1,5 @@
+[[Exodus 12:49]]
+[[Leviticus 24:22]]
+[[Numbers 15:16]]
+[[Romans 3:29]]
+[[Galatians 3:28]]

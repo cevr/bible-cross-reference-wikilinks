@@ -1,0 +1,7 @@
+[[Genesis 37:32]]
+[[Genesis 38:18]]
+[[Psalms 50:21]]
+[[Jeremiah 2:26]]
+[[Romans 2:16]]
+[[1 Corinthians 4:5]]
+[[Revelation 20:12]]

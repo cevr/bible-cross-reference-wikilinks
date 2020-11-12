@@ -1,0 +1,5 @@
+[[2 Kings 12:4]]
+[[2 Kings 12:7]]
+[[2 Chronicles 21:2]]
+[[2 Chronicles 29:3]]
+[[2 Chronicles 34:8]]

@@ -1,0 +1,8 @@
+[[1 Samuel 16:6]]
+[[1 Samuel 16:8]]
+[[1 Samuel 16:9]]
+[[1 Samuel 17:28]]
+[[2 Samuel 13:3]]
+[[2 Samuel 13:32]]
+[[2 Samuel 21:21]]
+[[1 Chronicles 2:13]]

@@ -1,0 +1,6 @@
+[[Psalms 39:8]]
+[[Psalms 63:6]]
+[[Psalms 119:147]]
+[[Psalms 134:1]]
+[[Isaiah 21:8]]
+[[Acts 27:29]]

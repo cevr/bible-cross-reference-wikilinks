@@ -1,0 +1,6 @@
+[[Genesis 3:13]]
+[[Genesis 4:10]]
+[[Genesis 21:26]]
+[[Genesis 39:8]]
+[[Genesis 44:4]]
+[[Exodus 32:1]]

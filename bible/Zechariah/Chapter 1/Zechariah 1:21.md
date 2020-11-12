@@ -1,0 +1,5 @@
+[[Psalms 75:4]]
+[[Psalms 75:10]]
+[[Lamentations 2:17]]
+[[Daniel 12:7]]
+[[Zechariah 1:19]]

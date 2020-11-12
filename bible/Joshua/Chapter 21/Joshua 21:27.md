@@ -1,0 +1,6 @@
+[[Deuteronomy 1:4]]
+[[Deuteronomy 4:43]]
+[[Joshua 20:8]]
+[[Joshua 21:6]]
+[[1 Chronicles 6:47]]
+[[1 Chronicles 6:71]]

@@ -1,0 +1,5 @@
+[[Genesis 4:2]]
+[[Genesis 46:33]]
+[[Amos 7:14]]
+[[Jonah 1:8]]
+[[2 Thessalonians 3:10]]

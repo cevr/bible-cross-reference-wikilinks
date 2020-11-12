@@ -1,0 +1,6 @@
+[[Exodus 21:13]]
+[[Numbers 35:6]]
+[[Numbers 35:22]]
+[[Deuteronomy 4:42]]
+[[Deuteronomy 19:1]]
+[[Joshua 20:2]]

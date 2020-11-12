@@ -1,0 +1,6 @@
+[[Leviticus 27:2]]
+[[Joshua 9:18]]
+[[Psalms 50:14]]
+[[Psalms 66:13]]
+[[Proverbs 20:25]]
+[[Ecclesiastes 5:5]]

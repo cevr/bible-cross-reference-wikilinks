@@ -1,0 +1,6 @@
+[[Daniel 2:32]]
+[[Daniel 2:39]]
+[[Daniel 7:6]]
+[[Daniel 8:8]]
+[[Daniel 8:21]]
+[[Daniel 11:3]]

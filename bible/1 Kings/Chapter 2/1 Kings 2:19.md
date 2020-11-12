@@ -1,0 +1,8 @@
+[[Genesis 48:12]]
+[[Exodus 20:12]]
+[[Leviticus 19:3]]
+[[Leviticus 19:32]]
+[[1 Kings 15:13]]
+[[Psalms 45:9]]
+[[Psalms 110:1]]
+[[Matthew 25:33]]

@@ -1,0 +1,8 @@
+[[Exodus 29:24]]
+[[Leviticus 5:2]]
+[[Leviticus 5:6]]
+[[Leviticus 5:15]]
+[[Leviticus 5:18]]
+[[Leviticus 6:6]]
+[[Leviticus 8:27]]
+[[Isaiah 53:10]]

@@ -1,0 +1,5 @@
+[[Isaiah 24:21]]
+[[Jeremiah 8:2]]
+[[Jeremiah 22:19]]
+[[Ezekiel 29:5]]
+[[Ezekiel 32:4]]

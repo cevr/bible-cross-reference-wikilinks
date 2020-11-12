@@ -1,0 +1,8 @@
+[[2 Kings 18:17]]
+[[2 Kings 19:32]]
+[[2 Kings 24:11]]
+[[2 Kings 25:1]]
+[[Isaiah 1:8]]
+[[Ezekiel 21:22]]
+[[Matthew 22:7]]
+[[Luke 19:43]]

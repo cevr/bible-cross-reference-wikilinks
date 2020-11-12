@@ -1,0 +1,8 @@
+[[1 Samuel 19:11]]
+[[2 Samuel 13:28]]
+[[Psalms 10:8]]
+[[Psalms 21:9]]
+[[Proverbs 4:16]]
+[[Hosea 7:4]]
+[[Hosea 7:7]]
+[[Micah 2:1]]

@@ -1,0 +1,6 @@
+[[Esther 3:12]]
+[[Psalms 94:20]]
+[[Proverbs 28:15]]
+[[Isaiah 10:1]]
+[[Daniel 1:19]]
+[[Daniel 6:9]]

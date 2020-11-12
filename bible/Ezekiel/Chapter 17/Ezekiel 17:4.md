@@ -1,0 +1,7 @@
+[[2 Kings 24:12]]
+[[Isaiah 43:14]]
+[[Isaiah 47:15]]
+[[Jeremiah 24:1]]
+[[Jeremiah 51:13]]
+[[Revelation 18:3]]
+[[Revelation 18:11]]

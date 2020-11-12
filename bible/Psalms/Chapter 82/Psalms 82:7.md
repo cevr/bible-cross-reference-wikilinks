@@ -1,0 +1,5 @@
+[[Job 21:32]]
+[[Psalms 49:12]]
+[[Psalms 83:11]]
+[[Ezekiel 28:9]]
+[[Ezekiel 31:14]]

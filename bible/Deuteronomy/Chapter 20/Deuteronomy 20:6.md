@@ -1,0 +1,6 @@
+[[Leviticus 19:23]]
+[[Deuteronomy 28:1]]
+[[Deuteronomy 28:30]]
+[[Isaiah 65:22]]
+[[Jeremiah 31:5]]
+[[Zephaniah 1:13]]

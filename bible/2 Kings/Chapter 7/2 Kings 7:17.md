@@ -1,0 +1,7 @@
+[[Judges 20:43]]
+[[2 Kings 6:32]]
+[[2 Kings 7:2]]
+[[2 Kings 9:33]]
+[[Isaiah 25:10]]
+[[Micah 7:10]]
+[[Hebrews 10:29]]

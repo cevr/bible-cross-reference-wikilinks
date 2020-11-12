@@ -1,0 +1,6 @@
+[[Jeremiah 2:26]]
+[[Ezekiel 5:7]]
+[[Ezekiel 14:22]]
+[[Ezekiel 16:52]]
+[[Ezekiel 16:63]]
+[[Ezekiel 36:31]]

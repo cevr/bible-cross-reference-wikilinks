@@ -1,0 +1,6 @@
+[[Exodus 30:23]]
+[[Judges 18:29]]
+[[Psalms 45:8]]
+[[Proverbs 7:17]]
+[[Songs of Solomon 4:13]]
+[[Songs of Solomon 4:14]]

@@ -1,0 +1,7 @@
+[[Genesis 24:65]]
+[[Genesis 38:11]]
+[[Genesis 38:19]]
+[[Genesis 38:26]]
+[[Proverbs 7:12]]
+[[Jeremiah 3:2]]
+[[Ezekiel 16:25]]

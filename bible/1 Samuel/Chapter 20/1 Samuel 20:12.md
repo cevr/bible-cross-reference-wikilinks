@@ -1,0 +1,6 @@
+[[Joshua 22:22]]
+[[Job 31:4]]
+[[Psalms 17:3]]
+[[Psalms 139:1]]
+[[Proverbs 20:5]]
+[[Proverbs 25:2]]

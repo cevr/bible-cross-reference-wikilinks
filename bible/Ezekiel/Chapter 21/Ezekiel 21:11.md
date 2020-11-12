@@ -1,0 +1,6 @@
+[[Esther 4:1]]
+[[Isaiah 22:4]]
+[[Jeremiah 25:9]]
+[[Jeremiah 25:33]]
+[[Jeremiah 51:20]]
+[[Ezekiel 21:19]]

@@ -1,0 +1,5 @@
+[[Genesis 24:59]]
+[[Judges 2:1]]
+[[Judges 2:5]]
+[[1 Samuel 31:13]]
+[[1 Chronicles 10:12]]

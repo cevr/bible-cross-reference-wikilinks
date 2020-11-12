@@ -1,0 +1,8 @@
+[[Exodus 14:21]]
+[[Exodus 15:14]]
+[[Numbers 21:21]]
+[[Numbers 23:22]]
+[[Deuteronomy 2:30]]
+[[Joshua 4:24]]
+[[Joshua 9:10]]
+[[Joshua 24:12]]

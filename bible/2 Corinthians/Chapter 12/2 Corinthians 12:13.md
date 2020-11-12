@@ -1,0 +1,6 @@
+[[Numbers 18:31]]
+[[1 Corinthians 9:6]]
+[[1 Corinthians 9:12]]
+[[1 Corinthians 9:15]]
+[[2 Corinthians 11:7]]
+[[2 Corinthians 12:14]]

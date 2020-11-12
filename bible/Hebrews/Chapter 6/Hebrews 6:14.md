@@ -1,0 +1,6 @@
+[[Genesis 17:2]]
+[[Genesis 22:17]]
+[[Genesis 48:4]]
+[[Exodus 32:13]]
+[[Deuteronomy 1:10]]
+[[Nehemiah 9:23]]

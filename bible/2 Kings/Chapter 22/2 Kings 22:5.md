@@ -1,0 +1,7 @@
+[[2 Kings 12:5]]
+[[2 Kings 12:11]]
+[[2 Chronicles 24:7]]
+[[2 Chronicles 24:12]]
+[[2 Chronicles 24:27]]
+[[2 Chronicles 34:10]]
+[[Ezra 3:7]]

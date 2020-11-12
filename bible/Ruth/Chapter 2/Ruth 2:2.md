@@ -1,0 +1,7 @@
+[[Genesis 32:6]]
+[[Leviticus 19:9]]
+[[Leviticus 19:16]]
+[[Leviticus 23:22]]
+[[Deuteronomy 24:19]]
+[[Ruth 2:7]]
+[[1 Samuel 1:18]]

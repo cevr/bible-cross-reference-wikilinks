@@ -1,0 +1,8 @@
+[[Deuteronomy 25:1]]
+[[Proverbs 14:35]]
+[[Proverbs 20:2]]
+[[Ecclesiastes 10:4]]
+[[Jeremiah 22:15]]
+[[Romans 13:4]]
+[[1 Peter 2:13]]
+[[1 Peter 3:13]]

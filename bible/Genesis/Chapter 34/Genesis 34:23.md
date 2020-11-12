@@ -1,0 +1,7 @@
+[[Proverbs 1:12]]
+[[Proverbs 23:4]]
+[[Proverbs 28:20]]
+[[John 2:16]]
+[[John 6:26]]
+[[Acts 19:24]]
+[[1 Timothy 6:6]]

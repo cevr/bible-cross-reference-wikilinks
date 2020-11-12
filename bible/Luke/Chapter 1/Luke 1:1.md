@@ -1,0 +1,5 @@
+[[John 20:31]]
+[[Acts 1:1]]
+[[1 Timothy 3:16]]
+[[2 Timothy 4:17]]
+[[2 Peter 1:16]]

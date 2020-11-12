@@ -1,0 +1,7 @@
+[[Jeremiah 15:4]]
+[[Jeremiah 17:3]]
+[[Jeremiah 24:9]]
+[[Jeremiah 25:9]]
+[[Jeremiah 34:17]]
+[[Ezekiel 16:40]]
+[[Ezekiel 23:22]]

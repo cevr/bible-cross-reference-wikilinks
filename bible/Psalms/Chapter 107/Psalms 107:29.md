@@ -1,0 +1,7 @@
+[[Psalms 65:7]]
+[[Psalms 65:8]]
+[[Psalms 89:9]]
+[[Jonah 1:15]]
+[[Matthew 8:26]]
+[[Mark 4:39]]
+[[Luke 8:23]]

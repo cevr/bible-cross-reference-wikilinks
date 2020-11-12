@@ -1,0 +1,7 @@
+[[Exodus 32:4]]
+[[Exodus 32:25]]
+[[Numbers 25:9]]
+[[2 Samuel 12:9]]
+[[Matthew 27:3]]
+[[Acts 1:18]]
+[[Acts 7:41]]

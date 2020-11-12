@@ -1,0 +1,5 @@
+[[Genesis 32:9]]
+[[2 Samuel 7:18]]
+[[Jeremiah 12:1]]
+[[Ezekiel 36:35]]
+[[Philippians 4:6]]

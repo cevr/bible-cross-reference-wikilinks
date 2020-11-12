@@ -1,0 +1,5 @@
+[[Proverbs 12:13]]
+[[Proverbs 13:2]]
+[[Proverbs 22:18]]
+[[Proverbs 22:21]]
+[[Proverbs 25:11]]

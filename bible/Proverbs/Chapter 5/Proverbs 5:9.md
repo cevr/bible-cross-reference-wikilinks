@@ -1,0 +1,5 @@
+[[Genesis 38:23]]
+[[Judges 16:19]]
+[[Nehemiah 13:26]]
+[[Proverbs 6:29]]
+[[Hosea 4:13]]

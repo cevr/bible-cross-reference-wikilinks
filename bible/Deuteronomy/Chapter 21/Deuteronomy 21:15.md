@@ -1,0 +1,6 @@
+[[Genesis 29:18]]
+[[Genesis 29:20]]
+[[Genesis 29:30]]
+[[Genesis 29:33]]
+[[1 Samuel 1:4]]
+[[2 Chronicles 11:22]]

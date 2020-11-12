@@ -1,0 +1,6 @@
+[[Genesis 31:37]]
+[[Exodus 13:14]]
+[[1 Samuel 26:23]]
+[[2 Samuel 22:21]]
+[[Psalms 37:6]]
+[[Isaiah 59:12]]

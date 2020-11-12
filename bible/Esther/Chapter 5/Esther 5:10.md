@@ -1,0 +1,5 @@
+[[Genesis 43:30]]
+[[Genesis 45:1]]
+[[2 Samuel 13:22]]
+[[Esther 6:13]]
+[[Ecclesiastes 7:9]]

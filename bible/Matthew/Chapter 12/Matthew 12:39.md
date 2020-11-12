@@ -1,0 +1,5 @@
+[[Isaiah 57:3]]
+[[Matthew 16:4]]
+[[Mark 8:38]]
+[[Luke 11:29]]
+[[James 4:4]]

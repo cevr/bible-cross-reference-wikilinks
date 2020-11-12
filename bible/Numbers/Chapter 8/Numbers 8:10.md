@@ -1,0 +1,6 @@
+[[Leviticus 1:4]]
+[[Numbers 3:45]]
+[[Acts 6:6]]
+[[Acts 13:2]]
+[[1 Timothy 4:14]]
+[[1 Timothy 5:22]]

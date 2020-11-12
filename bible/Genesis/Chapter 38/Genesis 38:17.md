@@ -1,0 +1,5 @@
+[[Genesis 38:20]]
+[[Genesis 38:24]]
+[[Proverbs 20:16]]
+[[Ezekiel 16:33]]
+[[Luke 16:8]]

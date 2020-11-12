@@ -1,0 +1,8 @@
+[[1 Samuel 22:16]]
+[[2 Kings 14:5]]
+[[2 Kings 14:6]]
+[[2 Chronicles 25:4]]
+[[Jeremiah 31:29]]
+[[Jeremiah 31:30]]
+[[Ezekiel 18:4]]
+[[Ezekiel 18:20]]

@@ -1,0 +1,5 @@
+[[Genesis 35:23]]
+[[Ezekiel 48:16]]
+[[Ezekiel 48:31]]
+[[Ezekiel 48:32]]
+[[Revelation 21:16]]

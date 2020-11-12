@@ -1,0 +1,5 @@
+[[Joshua 15:62]]
+[[1 Samuel 23:29]]
+[[Songs of Solomon 1:13]]
+[[Songs of Solomon 2:3]]
+[[Songs of Solomon 4:13]]

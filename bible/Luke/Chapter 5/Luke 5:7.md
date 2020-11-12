@@ -1,0 +1,6 @@
+[[Exodus 23:5]]
+[[Proverbs 18:24]]
+[[Acts 11:25]]
+[[Romans 16:2]]
+[[Galatians 6:2]]
+[[Philippians 4:3]]

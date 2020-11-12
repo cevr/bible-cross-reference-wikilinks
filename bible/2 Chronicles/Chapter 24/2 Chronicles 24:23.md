@@ -1,0 +1,8 @@
+[[Deuteronomy 32:35]]
+[[1 Kings 20:22]]
+[[1 Kings 20:26]]
+[[2 Kings 12:17]]
+[[2 Chronicles 24:17]]
+[[Psalms 2:10]]
+[[Psalms 58:10]]
+[[Psalms 82:6]]

@@ -1,0 +1,8 @@
+[[Ezra 4:4]]
+[[Isaiah 37:36]]
+[[Daniel 7:6]]
+[[Daniel 8:5]]
+[[Daniel 8:21]]
+[[Daniel 10:13]]
+[[Daniel 11:2]]
+[[Acts 12:23]]

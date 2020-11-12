@@ -1,0 +1,8 @@
+[[Numbers 6:2]]
+[[Numbers 6:5]]
+[[Judges 13:5]]
+[[Proverbs 12:23]]
+[[Proverbs 13:3]]
+[[Proverbs 29:12]]
+[[Micah 7:5]]
+[[Acts 18:18]]

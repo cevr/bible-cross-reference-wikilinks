@@ -1,0 +1,7 @@
+[[Acts 4:32]]
+[[Acts 5:4]]
+[[Acts 6:1]]
+[[2 Corinthians 8:9]]
+[[2 Corinthians 8:14]]
+[[2 Corinthians 9:6]]
+[[1 John 3:16]]

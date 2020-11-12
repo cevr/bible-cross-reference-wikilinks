@@ -1,0 +1,6 @@
+[[Exodus 22:8]]
+[[Leviticus 5:1]]
+[[Numbers 5:16]]
+[[1 Samuel 2:25]]
+[[2 Chronicles 6:22]]
+[[Proverbs 30:9]]

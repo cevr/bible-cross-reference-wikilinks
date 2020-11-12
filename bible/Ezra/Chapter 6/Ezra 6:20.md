@@ -1,0 +1,7 @@
+[[Exodus 12:21]]
+[[2 Chronicles 29:34]]
+[[2 Chronicles 30:15]]
+[[2 Chronicles 35:11]]
+[[2 Chronicles 35:14]]
+[[2 Chronicles 35:15]]
+[[Hebrews 7:27]]

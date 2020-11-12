@@ -1,0 +1,5 @@
+[[2 Kings 25:16]]
+[[1 Chronicles 22:3]]
+[[1 Chronicles 22:14]]
+[[1 Chronicles 22:16]]
+[[2 Chronicles 4:18]]

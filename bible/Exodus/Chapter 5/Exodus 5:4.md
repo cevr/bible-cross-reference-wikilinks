@@ -1,0 +1,6 @@
+[[Exodus 1:11]]
+[[Jeremiah 38:4]]
+[[Amos 7:10]]
+[[Luke 23:2]]
+[[Acts 16:20]]
+[[Acts 24:5]]

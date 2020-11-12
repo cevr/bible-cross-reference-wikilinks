@@ -1,0 +1,7 @@
+[[2 Samuel 8:1]]
+[[2 Samuel 21:15]]
+[[2 Samuel 23:14]]
+[[1 Chronicles 11:16]]
+[[1 Chronicles 14:8]]
+[[Psalms 2:1]]
+[[Revelation 11:15]]

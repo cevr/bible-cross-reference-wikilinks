@@ -1,0 +1,7 @@
+[[Numbers 1:50]]
+[[Numbers 2:1]]
+[[Numbers 3:38]]
+[[Numbers 10:17]]
+[[Numbers 10:21]]
+[[1 Corinthians 14:40]]
+[[Colossians 2:5]]

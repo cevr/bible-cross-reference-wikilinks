@@ -1,0 +1,5 @@
+[[2 Chronicles 26:18]]
+[[2 Chronicles 29:8]]
+[[Ezekiel 20:13]]
+[[Ezekiel 20:30]]
+[[Zechariah 1:3]]

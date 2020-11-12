@@ -1,0 +1,5 @@
+[[Job 18:3]]
+[[Luke 15:30]]
+[[Luke 18:9]]
+[[2 Corinthians 11:24]]
+[[James 2:2]]

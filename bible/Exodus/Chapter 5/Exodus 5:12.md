@@ -1,0 +1,7 @@
+[[Exodus 15:7]]
+[[Isaiah 5:24]]
+[[Isaiah 47:14]]
+[[Joel 2:5]]
+[[Obadiah 1:18]]
+[[Nahum 1:10]]
+[[1 Corinthians 3:12]]

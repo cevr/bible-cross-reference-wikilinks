@@ -1,0 +1,7 @@
+[[Joshua 11:6]]
+[[Psalms 46:9]]
+[[Psalms 111:2]]
+[[Isaiah 66:24]]
+[[Ezekiel 39:10]]
+[[Zechariah 9:10]]
+[[Malachi 1:5]]

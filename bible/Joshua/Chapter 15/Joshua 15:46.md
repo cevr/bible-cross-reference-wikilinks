@@ -1,0 +1,6 @@
+[[1 Samuel 5:1]]
+[[1 Samuel 5:6]]
+[[2 Chronicles 26:6]]
+[[Nehemiah 13:23]]
+[[Isaiah 20:1]]
+[[Amos 1:8]]

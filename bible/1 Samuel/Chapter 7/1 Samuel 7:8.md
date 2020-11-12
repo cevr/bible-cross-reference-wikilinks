@@ -1,0 +1,6 @@
+[[1 Samuel 12:19]]
+[[Isaiah 37:4]]
+[[Isaiah 62:1]]
+[[Isaiah 62:6]]
+[[Jeremiah 42:2]]
+[[James 5:16]]

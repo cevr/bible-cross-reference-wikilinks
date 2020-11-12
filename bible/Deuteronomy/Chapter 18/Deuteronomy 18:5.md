@@ -1,0 +1,8 @@
+[[Exodus 28:1]]
+[[Numbers 3:10]]
+[[Numbers 16:5]]
+[[Numbers 16:9]]
+[[Numbers 17:5]]
+[[Numbers 25:13]]
+[[Deuteronomy 10:8]]
+[[Deuteronomy 17:12]]

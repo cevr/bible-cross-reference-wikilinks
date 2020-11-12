@@ -1,0 +1,6 @@
+[[Matthew 9:10]]
+[[Mark 2:15]]
+[[Luke 15:1]]
+[[John 12:2]]
+[[1 Corinthians 5:9]]
+[[1 Corinthians 10:27]]

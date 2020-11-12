@@ -1,0 +1,7 @@
+[[1 Samuel 9:21]]
+[[Psalms 119:141]]
+[[Proverbs 14:20]]
+[[Proverbs 19:6]]
+[[Proverbs 29:5]]
+[[Ecclesiastes 9:15]]
+[[1 John 3:1]]

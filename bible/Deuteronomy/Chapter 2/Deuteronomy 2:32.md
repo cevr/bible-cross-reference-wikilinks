@@ -1,0 +1,8 @@
+[[Numbers 21:23]]
+[[Deuteronomy 3:1]]
+[[Joshua 12:1]]
+[[Judges 11:20]]
+[[Nehemiah 9:22]]
+[[Psalms 120:7]]
+[[Psalms 135:11]]
+[[Psalms 136:19]]

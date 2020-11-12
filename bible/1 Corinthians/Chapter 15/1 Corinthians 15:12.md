@@ -1,0 +1,6 @@
+[[Acts 17:32]]
+[[Acts 23:8]]
+[[Acts 26:8]]
+[[1 Corinthians 15:13]]
+[[2 Thessalonians 2:17]]
+[[2 Timothy 2:18]]

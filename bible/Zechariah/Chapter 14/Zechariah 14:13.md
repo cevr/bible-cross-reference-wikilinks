@@ -1,0 +1,7 @@
+[[Judges 7:22]]
+[[1 Samuel 14:15]]
+[[2 Chronicles 20:22]]
+[[Ezekiel 38:21]]
+[[Zechariah 11:6]]
+[[Zechariah 12:4]]
+[[Revelation 17:12]]

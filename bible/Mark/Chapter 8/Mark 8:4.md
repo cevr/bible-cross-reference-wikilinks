@@ -1,0 +1,8 @@
+[[Numbers 11:21]]
+[[2 Kings 4:42]]
+[[2 Kings 7:2]]
+[[Psalms 78:19]]
+[[Matthew 15:33]]
+[[Mark 6:36]]
+[[Mark 6:52]]
+[[John 6:7]]

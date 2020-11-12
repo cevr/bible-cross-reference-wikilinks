@@ -1,0 +1,8 @@
+[[Exodus 30:12]]
+[[Leviticus 17:11]]
+[[Numbers 31:50]]
+[[2 Samuel 21:3]]
+[[Job 34:19]]
+[[Proverbs 22:2]]
+[[Ephesians 6:9]]
+[[Colossians 3:25]]

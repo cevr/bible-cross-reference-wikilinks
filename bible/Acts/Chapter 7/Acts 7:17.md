@@ -1,0 +1,7 @@
+[[Genesis 15:13]]
+[[Exodus 1:7]]
+[[Exodus 1:20]]
+[[Psalms 105:24]]
+[[Acts 7:6]]
+[[Acts 13:17]]
+[[2 Peter 3:8]]

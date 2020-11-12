@@ -1,0 +1,7 @@
+[[Genesis 27:13]]
+[[Numbers 35:33]]
+[[Deuteronomy 21:1]]
+[[1 Samuel 25:24]]
+[[2 Samuel 3:28]]
+[[1 Kings 2:33]]
+[[Matthew 27:25]]

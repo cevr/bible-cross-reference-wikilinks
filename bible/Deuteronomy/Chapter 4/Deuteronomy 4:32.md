@@ -1,0 +1,8 @@
+[[Genesis 1:27]]
+[[Deuteronomy 30:4]]
+[[Deuteronomy 32:7]]
+[[Job 8:8]]
+[[Psalms 44:1]]
+[[Joel 1:2]]
+[[Matthew 24:31]]
+[[Mark 13:27]]

@@ -1,0 +1,7 @@
+[[Judges 5:31]]
+[[1 Samuel 25:26]]
+[[2 Samuel 18:29]]
+[[Psalms 68:1]]
+[[Psalms 109:20]]
+[[Daniel 4:16]]
+[[Daniel 4:19]]

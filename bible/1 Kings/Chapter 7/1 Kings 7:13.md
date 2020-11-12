@@ -1,0 +1,5 @@
+[[Exodus 31:3]]
+[[1 Kings 7:40]]
+[[2 Chronicles 2:6]]
+[[2 Chronicles 2:13]]
+[[2 Chronicles 4:11]]

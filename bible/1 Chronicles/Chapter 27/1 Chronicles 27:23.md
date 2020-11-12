@@ -1,0 +1,6 @@
+[[Genesis 15:5]]
+[[Genesis 22:17]]
+[[Numbers 1:18]]
+[[2 Samuel 24:1]]
+[[1 Chronicles 21:2]]
+[[Hebrews 11:12]]

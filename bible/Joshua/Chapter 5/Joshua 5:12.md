@@ -1,0 +1,7 @@
+[[Exodus 16:35]]
+[[Deuteronomy 6:10]]
+[[Nehemiah 9:20]]
+[[Proverbs 13:22]]
+[[Isaiah 65:13]]
+[[John 4:38]]
+[[Revelation 7:16]]

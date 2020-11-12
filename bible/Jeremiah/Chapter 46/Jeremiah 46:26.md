@@ -1,0 +1,6 @@
+[[Jeremiah 44:30]]
+[[Jeremiah 48:47]]
+[[Jeremiah 49:39]]
+[[Ezekiel 29:8]]
+[[Ezekiel 29:13]]
+[[Ezekiel 32:11]]

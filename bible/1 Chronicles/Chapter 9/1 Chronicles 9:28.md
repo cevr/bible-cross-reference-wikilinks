@@ -1,0 +1,7 @@
+[[Numbers 4:12]]
+[[Numbers 23:25]]
+[[1 Chronicles 26:20]]
+[[1 Chronicles 26:22]]
+[[Ezra 8:25]]
+[[Nehemiah 12:44]]
+[[Nehemiah 13:4]]

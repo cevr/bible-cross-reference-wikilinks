@@ -1,0 +1,7 @@
+[[John 1:42]]
+[[John 1:47]]
+[[John 2:24]]
+[[John 4:18]]
+[[John 21:17]]
+[[Hebrews 4:13]]
+[[Revelation 2:23]]

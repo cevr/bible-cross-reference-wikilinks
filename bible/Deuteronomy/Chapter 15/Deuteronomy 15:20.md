@@ -1,0 +1,5 @@
+[[Deuteronomy 12:5]]
+[[Deuteronomy 12:11]]
+[[Deuteronomy 12:14]]
+[[Deuteronomy 12:17]]
+[[Deuteronomy 14:23]]

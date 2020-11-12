@@ -1,0 +1,6 @@
+[[Numbers 32:7]]
+[[Numbers 32:9]]
+[[Deuteronomy 1:28]]
+[[Deuteronomy 9:1]]
+[[Joshua 14:8]]
+[[Hebrews 3:19]]

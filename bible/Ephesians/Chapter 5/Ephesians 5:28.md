@@ -1,0 +1,5 @@
+[[Genesis 2:21]]
+[[Matthew 19:5]]
+[[Ephesians 5:25]]
+[[Ephesians 5:31]]
+[[Ephesians 5:33]]

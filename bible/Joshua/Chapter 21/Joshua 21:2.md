@@ -1,0 +1,7 @@
+[[Numbers 35:2]]
+[[Joshua 14:5]]
+[[Joshua 18:1]]
+[[Ezekiel 48:9]]
+[[Matthew 10:10]]
+[[Galatians 6:6]]
+[[1 Timothy 5:17]]

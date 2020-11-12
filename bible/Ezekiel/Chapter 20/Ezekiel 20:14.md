@@ -1,0 +1,5 @@
+[[Ezekiel 20:9]]
+[[Ezekiel 20:22]]
+[[Ezekiel 36:22]]
+[[Ephesians 1:6]]
+[[Ephesians 1:12]]

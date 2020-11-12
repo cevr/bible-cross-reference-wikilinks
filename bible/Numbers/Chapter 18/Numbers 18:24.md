@@ -1,0 +1,8 @@
+[[Leviticus 27:30]]
+[[Numbers 18:26]]
+[[Numbers 26:62]]
+[[Deuteronomy 10:9]]
+[[Joshua 13:14]]
+[[Nehemiah 10:38]]
+[[Nehemiah 13:12]]
+[[Malachi 3:8]]

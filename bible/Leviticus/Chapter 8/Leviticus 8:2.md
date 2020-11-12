@@ -1,0 +1,8 @@
+[[Exodus 28:2]]
+[[Exodus 28:40]]
+[[Exodus 30:23]]
+[[Exodus 30:25]]
+[[Exodus 39:1]]
+[[Exodus 39:41]]
+[[Exodus 40:12]]
+[[Hebrews 7:27]]

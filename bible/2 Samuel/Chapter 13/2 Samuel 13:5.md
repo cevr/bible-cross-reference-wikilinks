@@ -1,0 +1,5 @@
+[[2 Samuel 16:21]]
+[[Psalms 50:18]]
+[[Proverbs 19:27]]
+[[Mark 6:24]]
+[[Acts 23:15]]

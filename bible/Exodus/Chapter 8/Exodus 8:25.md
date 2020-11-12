@@ -1,0 +1,6 @@
+[[Exodus 8:8]]
+[[Exodus 9:27]]
+[[Exodus 10:16]]
+[[Exodus 12:31]]
+[[Isaiah 28:22]]
+[[Revelation 3:9]]

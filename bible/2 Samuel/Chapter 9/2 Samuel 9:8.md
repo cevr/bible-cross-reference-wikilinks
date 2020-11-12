@@ -1,0 +1,5 @@
+[[1 Samuel 24:14]]
+[[1 Samuel 26:20]]
+[[2 Samuel 3:8]]
+[[2 Samuel 16:9]]
+[[Matthew 15:26]]

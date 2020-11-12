@@ -1,0 +1,5 @@
+[[Nehemiah 3:23]]
+[[Nehemiah 3:28]]
+[[Nehemiah 13:19]]
+[[Psalms 127:1]]
+[[Matthew 10:16]]

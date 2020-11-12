@@ -1,0 +1,5 @@
+[[2 Chronicles 28:8]]
+[[Amos 2:6]]
+[[Obadiah 1:11]]
+[[Nahum 3:10]]
+[[Revelation 18:13]]

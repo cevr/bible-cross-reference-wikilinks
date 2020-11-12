@@ -1,0 +1,8 @@
+[[Psalms 60:11]]
+[[Psalms 62:8]]
+[[Psalms 118:8]]
+[[Psalms 124:1]]
+[[Psalms 127:1]]
+[[Psalms 146:3]]
+[[Isaiah 2:2]]
+[[Jeremiah 17:5]]

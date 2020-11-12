@@ -1,0 +1,7 @@
+[[Genesis 19:6]]
+[[Genesis 19:8]]
+[[Genesis 34:7]]
+[[Deuteronomy 22:21]]
+[[Joshua 7:15]]
+[[Judges 20:6]]
+[[2 Samuel 13:12]]

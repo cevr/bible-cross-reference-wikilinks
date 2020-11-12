@@ -1,0 +1,6 @@
+[[Exodus 7:11]]
+[[Exodus 8:14]]
+[[Exodus 8:18]]
+[[Isaiah 47:12]]
+[[2 Timothy 3:8]]
+[[Revelation 16:2]]

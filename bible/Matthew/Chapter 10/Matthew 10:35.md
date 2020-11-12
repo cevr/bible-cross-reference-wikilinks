@@ -1,0 +1,5 @@
+[[Micah 7:5]]
+[[Matthew 10:21]]
+[[Matthew 24:10]]
+[[Mark 13:12]]
+[[Luke 21:16]]

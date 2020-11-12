@@ -1,0 +1,8 @@
+[[Judges 18:17]]
+[[Judges 18:24]]
+[[Isaiah 40:19]]
+[[Isaiah 44:12]]
+[[Isaiah 46:6]]
+[[Jeremiah 10:3]]
+[[Jeremiah 10:9]]
+[[Daniel 3:1]]

@@ -1,0 +1,6 @@
+[[Genesis 40:23]]
+[[2 Samuel 20:22]]
+[[Esther 6:2]]
+[[Ecclesiastes 2:16]]
+[[Ecclesiastes 4:13]]
+[[Ecclesiastes 7:19]]

@@ -1,0 +1,6 @@
+[[Exodus 9:23]]
+[[Exodus 19:18]]
+[[Exodus 32:14]]
+[[Deuteronomy 4:11]]
+[[Deuteronomy 5:23]]
+[[Hebrews 12:18]]

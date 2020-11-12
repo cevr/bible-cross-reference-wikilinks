@@ -1,0 +1,8 @@
+[[Genesis 3:10]]
+[[2 Kings 6:17]]
+[[Isaiah 2:10]]
+[[Jeremiah 23:24]]
+[[Ezekiel 12:18]]
+[[Acts 9:7]]
+[[Acts 22:9]]
+[[Hebrews 12:21]]

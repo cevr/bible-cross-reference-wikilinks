@@ -1,0 +1,7 @@
+[[Joshua 8:2]]
+[[2 Samuel 15:20]]
+[[2 Samuel 16:16]]
+[[2 Samuel 16:19]]
+[[2 Samuel 17:5]]
+[[2 Samuel 17:7]]
+[[Matthew 10:16]]

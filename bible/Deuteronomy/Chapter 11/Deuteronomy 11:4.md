@@ -1,0 +1,7 @@
+[[Exodus 14:23]]
+[[Exodus 14:28]]
+[[Exodus 15:4]]
+[[Exodus 15:9]]
+[[Exodus 15:19]]
+[[Psalms 106:11]]
+[[Hebrews 11:29]]

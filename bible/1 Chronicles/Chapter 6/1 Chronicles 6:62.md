@@ -1,0 +1,7 @@
+[[Exodus 2:22]]
+[[Joshua 19:22]]
+[[Joshua 21:6]]
+[[Joshua 21:7]]
+[[Joshua 21:27]]
+[[1 Chronicles 6:48]]
+[[1 Chronicles 6:71]]

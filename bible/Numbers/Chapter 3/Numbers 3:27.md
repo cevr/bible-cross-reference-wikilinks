@@ -1,0 +1,6 @@
+[[Numbers 3:19]]
+[[Numbers 4:2]]
+[[Joshua 21:5]]
+[[1 Chronicles 23:12]]
+[[1 Chronicles 26:23]]
+[[Ezekiel 40:45]]

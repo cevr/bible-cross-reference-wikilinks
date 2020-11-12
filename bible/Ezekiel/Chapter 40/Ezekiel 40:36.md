@@ -1,0 +1,5 @@
+[[1 Kings 7:4]]
+[[Ezekiel 40:7]]
+[[Ezekiel 40:16]]
+[[Ezekiel 40:21]]
+[[Ezekiel 40:29]]

@@ -1,0 +1,5 @@
+[[Genesis 4:14]]
+[[Genesis 9:5]]
+[[Numbers 35:19]]
+[[2 Samuel 14:11]]
+[[Ezekiel 16:38]]

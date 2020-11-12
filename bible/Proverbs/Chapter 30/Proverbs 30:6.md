@@ -1,0 +1,6 @@
+[[Deuteronomy 4:2]]
+[[Deuteronomy 12:32]]
+[[Deuteronomy 13:1]]
+[[Job 13:7]]
+[[1 Corinthians 15:15]]
+[[Revelation 22:18]]

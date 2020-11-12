@@ -1,0 +1,5 @@
+[[Isaiah 46:1]]
+[[Jeremiah 22:14]]
+[[Jeremiah 50:2]]
+[[Ezekiel 8:10]]
+[[Ezekiel 16:29]]

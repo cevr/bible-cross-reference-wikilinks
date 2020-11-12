@@ -1,0 +1,5 @@
+[[Jeremiah 5:9]]
+[[Jeremiah 6:6]]
+[[Jeremiah 9:9]]
+[[Malachi 3:5]]
+[[James 5:4]]

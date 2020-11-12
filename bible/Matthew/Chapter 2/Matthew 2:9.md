@@ -1,0 +1,5 @@
+[[Psalms 25:12]]
+[[Proverbs 2:1]]
+[[Proverbs 8:17]]
+[[Matthew 2:2]]
+[[2 Peter 1:19]]

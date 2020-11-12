@@ -1,0 +1,8 @@
+[[Genesis 3:6]]
+[[2 Samuel 13:4]]
+[[1 Kings 16:31]]
+[[1 Kings 18:4]]
+[[1 Kings 19:2]]
+[[1 Kings 21:25]]
+[[Nehemiah 2:2]]
+[[Esther 4:5]]

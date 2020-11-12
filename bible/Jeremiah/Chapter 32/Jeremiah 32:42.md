@@ -1,0 +1,7 @@
+[[Joshua 23:14]]
+[[Joshua 23:15]]
+[[Jeremiah 31:28]]
+[[Jeremiah 33:10]]
+[[Jeremiah 33:14]]
+[[Zechariah 8:14]]
+[[Matthew 24:35]]

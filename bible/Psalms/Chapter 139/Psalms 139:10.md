@@ -1,0 +1,6 @@
+[[Psalms 23:3]]
+[[Psalms 63:8]]
+[[Psalms 73:23]]
+[[Psalms 143:9]]
+[[Isaiah 41:13]]
+[[Amos 9:3]]

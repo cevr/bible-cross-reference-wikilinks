@@ -1,0 +1,7 @@
+[[Exodus 20:7]]
+[[Leviticus 19:12]]
+[[Deuteronomy 6:13]]
+[[Psalms 139:20]]
+[[Jeremiah 4:2]]
+[[Matthew 5:33]]
+[[James 5:12]]

@@ -1,0 +1,5 @@
+[[Ezekiel 2:5]]
+[[Ezekiel 3:9]]
+[[Ezekiel 3:26]]
+[[Ezekiel 45:9]]
+[[1 Peter 4:3]]

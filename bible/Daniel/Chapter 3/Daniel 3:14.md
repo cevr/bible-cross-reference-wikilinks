@@ -1,0 +1,5 @@
+[[Exodus 21:13]]
+[[Isaiah 46:1]]
+[[Jeremiah 50:2]]
+[[Daniel 3:1]]
+[[Daniel 4:8]]

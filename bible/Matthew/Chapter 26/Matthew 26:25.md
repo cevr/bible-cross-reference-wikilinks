@@ -1,0 +1,8 @@
+[[2 Kings 5:25]]
+[[Proverbs 30:20]]
+[[Matthew 23:7]]
+[[Matthew 26:49]]
+[[Matthew 26:64]]
+[[Matthew 27:11]]
+[[Luke 22:70]]
+[[John 18:37]]

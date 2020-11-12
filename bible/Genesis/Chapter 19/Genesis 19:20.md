@@ -1,0 +1,6 @@
+[[Genesis 12:13]]
+[[Genesis 19:30]]
+[[Psalms 119:175]]
+[[Proverbs 3:5]]
+[[Isaiah 55:3]]
+[[Amos 3:6]]

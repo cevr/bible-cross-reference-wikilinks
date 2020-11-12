@@ -1,0 +1,6 @@
+[[1 Chronicles 24:14]]
+[[Ezra 2:37]]
+[[Ezra 2:38]]
+[[Nehemiah 7:40]]
+[[Nehemiah 11:12]]
+[[Jeremiah 21:1]]

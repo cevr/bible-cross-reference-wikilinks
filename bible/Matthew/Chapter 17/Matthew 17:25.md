@@ -1,0 +1,6 @@
+[[1 Samuel 17:25]]
+[[Matthew 3:15]]
+[[Matthew 22:17]]
+[[Matthew 22:19]]
+[[Matthew 22:21]]
+[[Romans 13:6]]

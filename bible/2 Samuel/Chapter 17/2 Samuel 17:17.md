@@ -1,0 +1,7 @@
+[[Joshua 2:4]]
+[[Joshua 15:7]]
+[[Joshua 18:16]]
+[[2 Samuel 15:27]]
+[[2 Samuel 15:35]]
+[[2 Samuel 15:36]]
+[[1 Kings 1:9]]

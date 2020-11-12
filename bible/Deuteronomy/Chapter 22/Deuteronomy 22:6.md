@@ -1,0 +1,6 @@
+[[Genesis 8:17]]
+[[Genesis 32:11]]
+[[Leviticus 22:28]]
+[[Proverbs 12:10]]
+[[Hosea 10:14]]
+[[Luke 12:6]]

@@ -1,0 +1,8 @@
+[[Joshua 10:31]]
+[[Joshua 12:11]]
+[[Joshua 15:39]]
+[[2 Kings 18:17]]
+[[2 Chronicles 11:9]]
+[[Isaiah 36:2]]
+[[Isaiah 37:8]]
+[[Micah 1:13]]

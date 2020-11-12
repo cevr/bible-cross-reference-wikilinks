@@ -1,0 +1,7 @@
+[[Deuteronomy 5:32]]
+[[Deuteronomy 11:16]]
+[[Deuteronomy 11:26]]
+[[Joshua 23:6]]
+[[2 Kings 22:2]]
+[[Proverbs 4:26]]
+[[Isaiah 30:21]]

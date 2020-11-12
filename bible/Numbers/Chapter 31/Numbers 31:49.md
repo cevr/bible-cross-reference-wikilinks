@@ -1,0 +1,5 @@
+[[Exodus 30:12]]
+[[1 Samuel 30:18]]
+[[1 Samuel 30:19]]
+[[Psalms 72:14]]
+[[John 18:9]]

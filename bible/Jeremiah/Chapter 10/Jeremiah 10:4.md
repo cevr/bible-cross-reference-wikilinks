@@ -1,0 +1,6 @@
+[[Psalms 115:4]]
+[[Psalms 135:15]]
+[[Isaiah 40:19]]
+[[Isaiah 41:6]]
+[[Isaiah 44:12]]
+[[Isaiah 46:7]]

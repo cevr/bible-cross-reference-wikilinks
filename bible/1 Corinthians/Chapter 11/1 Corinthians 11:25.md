@@ -1,0 +1,7 @@
+[[Luke 22:20]]
+[[1 Corinthians 10:16]]
+[[1 Corinthians 11:27]]
+[[2 Corinthians 3:6]]
+[[2 Corinthians 3:14]]
+[[Hebrews 9:15]]
+[[Hebrews 13:20]]

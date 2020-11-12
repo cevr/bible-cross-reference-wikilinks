@@ -1,0 +1,6 @@
+[[Jeremiah 32:1]]
+[[Jeremiah 36:1]]
+[[Jeremiah 37:15]]
+[[Jeremiah 37:21]]
+[[Jeremiah 39:14]]
+[[2 Timothy 2:9]]

@@ -1,0 +1,6 @@
+[[1 Chronicles 19:9]]
+[[Nehemiah 4:20]]
+[[Luke 22:32]]
+[[Romans 15:1]]
+[[Galatians 6:2]]
+[[Philippians 1:27]]

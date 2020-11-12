@@ -1,0 +1,7 @@
+[[Jeremiah 21:9]]
+[[Jeremiah 27:2]]
+[[Jeremiah 27:8]]
+[[Jeremiah 27:12]]
+[[Jeremiah 38:2]]
+[[Jeremiah 40:9]]
+[[Jeremiah 42:10]]

@@ -1,0 +1,7 @@
+[[Exodus 20:19]]
+[[Deuteronomy 1:6]]
+[[Deuteronomy 5:23]]
+[[Deuteronomy 5:25]]
+[[Deuteronomy 9:10]]
+[[Jeremiah 1:9]]
+[[Hebrews 12:19]]

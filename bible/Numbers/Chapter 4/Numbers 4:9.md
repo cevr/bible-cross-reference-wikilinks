@@ -1,0 +1,5 @@
+[[Exodus 25:31]]
+[[Exodus 25:38]]
+[[Exodus 37:17]]
+[[Psalms 119:105]]
+[[Revelation 1:20]]

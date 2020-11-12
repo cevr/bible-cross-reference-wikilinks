@@ -1,0 +1,7 @@
+[[Joshua 15:34]]
+[[Joshua 15:56]]
+[[1 Chronicles 4:18]]
+[[2 Chronicles 26:9]]
+[[Nehemiah 2:13]]
+[[Nehemiah 2:15]]
+[[Nehemiah 11:30]]

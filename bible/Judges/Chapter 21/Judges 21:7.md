@@ -1,0 +1,5 @@
+[[Judges 21:1]]
+[[Judges 21:18]]
+[[Judges 21:22]]
+[[1 Samuel 14:28]]
+[[1 Samuel 14:45]]

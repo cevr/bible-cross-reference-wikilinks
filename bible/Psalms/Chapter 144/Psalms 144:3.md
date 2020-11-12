@@ -1,0 +1,7 @@
+[[Job 7:17]]
+[[Job 15:14]]
+[[Psalms 8:4]]
+[[Psalms 8:5]]
+[[Psalms 146:3]]
+[[Isaiah 2:22]]
+[[Hebrews 2:6]]

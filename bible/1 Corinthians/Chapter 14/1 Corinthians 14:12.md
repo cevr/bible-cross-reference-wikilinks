@@ -1,0 +1,6 @@
+[[1 Corinthians 12:7]]
+[[1 Corinthians 12:31]]
+[[1 Corinthians 14:1]]
+[[1 Corinthians 14:3]]
+[[1 Corinthians 14:26]]
+[[Titus 2:14]]

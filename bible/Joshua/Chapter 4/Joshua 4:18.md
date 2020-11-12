@@ -1,0 +1,6 @@
+[[Exodus 14:26]]
+[[Joshua 3:13]]
+[[Joshua 3:15]]
+[[Joshua 4:11]]
+[[1 Chronicles 12:15]]
+[[Isaiah 8:8]]

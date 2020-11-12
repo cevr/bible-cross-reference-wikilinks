@@ -1,0 +1,5 @@
+[[Leviticus 14:34]]
+[[Deuteronomy 28:22]]
+[[Deuteronomy 28:35]]
+[[Ezra 7:5]]
+[[Esther 6:12]]

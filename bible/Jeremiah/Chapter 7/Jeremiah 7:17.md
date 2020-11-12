@@ -1,0 +1,8 @@
+[[Jeremiah 1:16]]
+[[Jeremiah 6:27]]
+[[Jeremiah 32:29]]
+[[Jeremiah 32:32]]
+[[Jeremiah 44:4]]
+[[Jeremiah 44:17]]
+[[Ezekiel 8:6]]
+[[Ezekiel 14:23]]

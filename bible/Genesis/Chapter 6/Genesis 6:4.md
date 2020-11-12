@@ -1,0 +1,8 @@
+[[Genesis 11:4]]
+[[Numbers 13:33]]
+[[Numbers 16:2]]
+[[Deuteronomy 2:11]]
+[[Deuteronomy 2:20]]
+[[Deuteronomy 3:11]]
+[[1 Samuel 17:4]]
+[[2 Samuel 21:15]]

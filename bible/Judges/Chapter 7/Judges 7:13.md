@@ -1,0 +1,8 @@
+[[Judges 3:15]]
+[[Judges 3:31]]
+[[Judges 4:9]]
+[[Judges 4:21]]
+[[Judges 6:15]]
+[[Judges 8:10]]
+[[Isaiah 41:14]]
+[[1 Corinthians 1:27]]

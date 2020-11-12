@@ -1,0 +1,7 @@
+[[Psalms 71:7]]
+[[Isaiah 8:18]]
+[[Isaiah 53:7]]
+[[Zechariah 3:8]]
+[[Matthew 27:14]]
+[[John 19:9]]
+[[1 Corinthians 4:9]]

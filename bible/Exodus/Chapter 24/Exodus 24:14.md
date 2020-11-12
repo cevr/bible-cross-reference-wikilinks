@@ -1,0 +1,7 @@
+[[Genesis 22:5]]
+[[Exodus 17:10]]
+[[Exodus 17:12]]
+[[Exodus 18:25]]
+[[Exodus 32:1]]
+[[1 Samuel 10:8]]
+[[1 Samuel 13:8]]

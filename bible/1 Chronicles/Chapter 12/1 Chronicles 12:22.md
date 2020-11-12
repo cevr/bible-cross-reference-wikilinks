@@ -1,0 +1,8 @@
+[[Genesis 32:2]]
+[[Joshua 5:14]]
+[[1 Samuel 29:10]]
+[[1 Samuel 30:1]]
+[[2 Samuel 2:2]]
+[[2 Samuel 3:1]]
+[[Job 17:9]]
+[[Psalms 148:2]]

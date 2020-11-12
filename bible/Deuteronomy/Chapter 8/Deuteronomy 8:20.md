@@ -1,0 +1,7 @@
+[[Leviticus 26:27]]
+[[Leviticus 26:39]]
+[[Joshua 23:8]]
+[[2 Chronicles 36:16]]
+[[Jeremiah 7:26]]
+[[Jeremiah 7:33]]
+[[Daniel 9:11]]

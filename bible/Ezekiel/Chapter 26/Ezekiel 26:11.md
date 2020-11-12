@@ -1,0 +1,5 @@
+[[Isaiah 5:28]]
+[[Isaiah 26:5]]
+[[Jeremiah 43:13]]
+[[Jeremiah 51:27]]
+[[Habakkuk 1:8]]

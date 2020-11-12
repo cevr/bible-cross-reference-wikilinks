@@ -1,0 +1,6 @@
+[[2 Samuel 15:30]]
+[[2 Samuel 19:4]]
+[[1 Corinthians 11:14]]
+[[1 Corinthians 12:10]]
+[[1 Corinthians 12:28]]
+[[1 Corinthians 14:1]]

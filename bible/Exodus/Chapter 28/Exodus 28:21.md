@@ -1,0 +1,8 @@
+[[Exodus 24:4]]
+[[1 Kings 18:31]]
+[[Job 19:24]]
+[[Zechariah 9:16]]
+[[Luke 22:30]]
+[[James 1:1]]
+[[Revelation 7:4]]
+[[Revelation 21:12]]

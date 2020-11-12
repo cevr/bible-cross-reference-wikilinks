@@ -1,0 +1,5 @@
+[[Acts 28:2]]
+[[Acts 28:4]]
+[[Romans 1:14]]
+[[1 Corinthians 14:21]]
+[[Colossians 3:11]]

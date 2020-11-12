@@ -1,0 +1,7 @@
+[[1 Samuel 1:1]]
+[[1 Samuel 10:2]]
+[[Matthew 6:25]]
+[[Matthew 6:28]]
+[[Matthew 6:34]]
+[[Luke 12:11]]
+[[Luke 12:22]]

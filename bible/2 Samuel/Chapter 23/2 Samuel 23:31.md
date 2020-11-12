@@ -1,0 +1,6 @@
+[[Joshua 18:22]]
+[[2 Samuel 3:16]]
+[[2 Samuel 16:5]]
+[[1 Chronicles 11:32]]
+[[1 Chronicles 12:3]]
+[[1 Chronicles 27:25]]

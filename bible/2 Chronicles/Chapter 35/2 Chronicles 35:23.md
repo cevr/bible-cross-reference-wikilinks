@@ -1,0 +1,6 @@
+[[Genesis 49:23]]
+[[1 Kings 22:34]]
+[[2 Kings 8:29]]
+[[2 Kings 9:24]]
+[[2 Chronicles 18:33]]
+[[Lamentations 3:13]]

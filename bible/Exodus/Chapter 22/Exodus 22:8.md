@@ -1,0 +1,8 @@
+[[Exodus 21:6]]
+[[Exodus 22:9]]
+[[Exodus 22:28]]
+[[Deuteronomy 16:18]]
+[[Deuteronomy 17:8]]
+[[Deuteronomy 19:17]]
+[[1 Chronicles 23:4]]
+[[Psalms 82:1]]

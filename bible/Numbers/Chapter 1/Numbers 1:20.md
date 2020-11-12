@@ -1,0 +1,7 @@
+[[Genesis 29:32]]
+[[Genesis 35:23]]
+[[Genesis 46:9]]
+[[Genesis 49:3]]
+[[Numbers 2:10]]
+[[Numbers 26:5]]
+[[1 Chronicles 5:1]]

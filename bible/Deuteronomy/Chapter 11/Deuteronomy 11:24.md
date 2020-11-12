@@ -1,0 +1,8 @@
+[[Genesis 15:18]]
+[[Exodus 23:31]]
+[[Numbers 34:3]]
+[[Joshua 1:3]]
+[[Joshua 14:9]]
+[[1 Kings 4:21]]
+[[1 Kings 4:24]]
+[[2 Chronicles 9:26]]

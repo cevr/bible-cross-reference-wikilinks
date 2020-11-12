@@ -1,0 +1,7 @@
+[[Nehemiah 8:3]]
+[[Jeremiah 1:17]]
+[[Jeremiah 36:4]]
+[[Matthew 16:24]]
+[[Luke 4:16]]
+[[1 Corinthians 16:10]]
+[[Philippians 2:19]]

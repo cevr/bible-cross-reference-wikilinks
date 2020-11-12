@@ -1,0 +1,6 @@
+[[Psalms 49:6]]
+[[Psalms 49:20]]
+[[Psalms 82:6]]
+[[Ecclesiastes 2:16]]
+[[Ezekiel 32:21]]
+[[Luke 16:20]]

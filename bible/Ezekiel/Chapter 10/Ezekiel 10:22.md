@@ -1,0 +1,5 @@
+[[Ezekiel 1:10]]
+[[Ezekiel 1:12]]
+[[Ezekiel 10:11]]
+[[Ezekiel 43:3]]
+[[Hosea 14:9]]

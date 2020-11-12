@@ -1,0 +1,7 @@
+[[Numbers 34:2]]
+[[Numbers 34:13]]
+[[Joshua 13:1]]
+[[Joshua 18:10]]
+[[Ezekiel 47:13]]
+[[Ezekiel 47:21]]
+[[Ezekiel 47:22]]

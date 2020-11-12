@@ -1,0 +1,8 @@
+[[Leviticus 5:6]]
+[[Leviticus 14:24]]
+[[Ezekiel 18:24]]
+[[Matthew 3:15]]
+[[Matthew 24:13]]
+[[John 8:29]]
+[[James 2:10]]
+[[2 John 1:8]]

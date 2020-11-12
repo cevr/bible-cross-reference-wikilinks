@@ -1,0 +1,5 @@
+[[Exodus 29:24]]
+[[Leviticus 7:30]]
+[[Leviticus 14:12]]
+[[Jeremiah 30:21]]
+[[Hebrews 9:14]]

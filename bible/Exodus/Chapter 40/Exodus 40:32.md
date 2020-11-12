@@ -1,0 +1,5 @@
+[[Exodus 29:4]]
+[[Exodus 30:19]]
+[[Exodus 40:19]]
+[[Numbers 1:19]]
+[[Psalms 73:19]]

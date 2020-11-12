@@ -1,0 +1,5 @@
+[[Leviticus 4:6]]
+[[Leviticus 4:17]]
+[[Leviticus 8:11]]
+[[Luke 17:18]]
+[[1 Corinthians 10:31]]

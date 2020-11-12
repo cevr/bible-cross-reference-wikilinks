@@ -1,0 +1,7 @@
+[[Isaiah 1:3]]
+[[Jeremiah 7:3]]
+[[Jeremiah 35:14]]
+[[Malachi 1:6]]
+[[Matthew 11:28]]
+[[Luke 15:11]]
+[[Luke 15:28]]

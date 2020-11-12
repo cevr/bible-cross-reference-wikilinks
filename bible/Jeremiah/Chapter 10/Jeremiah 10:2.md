@@ -1,0 +1,7 @@
+[[Leviticus 18:3]]
+[[Leviticus 20:23]]
+[[Deuteronomy 12:30]]
+[[Deuteronomy 18:9]]
+[[Isaiah 47:12]]
+[[Ezekiel 20:32]]
+[[Luke 21:25]]

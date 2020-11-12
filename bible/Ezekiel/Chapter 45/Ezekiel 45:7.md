@@ -1,0 +1,8 @@
+[[Joshua 19:49]]
+[[Psalms 2:8]]
+[[Isaiah 9:5]]
+[[Ezekiel 34:24]]
+[[Ezekiel 37:24]]
+[[Ezekiel 46:16]]
+[[Ezekiel 48:21]]
+[[Luke 1:32]]

@@ -1,0 +1,8 @@
+[[Psalms 49:14]]
+[[Psalms 75:7]]
+[[Isaiah 41:15]]
+[[Ezekiel 17:24]]
+[[Daniel 7:18]]
+[[Romans 8:37]]
+[[Revelation 2:26]]
+[[Revelation 3:9]]

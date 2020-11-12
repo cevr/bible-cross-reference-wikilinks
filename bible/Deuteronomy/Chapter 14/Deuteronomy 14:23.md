@@ -1,0 +1,7 @@
+[[Deuteronomy 4:10]]
+[[Deuteronomy 12:5]]
+[[Deuteronomy 12:6]]
+[[Deuteronomy 12:11]]
+[[Deuteronomy 12:14]]
+[[Deuteronomy 12:17]]
+[[Deuteronomy 15:19]]

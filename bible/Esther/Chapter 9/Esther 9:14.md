@@ -1,0 +1,7 @@
+[[Numbers 24:20]]
+[[Ezra 7:13]]
+[[Esther 7:9]]
+[[Esther 7:10]]
+[[Proverbs 12:7]]
+[[Ecclesiastes 6:3]]
+[[Galatians 3:13]]

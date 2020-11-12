@@ -1,0 +1,6 @@
+[[1 Kings 4:29]]
+[[Psalms 103:11]]
+[[Isaiah 7:11]]
+[[Isaiah 55:9]]
+[[Romans 8:39]]
+[[1 Peter 1:7]]

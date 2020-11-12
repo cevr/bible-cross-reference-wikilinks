@@ -1,0 +1,6 @@
+[[Deuteronomy 22:8]]
+[[2 Samuel 11:2]]
+[[Jeremiah 19:13]]
+[[Matthew 10:27]]
+[[Matthew 24:17]]
+[[Mark 2:4]]

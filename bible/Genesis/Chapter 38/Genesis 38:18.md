@@ -1,0 +1,5 @@
+[[Genesis 38:25]]
+[[Leviticus 18:15]]
+[[Jeremiah 22:24]]
+[[Hosea 4:11]]
+[[Luke 15:22]]

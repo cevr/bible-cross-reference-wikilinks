@@ -1,0 +1,5 @@
+[[1 Chronicles 29:9]]
+[[Isaiah 64:5]]
+[[Acts 2:45]]
+[[2 Corinthians 8:2]]
+[[2 Corinthians 9:7]]

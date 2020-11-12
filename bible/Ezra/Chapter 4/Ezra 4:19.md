@@ -1,0 +1,7 @@
+[[Deuteronomy 13:14]]
+[[2 Kings 18:7]]
+[[2 Kings 24:20]]
+[[Ezra 4:15]]
+[[Ezra 5:17]]
+[[Proverbs 25:2]]
+[[Ezekiel 17:13]]

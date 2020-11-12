@@ -1,0 +1,5 @@
+[[Exodus 29:14]]
+[[Leviticus 4:11]]
+[[Leviticus 4:21]]
+[[Psalms 22:14]]
+[[Isaiah 53:10]]

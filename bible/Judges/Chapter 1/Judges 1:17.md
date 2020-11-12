@@ -1,0 +1,5 @@
+[[Numbers 14:45]]
+[[Numbers 21:3]]
+[[Joshua 19:4]]
+[[Judges 1:3]]
+[[2 Chronicles 14:10]]

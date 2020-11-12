@@ -1,0 +1,5 @@
+[[Joshua 15:50]]
+[[1 Samuel 30:28]]
+[[1 Chronicles 4:19]]
+[[1 Chronicles 6:57]]
+[[1 Chronicles 21:24]]

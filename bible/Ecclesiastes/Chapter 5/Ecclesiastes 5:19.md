@@ -1,0 +1,6 @@
+[[Deuteronomy 8:18]]
+[[1 Kings 3:13]]
+[[2 Chronicles 1:12]]
+[[Ecclesiastes 2:24]]
+[[Ecclesiastes 3:13]]
+[[Ecclesiastes 6:2]]

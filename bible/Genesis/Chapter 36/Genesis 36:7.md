@@ -1,0 +1,5 @@
+[[Genesis 13:6]]
+[[Genesis 13:11]]
+[[Genesis 17:8]]
+[[Genesis 28:4]]
+[[Hebrews 11:9]]

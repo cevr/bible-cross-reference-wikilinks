@@ -1,0 +1,6 @@
+[[Leviticus 10:10]]
+[[Deuteronomy 17:8]]
+[[Deuteronomy 33:10]]
+[[Ezekiel 44:23]]
+[[Malachi 2:7]]
+[[Titus 1:9]]

@@ -1,0 +1,6 @@
+[[1 Samuel 14:29]]
+[[Job 39:5]]
+[[Jeremiah 2:24]]
+[[Lamentations 4:17]]
+[[Lamentations 5:17]]
+[[Joel 1:18]]

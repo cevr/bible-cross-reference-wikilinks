@@ -1,0 +1,8 @@
+[[Genesis 11:30]]
+[[Genesis 16:1]]
+[[Genesis 20:18]]
+[[Genesis 29:30]]
+[[Genesis 30:2]]
+[[Genesis 43:34]]
+[[Genesis 45:22]]
+[[Deuteronomy 21:15]]

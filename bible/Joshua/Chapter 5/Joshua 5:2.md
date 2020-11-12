@@ -1,0 +1,7 @@
+[[Genesis 17:10]]
+[[Exodus 4:25]]
+[[Deuteronomy 10:16]]
+[[Deuteronomy 30:6]]
+[[Romans 2:29]]
+[[Romans 4:11]]
+[[Colossians 2:11]]

@@ -1,0 +1,8 @@
+[[Psalms 82:1]]
+[[Acts 19:34]]
+[[Romans 1:21]]
+[[Romans 3:11]]
+[[1 Corinthians 1:24]]
+[[Revelation 13:13]]
+[[Revelation 17:13]]
+[[Revelation 17:17]]

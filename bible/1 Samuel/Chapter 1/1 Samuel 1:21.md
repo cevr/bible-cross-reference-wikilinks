@@ -1,0 +1,6 @@
+[[Genesis 18:19]]
+[[Deuteronomy 12:6]]
+[[Deuteronomy 12:11]]
+[[Joshua 24:15]]
+[[1 Samuel 1:3]]
+[[Psalms 101:2]]

@@ -1,0 +1,7 @@
+[[Exodus 20:25]]
+[[Leviticus 16:6]]
+[[Leviticus 16:11]]
+[[Leviticus 16:16]]
+[[Leviticus 16:18]]
+[[Leviticus 16:24]]
+[[Leviticus 23:28]]

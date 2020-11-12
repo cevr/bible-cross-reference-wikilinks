@@ -1,0 +1,5 @@
+[[Genesis 40:14]]
+[[1 Samuel 24:21]]
+[[2 Samuel 9:1]]
+[[2 Samuel 9:7]]
+[[2 Samuel 21:7]]

@@ -1,0 +1,5 @@
+[[Genesis 35:19]]
+[[1 Samuel 1:1]]
+[[1 Samuel 17:12]]
+[[1 Samuel 17:21]]
+[[Micah 5:2]]

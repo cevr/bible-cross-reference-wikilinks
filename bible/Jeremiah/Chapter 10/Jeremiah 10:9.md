@@ -1,0 +1,7 @@
+[[1 Kings 10:22]]
+[[2 Chronicles 9:21]]
+[[Psalms 115:4]]
+[[Isaiah 40:19]]
+[[Ezekiel 27:12]]
+[[Daniel 10:5]]
+[[Hosea 8:6]]

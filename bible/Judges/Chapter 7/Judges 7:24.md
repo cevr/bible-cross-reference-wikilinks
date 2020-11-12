@@ -1,0 +1,7 @@
+[[Judges 3:27]]
+[[Judges 3:28]]
+[[Judges 8:3]]
+[[Judges 12:5]]
+[[John 1:28]]
+[[Romans 15:30]]
+[[Philippians 1:27]]

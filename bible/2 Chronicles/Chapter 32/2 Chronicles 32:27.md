@@ -1,0 +1,7 @@
+[[1 Samuel 2:7]]
+[[1 Chronicles 27:25]]
+[[1 Chronicles 29:28]]
+[[2 Chronicles 1:12]]
+[[2 Chronicles 9:27]]
+[[2 Chronicles 17:5]]
+[[Proverbs 10:22]]

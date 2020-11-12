@@ -1,0 +1,7 @@
+[[1 Chronicles 1:23]]
+[[Job 28:16]]
+[[Psalms 137:9]]
+[[Isaiah 4:1]]
+[[Isaiah 10:19]]
+[[Isaiah 13:15]]
+[[Isaiah 24:6]]

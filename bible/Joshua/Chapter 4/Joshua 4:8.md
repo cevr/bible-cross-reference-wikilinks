@@ -1,0 +1,5 @@
+[[Exodus 12:28]]
+[[Exodus 24:4]]
+[[Joshua 1:16]]
+[[Joshua 4:2]]
+[[Joshua 4:20]]

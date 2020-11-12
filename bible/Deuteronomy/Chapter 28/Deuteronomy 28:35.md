@@ -1,0 +1,6 @@
+[[Deuteronomy 28:27]]
+[[Job 2:6]]
+[[Job 2:7]]
+[[Isaiah 1:6]]
+[[Isaiah 3:17]]
+[[Isaiah 3:24]]

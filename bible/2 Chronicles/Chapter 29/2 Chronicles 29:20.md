@@ -1,0 +1,6 @@
+[[Genesis 21:14]]
+[[Genesis 22:3]]
+[[Exodus 24:4]]
+[[Joshua 6:12]]
+[[2 Chronicles 1:2]]
+[[Jeremiah 25:4]]

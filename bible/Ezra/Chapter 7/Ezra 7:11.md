@@ -1,0 +1,7 @@
+[[Ezra 4:11]]
+[[Ezra 5:6]]
+[[Ezra 7:6]]
+[[Ezra 7:21]]
+[[Matthew 23:2]]
+[[Matthew 23:13]]
+[[Mark 7:1]]

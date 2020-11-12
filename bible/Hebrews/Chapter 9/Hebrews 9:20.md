@@ -1,0 +1,6 @@
+[[Exodus 24:8]]
+[[Deuteronomy 29:12]]
+[[Joshua 9:6]]
+[[Zechariah 9:11]]
+[[Matthew 26:28]]
+[[Hebrews 13:20]]

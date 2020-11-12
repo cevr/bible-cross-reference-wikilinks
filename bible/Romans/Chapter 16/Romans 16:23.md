@@ -1,0 +1,6 @@
+[[Acts 19:22]]
+[[Acts 19:29]]
+[[Acts 20:4]]
+[[1 Corinthians 1:14]]
+[[2 Timothy 4:20]]
+[[3 John 1:1]]

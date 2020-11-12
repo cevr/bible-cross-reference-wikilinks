@@ -1,0 +1,7 @@
+[[Numbers 31:14]]
+[[Numbers 31:48]]
+[[Deuteronomy 1:15]]
+[[Deuteronomy 16:18]]
+[[1 Samuel 17:18]]
+[[Nehemiah 12:27]]
+[[Psalms 30:1]]

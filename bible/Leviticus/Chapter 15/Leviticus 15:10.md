@@ -1,0 +1,6 @@
+[[Leviticus 11:24]]
+[[Leviticus 15:5]]
+[[Leviticus 15:8]]
+[[Numbers 19:22]]
+[[Psalms 26:6]]
+[[James 4:8]]

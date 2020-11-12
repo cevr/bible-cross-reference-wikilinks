@@ -1,0 +1,8 @@
+[[Genesis 32:22]]
+[[Numbers 21:24]]
+[[Deuteronomy 2:5]]
+[[Deuteronomy 2:9]]
+[[Deuteronomy 2:19]]
+[[Deuteronomy 3:16]]
+[[Joshua 12:2]]
+[[Judges 11:15]]

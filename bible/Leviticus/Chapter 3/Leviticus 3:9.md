@@ -1,0 +1,7 @@
+[[Exodus 29:22]]
+[[Leviticus 3:3]]
+[[Leviticus 7:3]]
+[[Leviticus 8:25]]
+[[Leviticus 9:19]]
+[[Proverbs 23:26]]
+[[Isaiah 53:10]]

@@ -1,0 +1,5 @@
+[[Genesis 18:19]]
+[[Genesis 30:33]]
+[[Exodus 13:14]]
+[[Deuteronomy 6:20]]
+[[Joshua 4:6]]

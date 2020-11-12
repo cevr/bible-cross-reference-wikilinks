@@ -1,0 +1,7 @@
+[[Exodus 12:49]]
+[[Leviticus 17:10]]
+[[Leviticus 19:34]]
+[[Numbers 9:14]]
+[[Numbers 15:15]]
+[[Numbers 15:29]]
+[[Deuteronomy 1:16]]

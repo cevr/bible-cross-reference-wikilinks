@@ -1,0 +1,5 @@
+[[Exodus 5:23]]
+[[Mark 1:26]]
+[[Mark 9:18]]
+[[Mark 9:20]]
+[[Revelation 12:12]]

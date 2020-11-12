@@ -1,0 +1,8 @@
+[[Ezra 4:13]]
+[[Nehemiah 2:1]]
+[[Nehemiah 13:6]]
+[[Matthew 25:16]]
+[[Romans 13:6]]
+[[1 Corinthians 9:4]]
+[[1 Corinthians 9:18]]
+[[2 Thessalonians 3:8]]

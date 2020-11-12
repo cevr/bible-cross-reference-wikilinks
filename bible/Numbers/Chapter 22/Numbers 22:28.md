@@ -1,0 +1,5 @@
+[[Exodus 4:11]]
+[[Luke 1:37]]
+[[Romans 8:22]]
+[[1 Corinthians 1:19]]
+[[2 Peter 2:16]]

@@ -1,0 +1,5 @@
+[[Numbers 21:24]]
+[[Numbers 25:15]]
+[[Numbers 31:8]]
+[[Deuteronomy 2:30]]
+[[Deuteronomy 3:10]]

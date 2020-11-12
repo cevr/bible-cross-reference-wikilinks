@@ -1,0 +1,6 @@
+[[Isaiah 34:2]]
+[[Ezekiel 31:12]]
+[[Ezekiel 32:4]]
+[[Ezekiel 32:5]]
+[[Ezekiel 32:6]]
+[[Ezekiel 39:4]]

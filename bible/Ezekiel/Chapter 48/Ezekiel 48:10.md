@@ -1,0 +1,6 @@
+[[Numbers 35:1]]
+[[Joshua 21:1]]
+[[Ezekiel 44:28]]
+[[Ezekiel 45:4]]
+[[Matthew 10:10]]
+[[1 Corinthians 9:13]]

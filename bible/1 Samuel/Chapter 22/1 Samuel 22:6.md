@@ -1,0 +1,6 @@
+[[Genesis 21:33]]
+[[Judges 4:5]]
+[[1 Samuel 14:2]]
+[[1 Samuel 18:10]]
+[[1 Samuel 19:9]]
+[[1 Samuel 20:33]]

@@ -1,0 +1,6 @@
+[[Genesis 1:1]]
+[[Deuteronomy 7:7]]
+[[1 Kings 10:9]]
+[[2 Chronicles 9:8]]
+[[Psalms 72:17]]
+[[Luke 7:5]]

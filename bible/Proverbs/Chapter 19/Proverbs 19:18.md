@@ -1,0 +1,8 @@
+[[Deuteronomy 21:18]]
+[[Proverbs 13:24]]
+[[Proverbs 22:15]]
+[[Proverbs 23:13]]
+[[Proverbs 25:28]]
+[[Proverbs 29:15]]
+[[Proverbs 29:17]]
+[[Hebrews 12:7]]

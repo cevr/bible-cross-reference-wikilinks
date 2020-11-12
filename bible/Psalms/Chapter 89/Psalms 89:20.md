@@ -1,0 +1,6 @@
+[[Deuteronomy 17:15]]
+[[1 Samuel 16:1]]
+[[1 Samuel 16:12]]
+[[Isaiah 61:1]]
+[[John 3:34]]
+[[Acts 13:22]]

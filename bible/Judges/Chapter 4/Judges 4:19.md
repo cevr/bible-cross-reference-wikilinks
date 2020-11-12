@@ -1,0 +1,5 @@
+[[Genesis 24:43]]
+[[Judges 5:25]]
+[[1 Kings 17:10]]
+[[Isaiah 41:17]]
+[[John 4:7]]

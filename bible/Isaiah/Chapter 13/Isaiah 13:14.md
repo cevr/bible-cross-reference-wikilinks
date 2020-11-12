@@ -1,0 +1,7 @@
+[[1 Kings 22:17]]
+[[1 Kings 22:36]]
+[[Isaiah 17:13]]
+[[Isaiah 47:15]]
+[[Jeremiah 50:16]]
+[[Jeremiah 51:9]]
+[[Revelation 18:9]]

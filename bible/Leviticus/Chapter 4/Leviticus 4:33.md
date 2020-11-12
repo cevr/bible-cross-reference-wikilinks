@@ -1,0 +1,6 @@
+[[Leviticus 1:4]]
+[[Leviticus 4:4]]
+[[Leviticus 4:29]]
+[[Leviticus 6:18]]
+[[Leviticus 7:2]]
+[[2 Chronicles 29:23]]

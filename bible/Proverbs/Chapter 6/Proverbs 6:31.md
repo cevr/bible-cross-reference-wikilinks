@@ -1,0 +1,6 @@
+[[Exodus 21:34]]
+[[Exodus 22:1]]
+[[2 Samuel 12:6]]
+[[Job 20:18]]
+[[Matthew 18:25]]
+[[Luke 19:8]]

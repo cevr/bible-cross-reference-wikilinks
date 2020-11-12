@@ -1,0 +1,6 @@
+[[Exodus 4:28]]
+[[Exodus 18:25]]
+[[Numbers 1:4]]
+[[Numbers 7:2]]
+[[Numbers 34:17]]
+[[Deuteronomy 1:13]]

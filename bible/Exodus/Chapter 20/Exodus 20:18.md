@@ -1,0 +1,7 @@
+[[Genesis 15:17]]
+[[Exodus 19:16]]
+[[Deuteronomy 5:23]]
+[[Deuteronomy 5:27]]
+[[Psalms 139:7]]
+[[Jeremiah 23:23]]
+[[Hebrews 12:18]]

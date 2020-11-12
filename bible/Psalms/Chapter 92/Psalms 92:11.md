@@ -1,0 +1,7 @@
+[[Psalms 23:5]]
+[[Psalms 37:34]]
+[[Psalms 54:7]]
+[[Psalms 59:10]]
+[[Psalms 91:8]]
+[[Psalms 112:8]]
+[[Psalms 112:9]]

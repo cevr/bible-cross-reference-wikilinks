@@ -1,0 +1,6 @@
+[[Genesis 21:17]]
+[[1 Samuel 11:5]]
+[[2 Samuel 14:5]]
+[[2 Kings 6:28]]
+[[Psalms 114:5]]
+[[Isaiah 22:1]]

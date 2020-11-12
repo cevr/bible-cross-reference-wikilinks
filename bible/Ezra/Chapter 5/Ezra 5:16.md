@@ -1,0 +1,7 @@
+[[Ezra 3:8]]
+[[Ezra 3:10]]
+[[Ezra 5:2]]
+[[Ezra 6:15]]
+[[Haggai 1:12]]
+[[Haggai 2:18]]
+[[Zechariah 4:10]]

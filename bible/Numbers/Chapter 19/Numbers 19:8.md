@@ -1,0 +1,5 @@
+[[Leviticus 11:25]]
+[[Leviticus 16:28]]
+[[Leviticus 17:15]]
+[[Numbers 19:7]]
+[[Numbers 19:21]]

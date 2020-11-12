@@ -1,0 +1,6 @@
+[[Job 20:8]]
+[[Psalms 7:6]]
+[[Psalms 39:6]]
+[[Psalms 78:65]]
+[[Psalms 90:5]]
+[[Isaiah 29:7]]

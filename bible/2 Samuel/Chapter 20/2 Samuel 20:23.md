@@ -1,0 +1,8 @@
+[[2 Samuel 8:15]]
+[[2 Samuel 8:16]]
+[[2 Samuel 20:7]]
+[[1 Kings 1:7]]
+[[1 Kings 1:8]]
+[[1 Kings 4:1]]
+[[1 Kings 4:3]]
+[[1 Chronicles 18:15]]

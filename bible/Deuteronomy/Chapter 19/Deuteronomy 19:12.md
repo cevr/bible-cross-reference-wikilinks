@@ -1,0 +1,6 @@
+[[Genesis 9:5]]
+[[Exodus 21:14]]
+[[Deuteronomy 27:24]]
+[[2 Samuel 14:7]]
+[[1 Kings 2:5]]
+[[1 Kings 2:28]]

@@ -1,0 +1,6 @@
+[[Leviticus 6:19]]
+[[Numbers 15:20]]
+[[Numbers 18:30]]
+[[Deuteronomy 15:14]]
+[[2 Kings 6:27]]
+[[Hosea 9:1]]

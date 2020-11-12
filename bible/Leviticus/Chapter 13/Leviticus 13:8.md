@@ -1,0 +1,5 @@
+[[Leviticus 13:3]]
+[[Matthew 15:7]]
+[[Acts 8:21]]
+[[Philippians 3:18]]
+[[2 Peter 2:19]]

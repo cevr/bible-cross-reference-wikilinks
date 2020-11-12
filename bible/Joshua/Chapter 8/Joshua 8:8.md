@@ -1,0 +1,7 @@
+[[Joshua 1:9]]
+[[Joshua 1:16]]
+[[Joshua 6:24]]
+[[Joshua 8:13]]
+[[Joshua 8:28]]
+[[Judges 4:6]]
+[[2 Samuel 13:28]]

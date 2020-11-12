@@ -1,0 +1,8 @@
+[[Exodus 10:2]]
+[[Exodus 15:2]]
+[[Deuteronomy 10:21]]
+[[Joshua 23:9]]
+[[Psalms 116:16]]
+[[Micah 4:2]]
+[[Zechariah 8:23]]
+[[Luke 1:73]]

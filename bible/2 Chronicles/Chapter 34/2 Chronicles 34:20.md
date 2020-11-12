@@ -1,0 +1,7 @@
+[[2 Kings 22:12]]
+[[2 Kings 25:22]]
+[[Jeremiah 26:22]]
+[[Jeremiah 26:24]]
+[[Jeremiah 40:6]]
+[[Jeremiah 40:9]]
+[[Jeremiah 40:14]]

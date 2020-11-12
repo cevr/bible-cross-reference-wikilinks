@@ -1,0 +1,6 @@
+[[Jeremiah 4:27]]
+[[Jeremiah 5:10]]
+[[Ezekiel 9:8]]
+[[Ezekiel 11:13]]
+[[Habakkuk 1:12]]
+[[Romans 11:1]]

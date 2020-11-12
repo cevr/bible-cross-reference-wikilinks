@@ -1,0 +1,6 @@
+[[Genesis 40:8]]
+[[Genesis 41:15]]
+[[Daniel 2:6]]
+[[Daniel 5:7]]
+[[Daniel 5:29]]
+[[Acts 8:18]]

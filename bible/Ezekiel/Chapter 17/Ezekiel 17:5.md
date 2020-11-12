@@ -1,0 +1,8 @@
+[[Deuteronomy 8:7]]
+[[2 Kings 24:17]]
+[[Isaiah 15:7]]
+[[Isaiah 44:4]]
+[[Jeremiah 37:1]]
+[[Ezekiel 17:13]]
+[[Ezekiel 19:11]]
+[[Ezekiel 31:5]]

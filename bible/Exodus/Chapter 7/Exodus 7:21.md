@@ -1,0 +1,5 @@
+[[Exodus 7:18]]
+[[Exodus 8:14]]
+[[Psalms 105:29]]
+[[Isaiah 19:8]]
+[[Revelation 8:9]]

@@ -1,0 +1,8 @@
+[[Judges 14:17]]
+[[Judges 16:5]]
+[[Job 6:14]]
+[[Psalms 38:14]]
+[[Psalms 118:8]]
+[[Jeremiah 9:3]]
+[[Jeremiah 9:4]]
+[[Matthew 10:16]]

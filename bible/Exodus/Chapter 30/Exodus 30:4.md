@@ -1,0 +1,6 @@
+[[Exodus 25:12]]
+[[Exodus 25:14]]
+[[Exodus 25:27]]
+[[Exodus 26:29]]
+[[Exodus 27:4]]
+[[Exodus 27:7]]

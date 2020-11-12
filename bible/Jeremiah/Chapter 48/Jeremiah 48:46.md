@@ -1,0 +1,6 @@
+[[Numbers 21:29]]
+[[Judges 11:24]]
+[[1 Kings 11:7]]
+[[2 Kings 23:13]]
+[[Jeremiah 48:7]]
+[[Jeremiah 48:13]]

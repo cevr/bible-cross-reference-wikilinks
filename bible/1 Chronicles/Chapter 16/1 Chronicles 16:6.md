@@ -1,0 +1,5 @@
+[[Numbers 10:8]]
+[[1 Chronicles 15:18]]
+[[2 Chronicles 5:12]]
+[[2 Chronicles 13:12]]
+[[2 Chronicles 29:26]]

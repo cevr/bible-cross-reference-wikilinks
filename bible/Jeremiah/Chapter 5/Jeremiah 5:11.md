@@ -1,0 +1,5 @@
+[[Isaiah 48:8]]
+[[Jeremiah 3:6]]
+[[Jeremiah 3:20]]
+[[Hosea 5:7]]
+[[Hosea 6:7]]

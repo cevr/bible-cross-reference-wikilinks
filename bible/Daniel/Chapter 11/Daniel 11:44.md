@@ -1,0 +1,6 @@
+[[Ezekiel 38:9]]
+[[Daniel 11:11]]
+[[Daniel 11:30]]
+[[Revelation 16:12]]
+[[Revelation 17:13]]
+[[Revelation 19:19]]

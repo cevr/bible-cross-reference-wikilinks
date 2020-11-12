@@ -1,0 +1,5 @@
+[[Proverbs 15:8]]
+[[Proverbs 21:27]]
+[[Isaiah 1:15]]
+[[Isaiah 58:3]]
+[[James 4:3]]

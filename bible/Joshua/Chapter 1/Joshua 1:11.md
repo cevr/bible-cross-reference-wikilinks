@@ -1,0 +1,7 @@
+[[Exodus 19:11]]
+[[Deuteronomy 3:18]]
+[[Deuteronomy 9:1]]
+[[Deuteronomy 11:31]]
+[[Joshua 3:2]]
+[[2 Kings 20:5]]
+[[Hosea 6:2]]

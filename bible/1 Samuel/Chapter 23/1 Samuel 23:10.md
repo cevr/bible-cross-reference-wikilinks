@@ -1,0 +1,6 @@
+[[Genesis 18:24]]
+[[1 Samuel 22:19]]
+[[1 Samuel 23:8]]
+[[Esther 3:6]]
+[[Proverbs 28:15]]
+[[Romans 3:15]]

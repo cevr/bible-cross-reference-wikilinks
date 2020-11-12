@@ -1,0 +1,5 @@
+[[Isaiah 8:19]]
+[[Isaiah 44:25]]
+[[Isaiah 47:9]]
+[[Acts 8:9]]
+[[Galatians 3:1]]

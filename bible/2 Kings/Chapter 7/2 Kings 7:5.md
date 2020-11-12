@@ -1,0 +1,8 @@
+[[Leviticus 27:8]]
+[[Leviticus 27:26]]
+[[Deuteronomy 28:7]]
+[[Deuteronomy 32:25]]
+[[Deuteronomy 32:30]]
+[[1 Samuel 30:17]]
+[[Ezekiel 12:6]]
+[[Ezekiel 12:12]]

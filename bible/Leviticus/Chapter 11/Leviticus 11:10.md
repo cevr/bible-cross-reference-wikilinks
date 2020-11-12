@@ -1,0 +1,6 @@
+[[Leviticus 7:18]]
+[[Deuteronomy 14:3]]
+[[Psalms 139:21]]
+[[Proverbs 13:20]]
+[[Proverbs 29:27]]
+[[Revelation 21:8]]

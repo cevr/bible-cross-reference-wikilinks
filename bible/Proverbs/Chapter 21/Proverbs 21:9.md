@@ -1,0 +1,7 @@
+[[Proverbs 12:4]]
+[[Proverbs 15:17]]
+[[Proverbs 17:1]]
+[[Proverbs 19:13]]
+[[Proverbs 21:19]]
+[[Proverbs 25:24]]
+[[Proverbs 27:15]]

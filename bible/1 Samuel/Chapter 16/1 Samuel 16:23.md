@@ -1,0 +1,5 @@
+[[1 Samuel 16:14]]
+[[1 Samuel 18:10]]
+[[2 Kings 3:15]]
+[[Matthew 12:43]]
+[[Luke 11:24]]

@@ -1,0 +1,6 @@
+[[Job 19:12]]
+[[Psalms 31:11]]
+[[Psalms 38:11]]
+[[Psalms 88:8]]
+[[Psalms 118:10]]
+[[Psalms 118:11]]

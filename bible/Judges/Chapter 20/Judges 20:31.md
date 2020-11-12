@@ -1,0 +1,5 @@
+[[Joshua 7:5]]
+[[Joshua 8:14]]
+[[Joshua 8:17]]
+[[Judges 19:13]]
+[[Isaiah 10:29]]

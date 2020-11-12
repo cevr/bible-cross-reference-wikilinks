@@ -1,0 +1,8 @@
+[[2 Kings 7:5]]
+[[2 Kings 25:4]]
+[[Job 24:16]]
+[[Jeremiah 39:4]]
+[[Jeremiah 42:7]]
+[[Jeremiah 52:7]]
+[[Ezekiel 12:4]]
+[[Ezekiel 12:6]]

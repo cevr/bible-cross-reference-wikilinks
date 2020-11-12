@@ -1,0 +1,7 @@
+[[Mark 7:16]]
+[[Revelation 2:7]]
+[[Revelation 2:17]]
+[[Revelation 13:9]]
+[[Revelation 20:6]]
+[[Revelation 20:14]]
+[[Revelation 21:8]]

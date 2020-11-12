@@ -1,0 +1,6 @@
+[[Matthew 4:24]]
+[[Matthew 9:26]]
+[[Matthew 9:31]]
+[[Mark 1:28]]
+[[Mark 6:14]]
+[[Luke 7:14]]

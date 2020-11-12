@@ -1,0 +1,7 @@
+[[Exodus 12:50]]
+[[Numbers 1:50]]
+[[Numbers 8:15]]
+[[2 Chronicles 30:15]]
+[[2 Chronicles 30:27]]
+[[2 Chronicles 31:2]]
+[[2 Chronicles 35:8]]

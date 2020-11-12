@@ -1,0 +1,8 @@
+[[Genesis 3:13]]
+[[Genesis 27:35]]
+[[Genesis 27:41]]
+[[Genesis 29:25]]
+[[Joshua 9:6]]
+[[Joshua 9:9]]
+[[Joshua 9:16]]
+[[2 Corinthians 11:3]]

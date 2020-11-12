@@ -1,0 +1,6 @@
+[[1 Samuel 3:3]]
+[[1 Samuel 3:15]]
+[[2 Samuel 7:2]]
+[[Psalms 5:7]]
+[[Psalms 27:4]]
+[[Psalms 29:9]]

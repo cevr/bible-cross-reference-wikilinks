@@ -1,0 +1,6 @@
+[[Leviticus 18:18]]
+[[Judges 11:37]]
+[[1 Samuel 2:1]]
+[[2 Samuel 6:23]]
+[[Job 6:14]]
+[[Job 24:21]]

@@ -1,0 +1,5 @@
+[[Genesis 5:22]]
+[[Genesis 6:9]]
+[[Genesis 17:1]]
+[[Amos 4:1]]
+[[2 Corinthians 6:14]]

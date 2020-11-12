@@ -1,0 +1,8 @@
+[[1 Samuel 16:1]]
+[[1 Samuel 16:13]]
+[[2 Samuel 13:24]]
+[[2 Samuel 13:38]]
+[[Proverbs 21:27]]
+[[Isaiah 58:4]]
+[[Matthew 2:8]]
+[[Matthew 23:13]]

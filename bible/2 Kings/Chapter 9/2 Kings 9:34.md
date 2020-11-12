@@ -1,0 +1,8 @@
+[[1 Kings 16:31]]
+[[1 Kings 18:41]]
+[[1 Kings 21:25]]
+[[Esther 3:15]]
+[[Proverbs 10:7]]
+[[Isaiah 65:15]]
+[[Amos 6:4]]
+[[Matthew 25:41]]

@@ -1,0 +1,6 @@
+[[Matthew 12:45]]
+[[Matthew 16:28]]
+[[Matthew 23:36]]
+[[Mark 13:30]]
+[[Luke 11:50]]
+[[Luke 21:32]]

@@ -1,0 +1,6 @@
+[[2 Samuel 14:2]]
+[[Esther 5:1]]
+[[Psalms 104:15]]
+[[Ecclesiastes 9:8]]
+[[Matthew 6:17]]
+[[1 Timothy 2:9]]

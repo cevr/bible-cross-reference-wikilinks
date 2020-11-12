@@ -1,0 +1,7 @@
+[[1 Samuel 2:9]]
+[[Psalms 4:1]]
+[[Psalms 17:5]]
+[[Psalms 18:36]]
+[[Psalms 94:18]]
+[[Psalms 121:3]]
+[[Proverbs 4:12]]

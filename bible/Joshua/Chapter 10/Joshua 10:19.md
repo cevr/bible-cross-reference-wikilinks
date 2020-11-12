@@ -1,0 +1,7 @@
+[[Joshua 10:20]]
+[[2 Samuel 17:13]]
+[[2 Samuel 20:6]]
+[[Psalms 18:37]]
+[[Isaiah 9:14]]
+[[Jeremiah 8:14]]
+[[Jeremiah 48:10]]

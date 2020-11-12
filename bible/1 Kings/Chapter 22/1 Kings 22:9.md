@@ -1,0 +1,5 @@
+[[1 Kings 22:26]]
+[[2 Kings 9:32]]
+[[2 Chronicles 18:8]]
+[[Isaiah 39:7]]
+[[Daniel 1:18]]

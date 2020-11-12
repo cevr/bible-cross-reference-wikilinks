@@ -1,0 +1,7 @@
+[[Exodus 10:2]]
+[[Exodus 12:26]]
+[[Exodus 13:14]]
+[[Deuteronomy 6:7]]
+[[Joshua 4:6]]
+[[Joshua 4:21]]
+[[Proverbs 22:6]]

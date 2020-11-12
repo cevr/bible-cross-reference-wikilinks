@@ -1,0 +1,5 @@
+[[Exodus 18:21]]
+[[Numbers 1:4]]
+[[Numbers 1:16]]
+[[Numbers 7:2]]
+[[Deuteronomy 1:15]]

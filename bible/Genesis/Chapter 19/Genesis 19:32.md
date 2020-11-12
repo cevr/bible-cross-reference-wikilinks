@@ -1,0 +1,7 @@
+[[Genesis 9:21]]
+[[Genesis 11:3]]
+[[Leviticus 18:6]]
+[[Leviticus 18:7]]
+[[Proverbs 23:31]]
+[[Habakkuk 2:15]]
+[[Mark 12:19]]

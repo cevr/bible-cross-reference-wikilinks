@@ -1,0 +1,8 @@
+[[Ruth 1:7]]
+[[2 Samuel 14:4]]
+[[2 Kings 4:13]]
+[[2 Kings 6:26]]
+[[2 Kings 8:6]]
+[[Psalms 82:3]]
+[[Jeremiah 22:16]]
+[[Luke 18:3]]

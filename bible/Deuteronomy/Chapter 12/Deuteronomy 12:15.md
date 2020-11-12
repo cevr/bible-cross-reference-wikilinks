@@ -1,0 +1,7 @@
+[[Leviticus 17:3]]
+[[Deuteronomy 12:20]]
+[[Deuteronomy 12:22]]
+[[Deuteronomy 14:5]]
+[[Deuteronomy 14:26]]
+[[Deuteronomy 15:22]]
+[[Deuteronomy 15:23]]

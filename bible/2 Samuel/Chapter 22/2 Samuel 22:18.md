@@ -1,0 +1,6 @@
+[[2 Samuel 22:1]]
+[[Psalms 3:7]]
+[[Psalms 35:10]]
+[[Psalms 56:9]]
+[[2 Corinthians 1:10]]
+[[2 Timothy 4:17]]

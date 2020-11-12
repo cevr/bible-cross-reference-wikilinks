@@ -1,0 +1,5 @@
+[[1 Samuel 17:4]]
+[[1 Samuel 17:7]]
+[[2 Samuel 23:24]]
+[[1 Chronicles 11:26]]
+[[1 Chronicles 20:5]]

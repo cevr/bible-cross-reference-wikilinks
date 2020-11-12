@@ -1,0 +1,6 @@
+[[Isaiah 8:7]]
+[[Isaiah 10:28]]
+[[Isaiah 37:34]]
+[[Jeremiah 39:1]]
+[[Ezekiel 4:2]]
+[[Ezekiel 4:3]]

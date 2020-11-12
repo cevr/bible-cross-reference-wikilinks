@@ -1,0 +1,5 @@
+[[2 Samuel 22:50]]
+[[Psalms 18:49]]
+[[Psalms 57:9]]
+[[Matthew 9:8]]
+[[Romans 3:29]]

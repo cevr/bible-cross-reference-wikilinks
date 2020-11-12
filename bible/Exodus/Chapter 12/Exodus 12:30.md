@@ -1,0 +1,6 @@
+[[Exodus 10:10]]
+[[Exodus 11:6]]
+[[Proverbs 21:13]]
+[[Amos 5:17]]
+[[Matthew 25:6]]
+[[James 2:13]]

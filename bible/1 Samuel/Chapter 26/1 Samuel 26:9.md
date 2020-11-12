@@ -1,0 +1,8 @@
+[[1 Samuel 12:3]]
+[[1 Samuel 24:6]]
+[[2 Samuel 1:14]]
+[[2 Samuel 1:16]]
+[[2 Samuel 19:22]]
+[[Psalms 17:4]]
+[[Psalms 57:1]]
+[[Psalms 105:15]]

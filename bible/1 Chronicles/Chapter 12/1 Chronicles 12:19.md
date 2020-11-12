@@ -1,0 +1,6 @@
+[[Genesis 43:23]]
+[[Judges 6:34]]
+[[1 Samuel 29:2]]
+[[1 Samuel 29:10]]
+[[2 Samuel 17:25]]
+[[Zechariah 8:2]]

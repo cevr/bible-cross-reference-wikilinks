@@ -1,0 +1,7 @@
+[[Job 35:14]]
+[[Psalms 6:4]]
+[[Psalms 27:13]]
+[[Psalms 31:22]]
+[[Psalms 116:8]]
+[[Ecclesiastes 9:5]]
+[[Ecclesiastes 9:6]]

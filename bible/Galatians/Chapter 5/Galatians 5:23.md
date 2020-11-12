@@ -1,0 +1,5 @@
+[[Acts 24:25]]
+[[1 Corinthians 9:25]]
+[[1 Timothy 1:9]]
+[[Titus 1:8]]
+[[Titus 2:2]]

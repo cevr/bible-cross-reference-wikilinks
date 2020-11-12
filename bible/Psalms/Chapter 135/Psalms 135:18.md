@@ -1,0 +1,6 @@
+[[Psalms 97:7]]
+[[Psalms 115:8]]
+[[Isaiah 42:17]]
+[[Isaiah 44:18]]
+[[Jeremiah 10:8]]
+[[2 Corinthians 4:4]]

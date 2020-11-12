@@ -1,0 +1,7 @@
+[[Daniel 11:3]]
+[[Daniel 11:8]]
+[[Daniel 11:11]]
+[[Daniel 11:14]]
+[[Daniel 11:25]]
+[[Daniel 11:40]]
+[[Zechariah 6:6]]

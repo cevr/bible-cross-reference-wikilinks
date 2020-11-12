@@ -1,0 +1,6 @@
+[[Matthew 7:6]]
+[[Matthew 10:5]]
+[[Matthew 15:23]]
+[[Acts 22:21]]
+[[Romans 15:8]]
+[[Ephesians 2:12]]

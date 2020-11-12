@@ -1,0 +1,8 @@
+[[Exodus 12:10]]
+[[Exodus 16:19]]
+[[Exodus 29:22]]
+[[Exodus 29:26]]
+[[Exodus 29:28]]
+[[Leviticus 7:18]]
+[[Leviticus 8:32]]
+[[Leviticus 10:16]]

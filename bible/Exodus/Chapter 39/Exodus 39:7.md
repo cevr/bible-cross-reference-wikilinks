@@ -1,0 +1,6 @@
+[[Exodus 28:12]]
+[[Exodus 28:29]]
+[[Joshua 4:7]]
+[[Nehemiah 2:20]]
+[[Mark 14:9]]
+[[Mark 14:22]]

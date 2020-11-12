@@ -1,0 +1,5 @@
+[[1 Samuel 23:27]]
+[[1 Kings 20:2]]
+[[Isaiah 18:1]]
+[[Isaiah 20:5]]
+[[Isaiah 37:7]]

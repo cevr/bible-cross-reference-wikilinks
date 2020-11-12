@@ -1,0 +1,8 @@
+[[Genesis 14:14]]
+[[Genesis 14:16]]
+[[Numbers 31:49]]
+[[1 Samuel 30:8]]
+[[Job 1:10]]
+[[Psalms 34:9]]
+[[Psalms 91:9]]
+[[Matthew 6:33]]

@@ -1,0 +1,5 @@
+[[1 Samuel 14:29]]
+[[1 Samuel 14:43]]
+[[1 Samuel 30:12]]
+[[Proverbs 24:13]]
+[[Proverbs 25:26]]

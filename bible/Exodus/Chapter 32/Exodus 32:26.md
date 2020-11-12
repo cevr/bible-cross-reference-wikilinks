@@ -1,0 +1,6 @@
+[[Deuteronomy 33:9]]
+[[Joshua 5:13]]
+[[2 Samuel 20:11]]
+[[2 Kings 9:32]]
+[[Psalms 94:16]]
+[[Matthew 12:30]]

@@ -1,0 +1,6 @@
+[[Genesis 37:14]]
+[[Genesis 43:27]]
+[[Exodus 18:7]]
+[[1 Samuel 17:22]]
+[[1 Samuel 25:5]]
+[[2 Samuel 20:9]]

@@ -1,0 +1,6 @@
+[[Deuteronomy 33:22]]
+[[Joshua 11:11]]
+[[Joshua 19:47]]
+[[Judges 8:11]]
+[[Judges 18:7]]
+[[Judges 18:10]]

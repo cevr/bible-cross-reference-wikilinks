@@ -1,0 +1,6 @@
+[[Zechariah 1:8]]
+[[Zechariah 1:13]]
+[[Zechariah 1:19]]
+[[Zechariah 4:1]]
+[[Zechariah 4:5]]
+[[Zechariah 5:5]]

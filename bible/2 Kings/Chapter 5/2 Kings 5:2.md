@@ -1,0 +1,5 @@
+[[Judges 9:34]]
+[[1 Samuel 13:17]]
+[[2 Kings 6:23]]
+[[2 Kings 13:20]]
+[[Psalms 123:2]]

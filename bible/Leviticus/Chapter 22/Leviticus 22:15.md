@@ -1,0 +1,5 @@
+[[Exodus 28:43]]
+[[Leviticus 19:8]]
+[[Leviticus 22:9]]
+[[Numbers 18:32]]
+[[Ezekiel 22:26]]

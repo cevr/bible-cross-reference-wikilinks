@@ -1,0 +1,7 @@
+[[Exodus 32:20]]
+[[1 Kings 15:13]]
+[[2 Chronicles 34:7]]
+[[Isaiah 2:18]]
+[[Isaiah 30:22]]
+[[Isaiah 31:7]]
+[[Hosea 8:11]]

@@ -1,0 +1,6 @@
+[[Esther 1:1]]
+[[Esther 8:9]]
+[[Psalms 73:27]]
+[[Isaiah 32:17]]
+[[Isaiah 39:8]]
+[[Zechariah 8:19]]

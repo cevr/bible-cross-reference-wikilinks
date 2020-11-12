@@ -1,0 +1,7 @@
+[[Judges 6:24]]
+[[Judges 21:4]]
+[[1 Samuel 7:9]]
+[[1 Samuel 7:12]]
+[[1 Samuel 7:17]]
+[[Hosea 8:14]]
+[[2 Timothy 3:5]]

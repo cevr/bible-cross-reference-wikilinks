@@ -1,0 +1,8 @@
+[[Ecclesiastes 9:1]]
+[[Jeremiah 39:10]]
+[[Jeremiah 40:7]]
+[[Jeremiah 40:11]]
+[[Jeremiah 41:10]]
+[[Jeremiah 52:10]]
+[[Lamentations 3:1]]
+[[John 21:18]]

@@ -1,0 +1,6 @@
+[[Exodus 34:22]]
+[[Leviticus 23:10]]
+[[Leviticus 25:8]]
+[[Numbers 28:26]]
+[[Deuteronomy 16:9]]
+[[Deuteronomy 16:10]]

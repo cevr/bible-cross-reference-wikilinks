@@ -1,0 +1,5 @@
+[[Joshua 20:7]]
+[[1 Kings 5:6]]
+[[2 Chronicles 2:8]]
+[[2 Chronicles 2:16]]
+[[2 Chronicles 8:2]]

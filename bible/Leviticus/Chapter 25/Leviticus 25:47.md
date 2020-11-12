@@ -1,0 +1,5 @@
+[[Leviticus 25:25]]
+[[Leviticus 25:26]]
+[[1 Samuel 2:7]]
+[[Nehemiah 5:8]]
+[[James 2:5]]

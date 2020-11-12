@@ -1,0 +1,8 @@
+[[Numbers 32:39]]
+[[Deuteronomy 3:12]]
+[[Judges 11:10]]
+[[1 Samuel 25:10]]
+[[Nehemiah 4:4]]
+[[Psalms 78:9]]
+[[Proverbs 12:13]]
+[[Proverbs 15:1]]

@@ -1,0 +1,6 @@
+[[1 Kings 9:27]]
+[[1 Kings 10:22]]
+[[2 Chronicles 9:10]]
+[[2 Chronicles 9:13]]
+[[2 Chronicles 9:21]]
+[[Ecclesiastes 2:8]]

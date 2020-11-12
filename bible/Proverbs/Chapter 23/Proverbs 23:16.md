@@ -1,0 +1,5 @@
+[[Proverbs 8:6]]
+[[Ephesians 4:29]]
+[[Ephesians 5:4]]
+[[Colossians 4:4]]
+[[James 3:2]]

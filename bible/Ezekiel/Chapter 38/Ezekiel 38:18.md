@@ -1,0 +1,8 @@
+[[Deuteronomy 32:22]]
+[[Psalms 18:7]]
+[[Psalms 89:46]]
+[[Ezekiel 36:5]]
+[[Ezekiel 36:6]]
+[[Ezekiel 36:15]]
+[[Nahum 1:2]]
+[[Hebrews 12:29]]

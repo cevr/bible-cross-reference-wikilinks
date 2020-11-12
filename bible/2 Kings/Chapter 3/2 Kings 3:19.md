@@ -1,0 +1,8 @@
+[[Numbers 24:17]]
+[[Deuteronomy 20:19]]
+[[Deuteronomy 20:20]]
+[[Judges 6:16]]
+[[1 Samuel 15:3]]
+[[1 Samuel 23:2]]
+[[2 Kings 3:25]]
+[[2 Kings 13:17]]

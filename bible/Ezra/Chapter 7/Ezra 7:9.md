@@ -1,0 +1,7 @@
+[[Ezra 7:6]]
+[[Ezra 7:28]]
+[[Ezra 8:18]]
+[[Ezra 8:32]]
+[[Nehemiah 2:8]]
+[[Nehemiah 2:18]]
+[[Psalms 80:18]]

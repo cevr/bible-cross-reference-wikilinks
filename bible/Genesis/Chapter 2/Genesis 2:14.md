@@ -1,0 +1,8 @@
+[[Genesis 10:11]]
+[[Genesis 10:22]]
+[[Genesis 15:18]]
+[[Genesis 25:18]]
+[[Deuteronomy 1:7]]
+[[Deuteronomy 11:24]]
+[[Daniel 10:4]]
+[[Revelation 9:14]]

@@ -1,0 +1,8 @@
+[[Numbers 35:2]]
+[[1 Chronicles 9:26]]
+[[Nehemiah 10:38]]
+[[Ezekiel 40:17]]
+[[Ezekiel 48:10]]
+[[Ezekiel 48:13]]
+[[Ezekiel 48:20]]
+[[1 Corinthians 9:13]]

@@ -1,0 +1,7 @@
+[[Genesis 35:22]]
+[[Exodus 38:8]]
+[[1 Samuel 2:13]]
+[[1 Samuel 8:1]]
+[[Jeremiah 7:9]]
+[[Ezekiel 22:26]]
+[[Hosea 4:9]]

@@ -1,0 +1,8 @@
+[[Deuteronomy 4:40]]
+[[Job 5:26]]
+[[Psalms 34:12]]
+[[Ecclesiastes 8:12]]
+[[Ecclesiastes 8:13]]
+[[Isaiah 3:11]]
+[[Zechariah 8:4]]
+[[Romans 2:5]]

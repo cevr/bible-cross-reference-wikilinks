@@ -1,0 +1,8 @@
+[[Exodus 30:23]]
+[[Psalms 45:8]]
+[[Psalms 45:9]]
+[[Songs of Solomon 3:6]]
+[[Songs of Solomon 4:13]]
+[[Songs of Solomon 4:14]]
+[[Isaiah 57:7]]
+[[Ezekiel 27:19]]

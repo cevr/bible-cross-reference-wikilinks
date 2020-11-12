@@ -1,0 +1,5 @@
+[[Genesis 25:26]]
+[[Genesis 25:31]]
+[[Genesis 25:33]]
+[[Genesis 32:28]]
+[[John 1:47]]

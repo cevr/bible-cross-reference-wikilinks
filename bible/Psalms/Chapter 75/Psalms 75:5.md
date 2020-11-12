@@ -1,0 +1,7 @@
+[[Exodus 32:9]]
+[[Deuteronomy 31:27]]
+[[2 Chronicles 30:8]]
+[[Psalms 66:7]]
+[[Isaiah 48:4]]
+[[Ezekiel 2:4]]
+[[Acts 7:51]]

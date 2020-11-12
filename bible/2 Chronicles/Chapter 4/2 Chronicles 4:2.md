@@ -1,0 +1,8 @@
+[[Exodus 30:18]]
+[[Exodus 38:3]]
+[[Exodus 38:8]]
+[[1 Kings 7:23]]
+[[1 Chronicles 18:8]]
+[[Zechariah 13:1]]
+[[Titus 3:5]]
+[[Revelation 7:14]]

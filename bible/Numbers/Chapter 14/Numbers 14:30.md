@@ -1,0 +1,6 @@
+[[Genesis 14:22]]
+[[Numbers 14:38]]
+[[Numbers 26:65]]
+[[Numbers 32:12]]
+[[Deuteronomy 1:36]]
+[[Psalms 95:11]]

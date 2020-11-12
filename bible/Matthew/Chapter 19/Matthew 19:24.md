@@ -1,0 +1,6 @@
+[[Jeremiah 13:23]]
+[[Matthew 19:26]]
+[[Matthew 23:24]]
+[[Mark 10:24]]
+[[Luke 18:25]]
+[[John 5:44]]

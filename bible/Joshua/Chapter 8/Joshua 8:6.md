@@ -1,0 +1,5 @@
+[[Exodus 14:3]]
+[[Exodus 15:9]]
+[[Judges 20:32]]
+[[Ecclesiastes 8:11]]
+[[Ecclesiastes 9:12]]

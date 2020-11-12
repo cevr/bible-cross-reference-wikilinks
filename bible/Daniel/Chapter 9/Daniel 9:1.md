@@ -1,0 +1,5 @@
+[[Daniel 1:21]]
+[[Daniel 5:31]]
+[[Daniel 6:1]]
+[[Daniel 6:28]]
+[[Daniel 11:1]]

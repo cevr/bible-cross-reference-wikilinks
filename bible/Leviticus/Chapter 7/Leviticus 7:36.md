@@ -1,0 +1,5 @@
+[[Exodus 27:21]]
+[[Exodus 40:13]]
+[[Leviticus 3:17]]
+[[Leviticus 8:12]]
+[[Leviticus 8:30]]

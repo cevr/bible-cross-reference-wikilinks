@@ -1,0 +1,6 @@
+[[Genesis 20:11]]
+[[Genesis 26:7]]
+[[1 Samuel 27:1]]
+[[Proverbs 29:25]]
+[[Matthew 10:28]]
+[[1 John 1:8]]

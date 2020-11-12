@@ -1,0 +1,6 @@
+[[Numbers 16:21]]
+[[Numbers 16:24]]
+[[Numbers 16:26]]
+[[Numbers 20:6]]
+[[1 Chronicles 21:16]]
+[[Matthew 26:39]]

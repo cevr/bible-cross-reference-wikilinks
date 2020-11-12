@@ -1,0 +1,5 @@
+[[Matthew 4:24]]
+[[Matthew 8:16]]
+[[Mark 1:21]]
+[[Mark 3:2]]
+[[Luke 4:40]]

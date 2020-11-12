@@ -1,0 +1,5 @@
+[[Matthew 12:33]]
+[[Galatians 5:19]]
+[[Titus 2:11]]
+[[James 3:12]]
+[[Jude 1:12]]

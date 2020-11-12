@@ -1,0 +1,5 @@
+[[2 Kings 8:16]]
+[[2 Kings 8:24]]
+[[2 Kings 8:25]]
+[[2 Chronicles 21:18]]
+[[2 Chronicles 22:1]]

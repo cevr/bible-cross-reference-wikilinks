@@ -1,0 +1,8 @@
+[[1 Kings 12:28]]
+[[1 Kings 16:25]]
+[[2 Kings 8:18]]
+[[2 Chronicles 18:1]]
+[[2 Chronicles 20:35]]
+[[2 Chronicles 22:2]]
+[[2 Chronicles 28:2]]
+[[Nehemiah 13:25]]

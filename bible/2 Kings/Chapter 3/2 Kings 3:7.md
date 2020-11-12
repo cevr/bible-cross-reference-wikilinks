@@ -1,0 +1,8 @@
+[[1 Kings 22:4]]
+[[1 Kings 22:32]]
+[[2 Chronicles 18:3]]
+[[2 Chronicles 18:29]]
+[[2 Chronicles 19:2]]
+[[2 Chronicles 21:4]]
+[[2 Chronicles 22:3]]
+[[2 Chronicles 22:10]]

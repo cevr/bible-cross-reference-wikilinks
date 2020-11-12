@@ -1,0 +1,5 @@
+[[2 Chronicles 33:11]]
+[[Isaiah 2:19]]
+[[Isaiah 2:21]]
+[[Jeremiah 16:16]]
+[[Micah 7:17]]

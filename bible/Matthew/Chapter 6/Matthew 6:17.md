@@ -1,0 +1,5 @@
+[[Ruth 3:3]]
+[[2 Samuel 12:20]]
+[[2 Samuel 14:2]]
+[[Ecclesiastes 9:8]]
+[[Daniel 10:2]]

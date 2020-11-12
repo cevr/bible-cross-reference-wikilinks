@@ -1,0 +1,6 @@
+[[Psalms 18:49]]
+[[Psalms 108:4]]
+[[Psalms 145:1]]
+[[Psalms 146:1]]
+[[Isaiah 12:1]]
+[[Romans 15:9]]

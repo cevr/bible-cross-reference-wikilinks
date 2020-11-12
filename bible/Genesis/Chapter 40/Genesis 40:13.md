@@ -1,0 +1,5 @@
+[[Genesis 7:4]]
+[[Genesis 40:19]]
+[[2 Kings 25:27]]
+[[Psalms 3:3]]
+[[Jeremiah 52:31]]

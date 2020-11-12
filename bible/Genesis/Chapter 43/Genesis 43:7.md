@@ -1,0 +1,5 @@
+[[Genesis 42:11]]
+[[Genesis 42:13]]
+[[Genesis 43:3]]
+[[Genesis 43:27]]
+[[Genesis 44:19]]

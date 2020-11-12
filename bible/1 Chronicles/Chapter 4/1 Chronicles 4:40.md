@@ -1,0 +1,5 @@
+[[Genesis 9:22]]
+[[Genesis 10:6]]
+[[Judges 18:7]]
+[[Psalms 78:51]]
+[[Psalms 105:23]]

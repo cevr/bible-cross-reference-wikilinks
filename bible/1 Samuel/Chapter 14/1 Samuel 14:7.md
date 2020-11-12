@@ -1,0 +1,5 @@
+[[1 Samuel 10:7]]
+[[2 Samuel 7:3]]
+[[2 Samuel 15:15]]
+[[Psalms 46:7]]
+[[Zechariah 8:23]]

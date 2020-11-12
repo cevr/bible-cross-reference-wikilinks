@@ -1,0 +1,6 @@
+[[2 Chronicles 33:12]]
+[[Luke 17:34]]
+[[Luke 23:39]]
+[[1 Corinthians 4:7]]
+[[2 Peter 2:5]]
+[[2 Peter 2:7]]

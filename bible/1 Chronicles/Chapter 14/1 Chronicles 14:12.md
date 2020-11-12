@@ -1,0 +1,7 @@
+[[Exodus 12:12]]
+[[Exodus 32:20]]
+[[Deuteronomy 7:5]]
+[[Deuteronomy 7:25]]
+[[1 Samuel 5:2]]
+[[2 Kings 10:26]]
+[[2 Kings 19:18]]

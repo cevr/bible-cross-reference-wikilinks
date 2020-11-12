@@ -1,0 +1,8 @@
+[[Genesis 10:22]]
+[[Genesis 28:5]]
+[[Judges 10:6]]
+[[2 Samuel 8:5]]
+[[2 Samuel 10:6]]
+[[2 Samuel 15:8]]
+[[Isaiah 7:1]]
+[[Ezekiel 28:13]]

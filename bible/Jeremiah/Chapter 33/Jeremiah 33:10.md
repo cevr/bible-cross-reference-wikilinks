@@ -1,0 +1,5 @@
+[[Psalms 85:7]]
+[[Psalms 147:13]]
+[[Jeremiah 32:36]]
+[[Jeremiah 32:43]]
+[[Ezekiel 37:11]]

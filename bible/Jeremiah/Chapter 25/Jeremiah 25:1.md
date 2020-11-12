@@ -1,0 +1,7 @@
+[[2 Kings 24:1]]
+[[Jeremiah 7:1]]
+[[Jeremiah 35:1]]
+[[Jeremiah 36:1]]
+[[Jeremiah 46:2]]
+[[Daniel 1:1]]
+[[Daniel 2:1]]

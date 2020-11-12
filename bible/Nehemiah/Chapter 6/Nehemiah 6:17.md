@@ -1,0 +1,5 @@
+[[Nehemiah 3:5]]
+[[Nehemiah 5:7]]
+[[Nehemiah 13:28]]
+[[Micah 7:1]]
+[[Matthew 24:10]]

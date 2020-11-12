@@ -1,0 +1,8 @@
+[[Judges 4:16]]
+[[1 Samuel 11:11]]
+[[1 Samuel 15:3]]
+[[2 Samuel 1:1]]
+[[1 Kings 20:29]]
+[[2 Kings 7:5]]
+[[1 Chronicles 4:43]]
+[[Psalms 18:42]]

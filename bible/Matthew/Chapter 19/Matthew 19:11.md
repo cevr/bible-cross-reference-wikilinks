@@ -1,0 +1,5 @@
+[[Matthew 13:11]]
+[[1 Corinthians 7:2]]
+[[1 Corinthians 7:7]]
+[[1 Corinthians 7:17]]
+[[1 Corinthians 7:35]]

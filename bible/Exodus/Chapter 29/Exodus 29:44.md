@@ -1,0 +1,6 @@
+[[Leviticus 21:15]]
+[[Leviticus 22:9]]
+[[Leviticus 22:16]]
+[[1 Kings 9:3]]
+[[John 10:36]]
+[[Revelation 1:5]]

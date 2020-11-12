@@ -1,0 +1,5 @@
+[[Exodus 16:23]]
+[[Exodus 16:27]]
+[[Exodus 20:8]]
+[[Exodus 31:14]]
+[[Exodus 35:2]]

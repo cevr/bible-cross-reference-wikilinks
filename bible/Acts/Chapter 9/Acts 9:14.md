@@ -1,0 +1,7 @@
+[[Acts 7:59]]
+[[Acts 9:2]]
+[[Acts 9:21]]
+[[Acts 22:16]]
+[[Romans 10:12]]
+[[1 Corinthians 1:2]]
+[[2 Timothy 2:22]]

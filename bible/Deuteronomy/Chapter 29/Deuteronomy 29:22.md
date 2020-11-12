@@ -1,0 +1,6 @@
+[[Genesis 19:24]]
+[[Jeremiah 19:8]]
+[[Jeremiah 20:16]]
+[[Jeremiah 49:18]]
+[[Hosea 11:8]]
+[[Zephaniah 2:9]]

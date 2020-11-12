@@ -1,0 +1,7 @@
+[[1 Kings 9:7]]
+[[Jeremiah 26:18]]
+[[Ezekiel 7:20]]
+[[Daniel 9:26]]
+[[Micah 3:12]]
+[[Luke 19:44]]
+[[2 Peter 3:11]]

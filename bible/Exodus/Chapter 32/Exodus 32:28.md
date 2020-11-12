@@ -1,0 +1,7 @@
+[[Numbers 16:32]]
+[[Numbers 16:41]]
+[[Numbers 35:8]]
+[[Deuteronomy 33:9]]
+[[Malachi 2:4]]
+[[1 Corinthians 10:8]]
+[[Hebrews 2:2]]

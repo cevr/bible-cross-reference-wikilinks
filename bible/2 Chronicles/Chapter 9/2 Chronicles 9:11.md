@@ -1,0 +1,6 @@
+[[1 Kings 10:12]]
+[[1 Chronicles 23:5]]
+[[1 Chronicles 25:1]]
+[[Psalms 92:1]]
+[[Psalms 150:3]]
+[[Revelation 5:8]]

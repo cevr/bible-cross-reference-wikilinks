@@ -1,0 +1,7 @@
+[[Deuteronomy 7:26]]
+[[Joshua 7:21]]
+[[1 Samuel 3:12]]
+[[1 Kings 13:34]]
+[[Psalms 91:10]]
+[[Proverbs 3:33]]
+[[Zechariah 5:4]]

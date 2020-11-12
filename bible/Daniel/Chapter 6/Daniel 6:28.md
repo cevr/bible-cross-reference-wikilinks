@@ -1,0 +1,7 @@
+[[2 Chronicles 36:22]]
+[[Psalms 77:15]]
+[[Isaiah 44:28]]
+[[Jeremiah 32:20]]
+[[Daniel 1:21]]
+[[Daniel 3:29]]
+[[Daniel 10:1]]

@@ -1,0 +1,5 @@
+[[Exodus 16:34]]
+[[Exodus 25:22]]
+[[Exodus 29:42]]
+[[Exodus 30:6]]
+[[Leviticus 16:2]]

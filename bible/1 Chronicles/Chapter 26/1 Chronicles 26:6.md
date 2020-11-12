@@ -1,0 +1,8 @@
+[[Judges 6:12]]
+[[2 Samuel 2:7]]
+[[1 Chronicles 12:28]]
+[[1 Chronicles 26:8]]
+[[2 Chronicles 26:17]]
+[[Nehemiah 11:14]]
+[[1 Timothy 6:12]]
+[[2 Timothy 2:3]]

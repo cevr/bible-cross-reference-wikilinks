@@ -1,0 +1,7 @@
+[[Exodus 21:34]]
+[[Exodus 22:1]]
+[[Leviticus 6:5]]
+[[Nehemiah 5:11]]
+[[Proverbs 6:31]]
+[[Luke 19:8]]
+[[James 2:13]]

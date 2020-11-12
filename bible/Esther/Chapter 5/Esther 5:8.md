@@ -1,0 +1,7 @@
+[[Esther 1:9]]
+[[Esther 6:1]]
+[[Esther 6:14]]
+[[Esther 7:1]]
+[[Esther 7:3]]
+[[Esther 8:5]]
+[[Proverbs 16:9]]

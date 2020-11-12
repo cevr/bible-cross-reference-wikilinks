@@ -1,0 +1,8 @@
+[[Numbers 14:22]]
+[[Numbers 14:29]]
+[[Numbers 14:32]]
+[[Numbers 26:64]]
+[[Deuteronomy 2:15]]
+[[Jeremiah 9:22]]
+[[1 Corinthians 10:1]]
+[[Jude 1:5]]

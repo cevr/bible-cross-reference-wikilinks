@@ -1,0 +1,6 @@
+[[Luke 10:24]]
+[[John 8:56]]
+[[Ephesians 3:5]]
+[[Hebrews 11:13]]
+[[Hebrews 11:39]]
+[[1 Peter 1:10]]

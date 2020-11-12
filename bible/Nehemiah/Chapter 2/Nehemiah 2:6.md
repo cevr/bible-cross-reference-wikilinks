@@ -1,0 +1,8 @@
+[[Nehemiah 1:11]]
+[[Nehemiah 2:4]]
+[[Nehemiah 5:14]]
+[[Nehemiah 13:6]]
+[[Isaiah 58:12]]
+[[Isaiah 61:4]]
+[[Isaiah 65:24]]
+[[Daniel 9:25]]

@@ -1,0 +1,7 @@
+[[Genesis 16:7]]
+[[Genesis 25:18]]
+[[Exodus 15:22]]
+[[Deuteronomy 25:17]]
+[[Joshua 6:21]]
+[[1 Samuel 15:3]]
+[[1 Samuel 15:7]]

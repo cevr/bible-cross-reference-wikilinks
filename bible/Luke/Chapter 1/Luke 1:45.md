@@ -1,0 +1,7 @@
+[[1 Kings 17:16]]
+[[2 Kings 4:5]]
+[[2 Chronicles 20:20]]
+[[Luke 1:20]]
+[[Luke 11:27]]
+[[John 11:40]]
+[[John 20:29]]

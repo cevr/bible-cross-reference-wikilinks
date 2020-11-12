@@ -1,0 +1,5 @@
+[[1 Samuel 9:1]]
+[[2 Samuel 16:4]]
+[[2 Samuel 19:29]]
+[[2 Samuel 19:30]]
+[[Isaiah 32:8]]

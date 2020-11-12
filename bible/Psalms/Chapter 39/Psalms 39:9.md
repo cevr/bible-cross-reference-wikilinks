@@ -1,0 +1,8 @@
+[[Leviticus 10:3]]
+[[1 Samuel 3:18]]
+[[2 Samuel 16:10]]
+[[Job 1:21]]
+[[Job 2:10]]
+[[Job 40:4]]
+[[Psalms 38:13]]
+[[Daniel 4:35]]

@@ -1,0 +1,5 @@
+[[Genesis 23:9]]
+[[Numbers 16:48]]
+[[Numbers 25:8]]
+[[2 Samuel 24:21]]
+[[1 Kings 21:2]]

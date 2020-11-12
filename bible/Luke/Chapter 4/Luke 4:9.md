@@ -1,0 +1,6 @@
+[[2 Chronicles 3:4]]
+[[Job 2:6]]
+[[Matthew 4:5]]
+[[Matthew 8:29]]
+[[Luke 4:3]]
+[[Romans 1:4]]

@@ -1,0 +1,6 @@
+[[Genesis 21:17]]
+[[Judges 18:23]]
+[[1 Samuel 9:1]]
+[[1 Kings 19:19]]
+[[Psalms 78:71]]
+[[Isaiah 22:1]]

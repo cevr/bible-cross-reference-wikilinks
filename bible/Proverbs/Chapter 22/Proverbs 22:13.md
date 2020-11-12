@@ -1,0 +1,5 @@
+[[Numbers 13:32]]
+[[Proverbs 15:19]]
+[[Proverbs 19:15]]
+[[Proverbs 26:13]]
+[[Songs of Solomon 5:3]]

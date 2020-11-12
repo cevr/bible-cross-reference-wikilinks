@@ -1,0 +1,7 @@
+[[Genesis 33:19]]
+[[Genesis 34:2]]
+[[Genesis 34:6]]
+[[Judges 9:41]]
+[[1 Samuel 25:10]]
+[[2 Samuel 20:1]]
+[[1 Kings 12:16]]

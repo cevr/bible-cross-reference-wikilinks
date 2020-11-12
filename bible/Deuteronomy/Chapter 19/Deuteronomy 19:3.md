@@ -1,0 +1,6 @@
+[[Deuteronomy 4:21]]
+[[Deuteronomy 26:1]]
+[[Isaiah 35:8]]
+[[Isaiah 57:14]]
+[[Isaiah 62:10]]
+[[Hebrews 12:13]]

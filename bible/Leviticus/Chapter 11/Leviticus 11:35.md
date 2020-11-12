@@ -1,0 +1,5 @@
+[[Leviticus 6:28]]
+[[Leviticus 11:33]]
+[[Leviticus 13:52]]
+[[Leviticus 15:12]]
+[[2 Corinthians 5:1]]

@@ -1,0 +1,6 @@
+[[Psalms 58:4]]
+[[Proverbs 21:13]]
+[[Zechariah 7:11]]
+[[Acts 7:54]]
+[[Acts 21:27]]
+[[Acts 23:27]]

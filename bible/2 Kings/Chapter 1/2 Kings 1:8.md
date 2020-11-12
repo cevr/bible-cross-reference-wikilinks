@@ -1,0 +1,8 @@
+[[1 Kings 18:46]]
+[[Isaiah 20:2]]
+[[Zechariah 13:4]]
+[[Matthew 3:4]]
+[[Matthew 11:8]]
+[[Mark 1:6]]
+[[Luke 1:17]]
+[[Revelation 11:3]]

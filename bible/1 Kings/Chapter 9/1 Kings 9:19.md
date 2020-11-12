@@ -1,0 +1,8 @@
+[[Exodus 1:11]]
+[[1 Kings 4:26]]
+[[1 Kings 5:6]]
+[[1 Kings 9:1]]
+[[1 Kings 10:26]]
+[[2 Chronicles 1:14]]
+[[Ecclesiastes 2:10]]
+[[Ecclesiastes 6:9]]

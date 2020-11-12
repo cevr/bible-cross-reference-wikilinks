@@ -1,0 +1,7 @@
+[[Exodus 23:27]]
+[[Deuteronomy 2:25]]
+[[Deuteronomy 7:24]]
+[[Joshua 1:5]]
+[[Joshua 2:9]]
+[[Joshua 5:1]]
+[[1 Chronicles 14:17]]

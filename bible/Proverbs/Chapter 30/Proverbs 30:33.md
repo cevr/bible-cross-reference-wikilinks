@@ -1,0 +1,6 @@
+[[Proverbs 15:18]]
+[[Proverbs 16:28]]
+[[Proverbs 17:14]]
+[[Proverbs 26:21]]
+[[Proverbs 28:25]]
+[[Proverbs 29:22]]

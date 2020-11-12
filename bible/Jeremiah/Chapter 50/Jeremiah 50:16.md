@@ -1,0 +1,7 @@
+[[Isaiah 13:14]]
+[[Jeremiah 25:38]]
+[[Jeremiah 46:16]]
+[[Jeremiah 51:9]]
+[[Jeremiah 51:23]]
+[[Joel 1:11]]
+[[Amos 5:16]]

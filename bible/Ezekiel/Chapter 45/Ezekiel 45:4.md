@@ -1,0 +1,7 @@
+[[Numbers 16:5]]
+[[Ezekiel 40:45]]
+[[Ezekiel 43:19]]
+[[Ezekiel 44:13]]
+[[Ezekiel 44:28]]
+[[Ezekiel 45:1]]
+[[Ezekiel 48:10]]

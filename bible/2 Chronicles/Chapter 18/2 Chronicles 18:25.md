@@ -1,0 +1,5 @@
+[[2 Chronicles 18:8]]
+[[2 Chronicles 34:8]]
+[[Jeremiah 37:15]]
+[[Jeremiah 38:6]]
+[[Acts 24:25]]

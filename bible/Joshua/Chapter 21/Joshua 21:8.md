@@ -1,0 +1,8 @@
+[[Genesis 49:7]]
+[[Numbers 32:2]]
+[[Numbers 33:54]]
+[[Numbers 35:3]]
+[[Joshua 18:6]]
+[[Joshua 21:3]]
+[[Proverbs 16:33]]
+[[Proverbs 18:18]]

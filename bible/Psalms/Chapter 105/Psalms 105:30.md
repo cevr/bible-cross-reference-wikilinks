@@ -1,0 +1,5 @@
+[[Exodus 8:1]]
+[[Exodus 8:3]]
+[[Exodus 8:6]]
+[[Psalms 78:45]]
+[[Revelation 16:13]]

@@ -1,0 +1,6 @@
+[[Joshua 7:26]]
+[[Judges 8:3]]
+[[Psalms 83:10]]
+[[Psalms 83:11]]
+[[Psalms 83:12]]
+[[Isaiah 10:26]]

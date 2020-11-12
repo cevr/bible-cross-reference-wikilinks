@@ -1,0 +1,6 @@
+[[Exodus 22:4]]
+[[Leviticus 6:5]]
+[[Proverbs 6:30]]
+[[Jeremiah 2:26]]
+[[John 12:6]]
+[[1 Corinthians 6:10]]

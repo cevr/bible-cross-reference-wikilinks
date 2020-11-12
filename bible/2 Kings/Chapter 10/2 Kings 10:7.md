@@ -1,0 +1,7 @@
+[[Judges 9:5]]
+[[1 Kings 21:19]]
+[[1 Kings 21:21]]
+[[2 Kings 10:9]]
+[[2 Kings 11:1]]
+[[2 Chronicles 21:4]]
+[[Matthew 14:8]]

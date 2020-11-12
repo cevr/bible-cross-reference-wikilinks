@@ -1,0 +1,7 @@
+[[Exodus 8:12]]
+[[Exodus 8:13]]
+[[Exodus 8:16]]
+[[Exodus 8:20]]
+[[Exodus 8:21]]
+[[Psalms 78:45]]
+[[Isaiah 7:18]]

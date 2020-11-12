@@ -1,0 +1,6 @@
+[[Exodus 9:19]]
+[[Exodus 9:25]]
+[[Exodus 9:26]]
+[[Exodus 12:12]]
+[[Psalms 78:48]]
+[[Psalms 78:50]]

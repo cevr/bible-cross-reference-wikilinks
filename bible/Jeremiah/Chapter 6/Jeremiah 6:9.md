@@ -1,0 +1,5 @@
+[[Jeremiah 16:16]]
+[[Jeremiah 49:9]]
+[[Jeremiah 52:28]]
+[[Obadiah 1:5]]
+[[Revelation 14:18]]

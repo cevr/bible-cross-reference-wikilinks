@@ -1,0 +1,7 @@
+[[Leviticus 19:16]]
+[[Psalms 52:2]]
+[[Psalms 64:3]]
+[[Proverbs 12:18]]
+[[Proverbs 16:28]]
+[[Proverbs 26:20]]
+[[Proverbs 26:22]]

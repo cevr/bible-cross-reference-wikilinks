@@ -1,0 +1,7 @@
+[[Leviticus 21:8]]
+[[Leviticus 21:13]]
+[[Deuteronomy 24:1]]
+[[Deuteronomy 24:2]]
+[[Isaiah 50:1]]
+[[Ezekiel 44:22]]
+[[1 Timothy 3:11]]

@@ -1,0 +1,6 @@
+[[1 Samuel 4:2]]
+[[1 Samuel 4:10]]
+[[Psalms 89:38]]
+[[Isaiah 64:9]]
+[[Jeremiah 12:7]]
+[[Jeremiah 12:13]]

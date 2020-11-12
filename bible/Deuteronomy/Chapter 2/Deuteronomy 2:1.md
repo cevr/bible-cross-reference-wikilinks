@@ -1,0 +1,5 @@
+[[Numbers 14:25]]
+[[Numbers 21:4]]
+[[Deuteronomy 1:2]]
+[[Deuteronomy 1:40]]
+[[Judges 11:18]]

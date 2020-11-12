@@ -1,0 +1,5 @@
+[[Numbers 6:24]]
+[[2 Samuel 22:51]]
+[[1 Chronicles 17:27]]
+[[Psalms 115:12]]
+[[Isaiah 55:3]]

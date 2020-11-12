@@ -1,0 +1,5 @@
+[[Joshua 15:1]]
+[[Joshua 15:12]]
+[[Joshua 16:1]]
+[[Joshua 16:4]]
+[[Joshua 19:1]]

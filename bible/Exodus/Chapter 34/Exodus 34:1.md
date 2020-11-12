@@ -1,0 +1,8 @@
+[[Exodus 24:12]]
+[[Exodus 31:18]]
+[[Exodus 32:16]]
+[[Exodus 32:19]]
+[[Exodus 34:28]]
+[[Deuteronomy 9:15]]
+[[Deuteronomy 10:1]]
+[[Psalms 119:89]]

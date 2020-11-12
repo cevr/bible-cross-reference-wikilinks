@@ -1,0 +1,6 @@
+[[Joshua 9:3]]
+[[2 Samuel 21:2]]
+[[1 Chronicles 27:30]]
+[[2 Chronicles 16:6]]
+[[Nehemiah 2:7]]
+[[Nehemiah 3:19]]

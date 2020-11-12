@@ -1,0 +1,7 @@
+[[2 Kings 5:10]]
+[[2 Kings 5:14]]
+[[Psalms 51:2]]
+[[2 Corinthians 7:1]]
+[[2 Corinthians 12:8]]
+[[Hebrews 9:10]]
+[[Revelation 1:5]]

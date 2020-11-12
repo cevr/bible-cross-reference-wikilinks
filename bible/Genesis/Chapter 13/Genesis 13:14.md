@@ -1,0 +1,5 @@
+[[Genesis 13:10]]
+[[Genesis 28:14]]
+[[Deuteronomy 3:27]]
+[[Isaiah 49:18]]
+[[Isaiah 60:4]]

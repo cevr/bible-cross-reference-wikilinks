@@ -1,0 +1,7 @@
+[[Numbers 6:2]]
+[[Numbers 6:5]]
+[[Judges 16:17]]
+[[1 Samuel 1:11]]
+[[1 Samuel 7:13]]
+[[2 Samuel 8:1]]
+[[1 Chronicles 18:1]]

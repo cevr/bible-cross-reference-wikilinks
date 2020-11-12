@@ -1,0 +1,7 @@
+[[Exodus 24:10]]
+[[2 Samuel 7:25]]
+[[2 Chronicles 6:4]]
+[[2 Chronicles 6:14]]
+[[Isaiah 41:17]]
+[[Isaiah 45:3]]
+[[Jeremiah 11:5]]

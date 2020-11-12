@@ -1,0 +1,6 @@
+[[Joshua 7:17]]
+[[1 Samuel 10:19]]
+[[1 Samuel 14:38]]
+[[Proverbs 16:33]]
+[[Jonah 1:7]]
+[[Acts 1:24]]

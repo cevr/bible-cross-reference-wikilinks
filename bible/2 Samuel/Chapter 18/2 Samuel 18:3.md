@@ -1,0 +1,7 @@
+[[Exodus 17:10]]
+[[2 Samuel 10:11]]
+[[2 Samuel 17:2]]
+[[2 Samuel 21:17]]
+[[1 Kings 22:31]]
+[[Lamentations 4:20]]
+[[Zechariah 13:7]]

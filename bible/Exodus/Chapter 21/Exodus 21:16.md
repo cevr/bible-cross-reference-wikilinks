@@ -1,0 +1,6 @@
+[[Genesis 37:28]]
+[[Genesis 40:15]]
+[[Exodus 22:4]]
+[[Deuteronomy 24:7]]
+[[1 Timothy 1:10]]
+[[Revelation 18:12]]

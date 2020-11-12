@@ -1,0 +1,7 @@
+[[Isaiah 45:9]]
+[[Isaiah 64:8]]
+[[Jeremiah 18:4]]
+[[Daniel 4:23]]
+[[Matthew 20:15]]
+[[Romans 9:20]]
+[[Romans 11:34]]

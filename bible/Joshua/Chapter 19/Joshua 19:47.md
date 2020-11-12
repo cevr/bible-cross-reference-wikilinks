@@ -1,0 +1,5 @@
+[[Deuteronomy 33:22]]
+[[Judges 1:34]]
+[[Judges 18:1]]
+[[Judges 18:29]]
+[[2 Samuel 24:6]]

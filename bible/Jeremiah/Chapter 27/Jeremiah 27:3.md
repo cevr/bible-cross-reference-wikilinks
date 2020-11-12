@@ -1,0 +1,8 @@
+[[2 Chronicles 36:13]]
+[[Jeremiah 25:19]]
+[[Jeremiah 25:20]]
+[[Jeremiah 47:1]]
+[[Ezekiel 17:15]]
+[[Ezekiel 25:1]]
+[[Ezekiel 29:18]]
+[[Amos 1:9]]

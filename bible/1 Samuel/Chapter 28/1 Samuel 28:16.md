@@ -1,0 +1,7 @@
+[[Judges 5:31]]
+[[2 Kings 6:27]]
+[[Psalms 68:1]]
+[[Lamentations 2:4]]
+[[Lamentations 2:5]]
+[[Revelation 18:20]]
+[[Revelation 18:24]]

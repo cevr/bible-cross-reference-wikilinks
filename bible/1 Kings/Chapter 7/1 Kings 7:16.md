@@ -1,0 +1,5 @@
+[[Exodus 36:38]]
+[[Exodus 38:17]]
+[[Exodus 38:19]]
+[[Exodus 38:28]]
+[[2 Chronicles 4:12]]

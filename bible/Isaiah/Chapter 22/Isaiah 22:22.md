@@ -1,0 +1,7 @@
+[[Job 12:14]]
+[[Job 31:36]]
+[[Isaiah 7:2]]
+[[Matthew 16:18]]
+[[Matthew 18:18]]
+[[Revelation 1:18]]
+[[Revelation 3:7]]

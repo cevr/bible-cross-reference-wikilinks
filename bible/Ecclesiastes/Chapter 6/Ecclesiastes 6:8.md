@@ -1,0 +1,8 @@
+[[Genesis 17:1]]
+[[Psalms 101:2]]
+[[Psalms 116:9]]
+[[Proverbs 19:1]]
+[[Ecclesiastes 2:14]]
+[[Ecclesiastes 5:11]]
+[[Luke 1:6]]
+[[1 Timothy 6:17]]

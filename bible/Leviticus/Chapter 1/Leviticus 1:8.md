@@ -1,0 +1,7 @@
+[[Exodus 29:17]]
+[[Leviticus 1:12]]
+[[Leviticus 8:18]]
+[[Leviticus 9:13]]
+[[1 Kings 18:23]]
+[[1 Kings 18:33]]
+[[Ezekiel 40:43]]

@@ -1,0 +1,6 @@
+[[Romans 14:15]]
+[[1 Corinthians 8:9]]
+[[1 Corinthians 9:19]]
+[[1 Corinthians 10:32]]
+[[2 Corinthians 8:21]]
+[[1 Thessalonians 5:22]]

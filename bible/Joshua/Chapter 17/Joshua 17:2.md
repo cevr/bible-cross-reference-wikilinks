@@ -1,0 +1,6 @@
+[[Numbers 26:29]]
+[[Numbers 26:30]]
+[[Numbers 26:32]]
+[[Judges 6:11]]
+[[Judges 8:2]]
+[[1 Chronicles 7:18]]

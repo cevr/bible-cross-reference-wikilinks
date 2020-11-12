@@ -1,0 +1,8 @@
+[[2 Kings 17:6]]
+[[Psalms 56:5]]
+[[Jeremiah 26:9]]
+[[Jeremiah 28:10]]
+[[Amos 6:7]]
+[[Amos 7:9]]
+[[Matthew 26:61]]
+[[Acts 6:14]]

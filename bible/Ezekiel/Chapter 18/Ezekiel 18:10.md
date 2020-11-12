@@ -1,0 +1,8 @@
+[[Genesis 9:5]]
+[[Exodus 21:12]]
+[[Exodus 22:2]]
+[[Leviticus 19:13]]
+[[Numbers 35:31]]
+[[Malachi 3:8]]
+[[John 18:40]]
+[[1 John 3:12]]

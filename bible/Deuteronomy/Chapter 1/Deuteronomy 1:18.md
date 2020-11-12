@@ -1,0 +1,7 @@
+[[Deuteronomy 4:5]]
+[[Deuteronomy 4:40]]
+[[Deuteronomy 12:28]]
+[[Deuteronomy 12:32]]
+[[Matthew 28:20]]
+[[Acts 20:20]]
+[[Acts 20:27]]

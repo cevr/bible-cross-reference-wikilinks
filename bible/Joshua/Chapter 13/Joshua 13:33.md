@@ -1,0 +1,5 @@
+[[Numbers 18:20]]
+[[Deuteronomy 10:9]]
+[[Deuteronomy 18:1]]
+[[Joshua 13:14]]
+[[Joshua 18:7]]

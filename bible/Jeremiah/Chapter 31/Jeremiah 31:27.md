@@ -1,0 +1,7 @@
+[[Psalms 107:41]]
+[[Jeremiah 30:19]]
+[[Ezekiel 36:9]]
+[[Ezekiel 36:10]]
+[[Ezekiel 36:11]]
+[[Hosea 2:23]]
+[[Zechariah 10:9]]

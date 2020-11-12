@@ -1,0 +1,7 @@
+[[Exodus 13:2]]
+[[Exodus 13:12]]
+[[Exodus 22:29]]
+[[Exodus 34:19]]
+[[Numbers 3:13]]
+[[Numbers 8:16]]
+[[Numbers 18:15]]

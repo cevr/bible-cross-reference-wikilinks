@@ -1,0 +1,6 @@
+[[Ezekiel 41:13]]
+[[Ezekiel 42:1]]
+[[Ezekiel 42:10]]
+[[Ezekiel 42:13]]
+[[Revelation 21:27]]
+[[Revelation 22:14]]

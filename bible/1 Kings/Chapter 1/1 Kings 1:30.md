@@ -1,0 +1,7 @@
+[[1 Kings 1:13]]
+[[1 Kings 1:17]]
+[[1 Kings 2:12]]
+[[1 Chronicles 28:5]]
+[[1 Chronicles 29:23]]
+[[1 Chronicles 29:28]]
+[[Ecclesiastes 8:4]]

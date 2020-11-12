@@ -1,0 +1,6 @@
+[[Genesis 29:29]]
+[[Genesis 30:3]]
+[[Genesis 30:4]]
+[[Genesis 35:22]]
+[[Genesis 35:25]]
+[[Exodus 1:2]]

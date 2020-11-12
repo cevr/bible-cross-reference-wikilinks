@@ -1,0 +1,7 @@
+[[Acts 9:31]]
+[[Romans 16:7]]
+[[1 Corinthians 1:30]]
+[[Philippians 1:1]]
+[[1 Thessalonians 1:1]]
+[[1 Thessalonians 2:14]]
+[[2 Thessalonians 1:1]]

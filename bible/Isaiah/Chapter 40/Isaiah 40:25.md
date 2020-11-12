@@ -1,0 +1,8 @@
+[[Exodus 15:11]]
+[[Deuteronomy 4:15]]
+[[Deuteronomy 4:33]]
+[[Deuteronomy 5:8]]
+[[Psalms 86:8]]
+[[Psalms 89:7]]
+[[Isaiah 40:18]]
+[[Isaiah 46:5]]

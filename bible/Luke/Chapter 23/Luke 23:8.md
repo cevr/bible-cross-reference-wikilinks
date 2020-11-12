@@ -1,0 +1,7 @@
+[[2 Kings 5:3]]
+[[2 Kings 5:11]]
+[[Matthew 14:1]]
+[[Mark 6:14]]
+[[Luke 4:23]]
+[[Luke 9:7]]
+[[Acts 8:19]]

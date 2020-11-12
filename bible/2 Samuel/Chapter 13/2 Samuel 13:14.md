@@ -1,0 +1,5 @@
+[[Genesis 34:2]]
+[[Deuteronomy 22:25]]
+[[Judges 20:5]]
+[[2 Samuel 12:11]]
+[[Esther 7:8]]

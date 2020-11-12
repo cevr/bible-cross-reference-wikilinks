@@ -1,0 +1,8 @@
+[[2 Chronicles 32:21]]
+[[Psalms 73:20]]
+[[Psalms 129:5]]
+[[Isaiah 10:7]]
+[[Isaiah 41:11]]
+[[Isaiah 41:12]]
+[[Isaiah 44:12]]
+[[Nahum 2:1]]

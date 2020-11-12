@@ -1,0 +1,7 @@
+[[1 Kings 8:22]]
+[[Psalms 28:2]]
+[[Psalms 104:33]]
+[[Psalms 134:2]]
+[[Psalms 145:1]]
+[[Psalms 146:1]]
+[[Habakkuk 3:10]]

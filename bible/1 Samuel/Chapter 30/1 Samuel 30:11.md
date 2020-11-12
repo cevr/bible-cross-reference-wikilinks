@@ -1,0 +1,7 @@
+[[Deuteronomy 15:7]]
+[[Deuteronomy 23:7]]
+[[Deuteronomy 23:8]]
+[[Proverbs 25:21]]
+[[Matthew 25:35]]
+[[Luke 10:36]]
+[[Romans 12:20]]

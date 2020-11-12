@@ -1,0 +1,7 @@
+[[Genesis 33:18]]
+[[Joshua 24:33]]
+[[Judges 17:1]]
+[[Judges 19:1]]
+[[1 Samuel 1:1]]
+[[2 Kings 4:42]]
+[[John 3:23]]

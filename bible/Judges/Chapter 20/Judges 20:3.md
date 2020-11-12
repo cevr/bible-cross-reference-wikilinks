@@ -1,0 +1,7 @@
+[[Deuteronomy 13:15]]
+[[Judges 19:22]]
+[[Judges 20:12]]
+[[Proverbs 22:3]]
+[[Matthew 5:25]]
+[[Luke 12:58]]
+[[Luke 14:31]]

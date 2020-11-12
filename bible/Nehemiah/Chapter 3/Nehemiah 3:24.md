@@ -1,0 +1,6 @@
+[[Ezra 3:9]]
+[[Nehemiah 3:11]]
+[[Nehemiah 3:19]]
+[[Nehemiah 3:27]]
+[[Nehemiah 10:9]]
+[[Nehemiah 10:10]]

@@ -1,0 +1,5 @@
+[[Exodus 31:18]]
+[[Numbers 10:33]]
+[[Deuteronomy 9:9]]
+[[Hebrews 8:6]]
+[[Hebrews 9:4]]

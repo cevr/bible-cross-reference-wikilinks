@@ -1,0 +1,5 @@
+[[Numbers 21:28]]
+[[Deuteronomy 2:9]]
+[[Deuteronomy 2:18]]
+[[Deuteronomy 2:29]]
+[[Isaiah 15:1]]

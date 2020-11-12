@@ -1,0 +1,8 @@
+[[Genesis 17:11]]
+[[Exodus 12:7]]
+[[Exodus 12:23]]
+[[Joshua 2:12]]
+[[Joshua 2:18]]
+[[1 Thessalonians 1:10]]
+[[Hebrews 11:28]]
+[[1 John 1:7]]

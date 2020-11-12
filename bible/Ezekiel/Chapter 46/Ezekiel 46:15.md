@@ -1,0 +1,6 @@
+[[Exodus 29:38]]
+[[Exodus 29:42]]
+[[Numbers 28:6]]
+[[Hebrews 7:27]]
+[[Hebrews 9:26]]
+[[Hebrews 10:1]]

@@ -1,0 +1,7 @@
+[[2 Samuel 4:3]]
+[[2 Samuel 6:1]]
+[[2 Samuel 6:10]]
+[[1 Chronicles 15:18]]
+[[1 Chronicles 16:5]]
+[[1 Chronicles 26:4]]
+[[1 Chronicles 26:8]]

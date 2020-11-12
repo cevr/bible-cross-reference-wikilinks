@@ -1,0 +1,5 @@
+[[Judges 8:21]]
+[[1 Kings 2:25]]
+[[1 Kings 2:34]]
+[[Matthew 27:2]]
+[[Acts 7:25]]

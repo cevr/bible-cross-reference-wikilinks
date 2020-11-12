@@ -1,0 +1,6 @@
+[[Psalms 58:9]]
+[[Proverbs 1:27]]
+[[Jeremiah 4:11]]
+[[Jeremiah 23:19]]
+[[Jeremiah 25:32]]
+[[Zechariah 9:14]]

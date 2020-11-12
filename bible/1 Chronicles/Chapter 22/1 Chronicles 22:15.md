@@ -1,0 +1,6 @@
+[[Exodus 28:6]]
+[[Exodus 31:3]]
+[[Exodus 35:32]]
+[[Exodus 35:35]]
+[[1 Kings 7:14]]
+[[2 Chronicles 2:6]]

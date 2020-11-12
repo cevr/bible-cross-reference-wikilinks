@@ -1,0 +1,8 @@
+[[Isaiah 38:1]]
+[[Isaiah 38:5]]
+[[Joel 1:14]]
+[[Joel 2:14]]
+[[Amos 5:15]]
+[[Jonah 1:6]]
+[[Jonah 3:9]]
+[[James 4:9]]

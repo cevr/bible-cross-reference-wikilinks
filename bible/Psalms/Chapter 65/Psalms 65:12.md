@@ -1,0 +1,6 @@
+[[Job 38:26]]
+[[Psalms 65:6]]
+[[Psalms 104:10]]
+[[Isaiah 55:9]]
+[[Isaiah 61:10]]
+[[Joel 2:22]]

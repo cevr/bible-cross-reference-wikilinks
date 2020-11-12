@@ -1,0 +1,6 @@
+[[1 Kings 7:15]]
+[[2 Kings 4:2]]
+[[2 Chronicles 25:9]]
+[[Proverbs 11:24]]
+[[2 Corinthians 9:8]]
+[[Philippians 4:19]]

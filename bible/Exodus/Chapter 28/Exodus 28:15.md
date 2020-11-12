@@ -1,0 +1,7 @@
+[[Exodus 26:1]]
+[[Exodus 26:36]]
+[[Exodus 28:4]]
+[[Exodus 28:6]]
+[[Exodus 28:30]]
+[[Exodus 39:8]]
+[[Leviticus 8:8]]

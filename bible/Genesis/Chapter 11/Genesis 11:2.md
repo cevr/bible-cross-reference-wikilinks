@@ -1,0 +1,7 @@
+[[Genesis 10:10]]
+[[Genesis 11:9]]
+[[Genesis 13:11]]
+[[Genesis 14:1]]
+[[Isaiah 11:11]]
+[[Daniel 1:2]]
+[[Zechariah 5:11]]

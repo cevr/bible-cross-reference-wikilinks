@@ -1,0 +1,7 @@
+[[Exodus 29:24]]
+[[Leviticus 7:29]]
+[[Leviticus 7:34]]
+[[Leviticus 9:21]]
+[[Leviticus 22:13]]
+[[Numbers 18:11]]
+[[John 4:34]]

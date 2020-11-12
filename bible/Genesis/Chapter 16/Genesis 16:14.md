@@ -1,0 +1,5 @@
+[[Genesis 14:7]]
+[[Genesis 21:31]]
+[[Genesis 24:62]]
+[[Genesis 25:11]]
+[[Numbers 13:26]]

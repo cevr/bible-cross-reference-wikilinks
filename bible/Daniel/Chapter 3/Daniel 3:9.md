@@ -1,0 +1,6 @@
+[[Daniel 2:4]]
+[[Daniel 3:4]]
+[[Daniel 5:10]]
+[[Daniel 6:6]]
+[[Daniel 6:21]]
+[[Romans 13:7]]

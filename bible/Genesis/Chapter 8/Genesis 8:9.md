@@ -1,0 +1,6 @@
+[[Deuteronomy 28:65]]
+[[Psalms 116:7]]
+[[Isaiah 60:8]]
+[[Ezekiel 7:16]]
+[[Matthew 11:28]]
+[[John 16:33]]

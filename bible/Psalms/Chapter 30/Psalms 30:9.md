@@ -1,0 +1,7 @@
+[[Psalms 6:5]]
+[[Psalms 66:17]]
+[[Psalms 88:10]]
+[[Psalms 115:17]]
+[[Psalms 118:17]]
+[[Ecclesiastes 9:10]]
+[[Isaiah 38:18]]

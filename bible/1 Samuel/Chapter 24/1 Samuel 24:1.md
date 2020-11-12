@@ -1,0 +1,7 @@
+[[Joshua 15:62]]
+[[1 Samuel 23:19]]
+[[1 Samuel 23:28]]
+[[Proverbs 25:5]]
+[[Proverbs 29:12]]
+[[Ezekiel 22:9]]
+[[Hosea 7:3]]

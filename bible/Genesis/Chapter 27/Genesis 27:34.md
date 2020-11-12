@@ -1,0 +1,7 @@
+[[1 Samuel 30:4]]
+[[Esther 4:1]]
+[[Proverbs 1:24]]
+[[Proverbs 1:31]]
+[[Proverbs 19:3]]
+[[Luke 13:24]]
+[[Hebrews 12:17]]

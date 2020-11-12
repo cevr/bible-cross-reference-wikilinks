@@ -1,0 +1,8 @@
+[[Leviticus 26:33]]
+[[Deuteronomy 28:64]]
+[[Isaiah 27:12]]
+[[Isaiah 28:28]]
+[[Isaiah 30:28]]
+[[Ezekiel 36:19]]
+[[Ezekiel 39:28]]
+[[Luke 22:31]]

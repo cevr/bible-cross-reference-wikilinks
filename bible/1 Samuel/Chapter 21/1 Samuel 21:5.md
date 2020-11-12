@@ -1,0 +1,8 @@
+[[Exodus 19:15]]
+[[Exodus 25:30]]
+[[Leviticus 8:26]]
+[[Leviticus 24:9]]
+[[Acts 9:15]]
+[[1 Thessalonians 4:3]]
+[[2 Timothy 2:20]]
+[[1 Peter 3:17]]

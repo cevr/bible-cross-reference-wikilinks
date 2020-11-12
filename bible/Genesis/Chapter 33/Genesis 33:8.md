@@ -1,0 +1,5 @@
+[[Genesis 32:5]]
+[[Genesis 32:6]]
+[[Genesis 32:13]]
+[[Genesis 39:5]]
+[[Esther 2:17]]

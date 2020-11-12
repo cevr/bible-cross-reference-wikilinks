@@ -1,0 +1,5 @@
+[[Exodus 36:29]]
+[[Psalms 133:1]]
+[[1 Corinthians 1:10]]
+[[1 Corinthians 3:16]]
+[[1 Peter 2:5]]

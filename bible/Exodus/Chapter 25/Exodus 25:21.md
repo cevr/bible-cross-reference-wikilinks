@@ -1,0 +1,6 @@
+[[Exodus 25:16]]
+[[Exodus 26:34]]
+[[Leviticus 16:13]]
+[[Deuteronomy 10:5]]
+[[1 Kings 8:9]]
+[[Romans 10:4]]

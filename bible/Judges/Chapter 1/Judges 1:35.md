@@ -1,0 +1,5 @@
+[[Joshua 10:12]]
+[[Joshua 19:42]]
+[[Joshua 19:43]]
+[[Judges 12:12]]
+[[1 Kings 4:9]]

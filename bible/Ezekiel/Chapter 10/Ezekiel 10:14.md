@@ -1,0 +1,6 @@
+[[1 Kings 7:29]]
+[[1 Kings 7:36]]
+[[Ezekiel 1:6]]
+[[Ezekiel 10:21]]
+[[Ezekiel 41:19]]
+[[Revelation 4:7]]

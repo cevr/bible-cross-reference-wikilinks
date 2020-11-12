@@ -1,0 +1,5 @@
+[[Genesis 25:6]]
+[[Deuteronomy 21:15]]
+[[Deuteronomy 21:17]]
+[[2 Chronicles 11:5]]
+[[2 Chronicles 11:23]]

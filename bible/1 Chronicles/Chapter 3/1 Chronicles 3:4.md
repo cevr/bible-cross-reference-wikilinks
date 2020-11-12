@@ -1,0 +1,6 @@
+[[2 Samuel 2:11]]
+[[2 Samuel 5:4]]
+[[2 Samuel 5:5]]
+[[2 Samuel 5:14]]
+[[1 Kings 2:11]]
+[[1 Chronicles 29:27]]

@@ -1,0 +1,6 @@
+[[Deuteronomy 12:7]]
+[[Deuteronomy 12:12]]
+[[Deuteronomy 14:23]]
+[[Deuteronomy 16:11]]
+[[Deuteronomy 16:14]]
+[[Jeremiah 31:5]]

@@ -1,0 +1,8 @@
+[[Genesis 40:11]]
+[[Genesis 40:21]]
+[[Ezra 4:7]]
+[[Ezra 7:1]]
+[[Ezra 7:7]]
+[[Nehemiah 1:1]]
+[[Nehemiah 1:11]]
+[[Esther 3:7]]

@@ -1,0 +1,5 @@
+[[Numbers 12:4]]
+[[Numbers 16:6]]
+[[1 Samuel 12:3]]
+[[1 Samuel 12:7]]
+[[2 Timothy 2:14]]

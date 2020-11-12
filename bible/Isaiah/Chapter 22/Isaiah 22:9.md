@@ -1,0 +1,6 @@
+[[2 Kings 20:20]]
+[[2 Chronicles 32:1]]
+[[2 Chronicles 32:4]]
+[[2 Chronicles 32:5]]
+[[2 Chronicles 32:30]]
+[[Nehemiah 3:16]]

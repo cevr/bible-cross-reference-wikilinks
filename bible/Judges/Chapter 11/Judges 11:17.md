@@ -1,0 +1,7 @@
+[[Numbers 20:1]]
+[[Numbers 20:14]]
+[[Numbers 20:20]]
+[[Deuteronomy 1:46]]
+[[Deuteronomy 2:4]]
+[[Deuteronomy 2:29]]
+[[Joshua 24:9]]

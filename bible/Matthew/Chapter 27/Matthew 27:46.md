@@ -1,0 +1,8 @@
+[[Psalms 22:1]]
+[[Psalms 71:11]]
+[[Isaiah 53:10]]
+[[Lamentations 1:12]]
+[[Mark 15:34]]
+[[Luke 23:46]]
+[[John 19:28]]
+[[Hebrews 5:7]]

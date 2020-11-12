@@ -1,0 +1,6 @@
+[[Exodus 13:2]]
+[[Numbers 3:41]]
+[[Numbers 3:45]]
+[[Numbers 8:16]]
+[[Numbers 8:18]]
+[[Numbers 18:6]]

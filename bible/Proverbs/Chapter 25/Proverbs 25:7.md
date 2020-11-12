@@ -1,0 +1,5 @@
+[[Proverbs 16:19]]
+[[Luke 14:7]]
+[[Luke 18:14]]
+[[1 Peter 5:5]]
+[[Revelation 4:1]]

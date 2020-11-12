@@ -1,0 +1,5 @@
+[[1 Samuel 22:14]]
+[[2 Samuel 8:8]]
+[[2 Samuel 20:23]]
+[[1 Chronicles 27:6]]
+[[Ecclesiastes 4:12]]

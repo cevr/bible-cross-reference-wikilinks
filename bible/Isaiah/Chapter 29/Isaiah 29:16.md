@@ -1,0 +1,7 @@
+[[Psalms 94:8]]
+[[Isaiah 24:1]]
+[[Isaiah 45:9]]
+[[Isaiah 64:8]]
+[[Jeremiah 18:1]]
+[[Acts 17:6]]
+[[Romans 9:19]]

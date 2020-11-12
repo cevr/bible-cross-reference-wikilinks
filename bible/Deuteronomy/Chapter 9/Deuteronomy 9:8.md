@@ -1,0 +1,5 @@
+[[Exodus 32:7]]
+[[Exodus 32:16]]
+[[Deuteronomy 1:6]]
+[[Deuteronomy 9:19]]
+[[Psalms 106:19]]

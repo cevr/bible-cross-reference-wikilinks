@@ -1,0 +1,7 @@
+[[Deuteronomy 29:10]]
+[[Deuteronomy 29:11]]
+[[Joshua 9:15]]
+[[Joshua 9:23]]
+[[Joshua 9:27]]
+[[Joshua 10:1]]
+[[2 Chronicles 2:17]]

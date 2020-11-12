@@ -1,0 +1,6 @@
+[[Exodus 25:20]]
+[[Exodus 37:9]]
+[[1 Kings 8:6]]
+[[1 Kings 8:7]]
+[[2 Chronicles 3:11]]
+[[2 Chronicles 5:8]]

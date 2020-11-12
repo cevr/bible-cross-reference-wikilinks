@@ -1,0 +1,8 @@
+[[Genesis 29:33]]
+[[Genesis 34:25]]
+[[Genesis 42:24]]
+[[Genesis 46:10]]
+[[Genesis 49:5]]
+[[Numbers 2:12]]
+[[Numbers 26:12]]
+[[Revelation 7:7]]

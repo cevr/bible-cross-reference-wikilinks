@@ -1,0 +1,5 @@
+[[Judges 4:4]]
+[[2 Kings 22:14]]
+[[Isaiah 7:13]]
+[[Hosea 1:3]]
+[[Hosea 1:4]]

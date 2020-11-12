@@ -1,0 +1,5 @@
+[[2 Chronicles 34:12]]
+[[Ezra 2:40]]
+[[Ezra 3:8]]
+[[Nehemiah 3:24]]
+[[Nehemiah 7:43]]

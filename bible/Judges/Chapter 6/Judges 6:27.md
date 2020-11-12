@@ -1,0 +1,8 @@
+[[Deuteronomy 4:1]]
+[[Psalms 112:5]]
+[[Matthew 16:24]]
+[[John 2:5]]
+[[John 3:2]]
+[[John 15:14]]
+[[Galatians 1:16]]
+[[1 Thessalonians 2:4]]

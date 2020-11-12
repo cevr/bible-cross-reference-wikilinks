@@ -1,0 +1,7 @@
+[[2 Samuel 12:10]]
+[[2 Samuel 19:11]]
+[[Job 20:5]]
+[[Psalms 37:35]]
+[[Proverbs 17:11]]
+[[Proverbs 28:17]]
+[[Ecclesiastes 10:8]]

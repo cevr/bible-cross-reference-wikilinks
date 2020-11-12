@@ -1,0 +1,8 @@
+[[Numbers 31:7]]
+[[Numbers 31:17]]
+[[1 Kings 11:15]]
+[[Psalms 2:6]]
+[[Psalms 21:8]]
+[[Psalms 110:1]]
+[[Luke 19:27]]
+[[2 Thessalonians 1:7]]

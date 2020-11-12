@@ -1,0 +1,7 @@
+[[Exodus 15:12]]
+[[Isaiah 5:25]]
+[[Isaiah 23:9]]
+[[Isaiah 23:11]]
+[[Jeremiah 25:15]]
+[[Zephaniah 3:6]]
+[[Zephaniah 3:8]]

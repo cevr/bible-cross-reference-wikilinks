@@ -1,0 +1,5 @@
+[[2 Samuel 20:4]]
+[[2 Samuel 20:6]]
+[[2 Samuel 20:13]]
+[[2 Samuel 20:21]]
+[[2 Kings 9:32]]

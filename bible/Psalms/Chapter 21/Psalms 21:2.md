@@ -1,0 +1,7 @@
+[[1 Samuel 2:1]]
+[[Psalms 2:8]]
+[[Psalms 20:4]]
+[[Psalms 37:4]]
+[[Psalms 92:11]]
+[[Isaiah 49:6]]
+[[Hebrews 7:25]]

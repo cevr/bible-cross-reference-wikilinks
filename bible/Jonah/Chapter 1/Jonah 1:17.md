@@ -1,0 +1,7 @@
+[[Genesis 1:21]]
+[[Psalms 104:25]]
+[[Jonah 4:6]]
+[[Habakkuk 3:2]]
+[[Matthew 12:40]]
+[[Matthew 16:4]]
+[[Luke 11:30]]

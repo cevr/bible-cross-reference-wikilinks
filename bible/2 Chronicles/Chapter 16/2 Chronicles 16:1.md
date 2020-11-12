@@ -1,0 +1,7 @@
+[[1 Kings 12:27]]
+[[1 Kings 15:16]]
+[[2 Chronicles 11:13]]
+[[2 Chronicles 15:5]]
+[[2 Chronicles 15:9]]
+[[2 Chronicles 15:19]]
+[[Jeremiah 40:1]]

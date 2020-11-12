@@ -1,0 +1,8 @@
+[[Deuteronomy 32:1]]
+[[Psalms 81:9]]
+[[Isaiah 1:2]]
+[[Jeremiah 22:29]]
+[[Revelation 2:7]]
+[[Revelation 2:11]]
+[[Revelation 2:14]]
+[[Revelation 2:29]]

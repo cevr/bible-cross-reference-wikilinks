@@ -1,0 +1,6 @@
+[[Exodus 31:14]]
+[[Leviticus 23:22]]
+[[Leviticus 23:32]]
+[[Nehemiah 7:3]]
+[[Jeremiah 17:19]]
+[[Jeremiah 17:21]]

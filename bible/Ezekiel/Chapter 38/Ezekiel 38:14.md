@@ -1,0 +1,7 @@
+[[Isaiah 4:1]]
+[[Jeremiah 23:6]]
+[[Ezekiel 37:28]]
+[[Ezekiel 38:8]]
+[[Ezekiel 38:11]]
+[[Zechariah 2:5]]
+[[Zechariah 2:8]]

@@ -1,0 +1,5 @@
+[[Exodus 40:1]]
+[[1 Kings 3:4]]
+[[1 Chronicles 16:39]]
+[[2 Chronicles 1:3]]
+[[2 Chronicles 1:13]]

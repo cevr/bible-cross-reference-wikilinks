@@ -1,0 +1,5 @@
+[[Deuteronomy 14:27]]
+[[2 Chronicles 11:13]]
+[[2 Chronicles 31:4]]
+[[Nehemiah 10:34]]
+[[1 Corinthians 9:10]]

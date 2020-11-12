@@ -1,0 +1,6 @@
+[[2 Kings 20:4]]
+[[1 Chronicles 17:3]]
+[[Jeremiah 1:2]]
+[[Jeremiah 27:2]]
+[[Jeremiah 29:30]]
+[[Daniel 9:2]]

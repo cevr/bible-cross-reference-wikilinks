@@ -1,0 +1,5 @@
+[[Genesis 42:9]]
+[[Genesis 42:14]]
+[[Genesis 42:19]]
+[[Genesis 42:30]]
+[[Matthew 15:23]]

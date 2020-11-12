@@ -1,0 +1,5 @@
+[[Psalms 11:4]]
+[[Isaiah 66:1]]
+[[Matthew 5:34]]
+[[Acts 7:49]]
+[[Revelation 4:2]]

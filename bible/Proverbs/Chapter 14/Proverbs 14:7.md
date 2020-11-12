@@ -1,0 +1,6 @@
+[[Proverbs 9:6]]
+[[Proverbs 13:20]]
+[[Proverbs 19:27]]
+[[Jeremiah 28:11]]
+[[1 Corinthians 5:11]]
+[[Ephesians 5:11]]

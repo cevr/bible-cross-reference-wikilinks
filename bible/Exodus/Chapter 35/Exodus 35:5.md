@@ -1,0 +1,7 @@
+[[Exodus 25:2]]
+[[Exodus 35:29]]
+[[Judges 5:9]]
+[[Psalms 110:3]]
+[[Mark 12:41]]
+[[2 Corinthians 8:11]]
+[[2 Corinthians 9:7]]

@@ -1,0 +1,5 @@
+[[Deuteronomy 1:30]]
+[[Deuteronomy 4:34]]
+[[Deuteronomy 7:19]]
+[[Psalms 78:43]]
+[[Psalms 105:26]]

@@ -1,0 +1,5 @@
+[[Numbers 32:18]]
+[[Joshua 22:2]]
+[[Joshua 22:4]]
+[[Joshua 22:8]]
+[[Joshua 22:9]]

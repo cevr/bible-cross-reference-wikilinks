@@ -1,0 +1,5 @@
+[[2 Samuel 8:12]]
+[[2 Samuel 20:6]]
+[[2 Samuel 22:38]]
+[[2 Samuel 23:18]]
+[[1 Chronicles 18:12]]

@@ -1,0 +1,7 @@
+[[Exodus 14:11]]
+[[Exodus 15:24]]
+[[Exodus 16:2]]
+[[Exodus 16:3]]
+[[Nehemiah 9:15]]
+[[Nehemiah 9:20]]
+[[Psalms 107:5]]

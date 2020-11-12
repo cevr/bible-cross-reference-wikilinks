@@ -1,0 +1,5 @@
+[[Genesis 38:16]]
+[[Genesis 38:18]]
+[[Leviticus 18:15]]
+[[Leviticus 18:23]]
+[[Deuteronomy 27:23]]

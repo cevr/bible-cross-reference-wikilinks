@@ -1,0 +1,8 @@
+[[Exodus 10:13]]
+[[Exodus 10:19]]
+[[Exodus 15:10]]
+[[Exodus 16:13]]
+[[Psalms 78:26]]
+[[Psalms 78:27]]
+[[Psalms 105:40]]
+[[Psalms 135:7]]

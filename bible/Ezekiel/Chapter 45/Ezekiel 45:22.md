@@ -1,0 +1,7 @@
+[[Leviticus 4:13]]
+[[Leviticus 4:14]]
+[[Leviticus 4:21]]
+[[Ezekiel 46:4]]
+[[Matthew 20:28]]
+[[Matthew 26:26]]
+[[2 Corinthians 5:21]]

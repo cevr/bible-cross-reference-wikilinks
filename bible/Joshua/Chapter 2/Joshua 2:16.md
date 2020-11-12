@@ -1,0 +1,5 @@
+[[Joshua 2:22]]
+[[1 Samuel 23:14]]
+[[1 Samuel 23:29]]
+[[Psalms 11:1]]
+[[James 2:25]]

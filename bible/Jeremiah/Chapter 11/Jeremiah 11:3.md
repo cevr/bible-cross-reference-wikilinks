@@ -1,0 +1,5 @@
+[[Deuteronomy 27:26]]
+[[Deuteronomy 28:15]]
+[[Deuteronomy 29:19]]
+[[Jeremiah 31:32]]
+[[Galatians 3:10]]

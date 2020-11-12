@@ -1,0 +1,6 @@
+[[Exodus 3:11]]
+[[Exodus 4:13]]
+[[1 Samuel 10:22]]
+[[1 Samuel 20:26]]
+[[Jeremiah 1:6]]
+[[Jeremiah 36:5]]

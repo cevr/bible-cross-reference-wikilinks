@@ -1,0 +1,7 @@
+[[Exodus 15:14]]
+[[Jeremiah 25:15]]
+[[Ezekiel 29:12]]
+[[Ezekiel 30:23]]
+[[Ezekiel 30:26]]
+[[Revelation 11:18]]
+[[Revelation 18:10]]

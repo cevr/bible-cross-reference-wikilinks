@@ -1,0 +1,5 @@
+[[Deuteronomy 2:4]]
+[[Deuteronomy 2:9]]
+[[Deuteronomy 2:19]]
+[[Deuteronomy 2:24]]
+[[Deuteronomy 3:1]]

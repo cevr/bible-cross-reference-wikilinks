@@ -1,0 +1,5 @@
+[[Genesis 32:30]]
+[[Genesis 32:32]]
+[[Judges 5:23]]
+[[1 Samuel 25:11]]
+[[1 Kings 12:25]]

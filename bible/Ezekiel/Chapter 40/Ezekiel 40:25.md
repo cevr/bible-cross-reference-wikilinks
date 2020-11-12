@@ -1,0 +1,8 @@
+[[1 Kings 7:4]]
+[[Ezekiel 40:16]]
+[[Ezekiel 40:21]]
+[[Ezekiel 40:29]]
+[[Ezekiel 40:33]]
+[[John 12:46]]
+[[1 Corinthians 13:12]]
+[[2 Peter 1:19]]

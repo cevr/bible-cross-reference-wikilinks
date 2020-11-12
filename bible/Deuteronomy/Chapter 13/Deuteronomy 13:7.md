@@ -1,0 +1,5 @@
+[[Numbers 25:4]]
+[[Deuteronomy 6:14]]
+[[Joshua 24:15]]
+[[2 Chronicles 22:3]]
+[[Jeremiah 44:15]]

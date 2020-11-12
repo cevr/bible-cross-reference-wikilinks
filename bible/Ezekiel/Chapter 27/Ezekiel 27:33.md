@@ -1,0 +1,8 @@
+[[Isaiah 23:3]]
+[[Ezekiel 27:3]]
+[[Ezekiel 27:12]]
+[[Ezekiel 28:4]]
+[[Ezekiel 28:16]]
+[[Revelation 18:3]]
+[[Revelation 18:12]]
+[[Revelation 18:19]]

@@ -1,0 +1,5 @@
+[[Joshua 22:8]]
+[[1 Samuel 30:4]]
+[[1 Samuel 30:24]]
+[[Psalms 68:12]]
+[[Psalms 68:13]]

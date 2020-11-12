@@ -1,0 +1,5 @@
+[[Job 34:22]]
+[[Isaiah 29:15]]
+[[Jeremiah 2:34]]
+[[Jeremiah 23:24]]
+[[Amos 9:2]]

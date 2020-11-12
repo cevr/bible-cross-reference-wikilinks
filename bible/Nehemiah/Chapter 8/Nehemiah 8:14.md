@@ -1,0 +1,6 @@
+[[Genesis 33:17]]
+[[Leviticus 23:34]]
+[[Leviticus 23:40]]
+[[Deuteronomy 16:13]]
+[[Zechariah 14:16]]
+[[John 7:2]]

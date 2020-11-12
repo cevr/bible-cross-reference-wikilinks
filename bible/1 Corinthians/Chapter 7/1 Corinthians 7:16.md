@@ -1,0 +1,7 @@
+[[Proverbs 11:30]]
+[[Luke 15:10]]
+[[Romans 11:14]]
+[[1 Corinthians 9:22]]
+[[1 Timothy 4:16]]
+[[James 5:19]]
+[[1 Peter 3:1]]

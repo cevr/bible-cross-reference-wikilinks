@@ -1,0 +1,7 @@
+[[Leviticus 1:3]]
+[[Leviticus 3:3]]
+[[Leviticus 3:5]]
+[[Leviticus 3:9]]
+[[Leviticus 3:14]]
+[[Numbers 28:19]]
+[[Numbers 28:31]]

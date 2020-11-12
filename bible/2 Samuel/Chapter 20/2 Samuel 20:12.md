@@ -1,0 +1,5 @@
+[[2 Samuel 2:23]]
+[[2 Samuel 17:25]]
+[[Psalms 9:16]]
+[[Psalms 55:23]]
+[[Proverbs 24:21]]

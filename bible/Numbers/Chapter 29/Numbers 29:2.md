@@ -1,0 +1,7 @@
+[[Leviticus 1:3]]
+[[Numbers 28:19]]
+[[Numbers 28:27]]
+[[Numbers 29:8]]
+[[Numbers 29:36]]
+[[Ezra 3:6]]
+[[Hebrews 10:10]]

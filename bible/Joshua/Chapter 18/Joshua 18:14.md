@@ -1,0 +1,5 @@
+[[Joshua 15:9]]
+[[Joshua 15:60]]
+[[1 Samuel 7:1]]
+[[2 Samuel 6:2]]
+[[1 Chronicles 13:5]]

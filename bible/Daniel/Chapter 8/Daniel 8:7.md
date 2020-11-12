@@ -1,0 +1,5 @@
+[[Leviticus 26:37]]
+[[Joshua 8:20]]
+[[Daniel 7:7]]
+[[Daniel 7:12]]
+[[Daniel 11:11]]

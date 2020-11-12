@@ -1,0 +1,5 @@
+[[Joshua 10:1]]
+[[Joshua 10:3]]
+[[Joshua 10:5]]
+[[Joshua 12:10]]
+[[Joshua 12:12]]

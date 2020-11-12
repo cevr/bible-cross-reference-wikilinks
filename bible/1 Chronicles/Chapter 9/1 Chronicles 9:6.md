@@ -1,0 +1,5 @@
+[[Genesis 38:30]]
+[[Genesis 46:12]]
+[[Numbers 26:20]]
+[[1 Chronicles 2:4]]
+[[1 Chronicles 2:6]]

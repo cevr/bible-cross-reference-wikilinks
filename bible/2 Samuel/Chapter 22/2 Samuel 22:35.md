@@ -1,0 +1,5 @@
+[[Psalms 18:33]]
+[[Psalms 46:9]]
+[[Psalms 144:1]]
+[[Ezekiel 39:3]]
+[[Ezekiel 39:9]]

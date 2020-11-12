@@ -1,0 +1,7 @@
+[[Judges 15:11]]
+[[2 Samuel 13:22]]
+[[Proverbs 20:22]]
+[[Proverbs 25:21]]
+[[Matthew 5:39]]
+[[Romans 12:17]]
+[[1 Thessalonians 5:15]]

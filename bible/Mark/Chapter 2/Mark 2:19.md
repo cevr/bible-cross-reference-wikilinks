@@ -1,0 +1,5 @@
+[[Genesis 29:22]]
+[[Judges 14:10]]
+[[Psalms 45:14]]
+[[Songs of Solomon 6:8]]
+[[Matthew 25:1]]

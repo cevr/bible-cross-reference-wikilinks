@@ -1,0 +1,8 @@
+[[Exodus 3:12]]
+[[Exodus 12:2]]
+[[Exodus 12:6]]
+[[Exodus 16:1]]
+[[Leviticus 23:16]]
+[[Numbers 1:1]]
+[[Numbers 10:12]]
+[[Numbers 33:15]]

@@ -1,0 +1,8 @@
+[[Judges 16:28]]
+[[Esther 3:14]]
+[[Psalms 37:14]]
+[[Psalms 68:23]]
+[[Psalms 92:10]]
+[[Psalms 149:6]]
+[[Luke 18:7]]
+[[Revelation 6:10]]

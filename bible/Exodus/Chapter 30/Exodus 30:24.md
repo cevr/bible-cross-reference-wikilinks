@@ -1,0 +1,6 @@
+[[Exodus 29:40]]
+[[Leviticus 19:36]]
+[[Numbers 3:47]]
+[[Numbers 15:5]]
+[[Psalms 45:8]]
+[[Ezekiel 45:12]]

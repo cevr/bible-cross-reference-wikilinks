@@ -1,0 +1,5 @@
+[[Numbers 13:24]]
+[[Numbers 32:9]]
+[[Deuteronomy 1:24]]
+[[Deuteronomy 8:8]]
+[[Judges 16:4]]

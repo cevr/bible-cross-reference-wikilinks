@@ -1,0 +1,7 @@
+[[2 Chronicles 6:6]]
+[[Psalms 96:8]]
+[[Psalms 100:4]]
+[[Psalms 118:19]]
+[[Psalms 122:3]]
+[[Psalms 135:2]]
+[[Psalms 150:1]]

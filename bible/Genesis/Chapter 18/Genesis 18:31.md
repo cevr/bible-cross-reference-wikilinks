@@ -1,0 +1,8 @@
+[[Genesis 18:27]]
+[[Matthew 7:7]]
+[[Matthew 7:11]]
+[[Luke 11:8]]
+[[Luke 18:1]]
+[[Ephesians 6:18]]
+[[Hebrews 4:16]]
+[[Hebrews 10:20]]

@@ -1,0 +1,7 @@
+[[Nehemiah 4:13]]
+[[Proverbs 14:15]]
+[[Ecclesiastes 9:10]]
+[[Matthew 10:16]]
+[[Luke 14:30]]
+[[John 9:4]]
+[[1 Timothy 4:15]]

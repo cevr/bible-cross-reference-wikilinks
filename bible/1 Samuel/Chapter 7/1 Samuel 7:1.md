@@ -1,0 +1,8 @@
+[[Joshua 18:14]]
+[[1 Samuel 6:21]]
+[[2 Samuel 6:2]]
+[[2 Samuel 6:3]]
+[[2 Samuel 6:4]]
+[[1 Chronicles 13:5]]
+[[Psalms 132:6]]
+[[Isaiah 52:11]]

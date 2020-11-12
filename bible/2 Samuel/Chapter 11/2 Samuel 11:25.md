@@ -1,0 +1,6 @@
+[[Joshua 7:8]]
+[[Judges 20:22]]
+[[1 Samuel 6:9]]
+[[2 Samuel 12:26]]
+[[Ecclesiastes 9:1]]
+[[Ecclesiastes 9:11]]

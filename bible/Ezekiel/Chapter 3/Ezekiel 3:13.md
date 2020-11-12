@@ -1,0 +1,6 @@
+[[2 Samuel 5:24]]
+[[1 Kings 7:30]]
+[[Ezekiel 1:15]]
+[[Ezekiel 1:24]]
+[[Ezekiel 10:5]]
+[[Ezekiel 10:16]]

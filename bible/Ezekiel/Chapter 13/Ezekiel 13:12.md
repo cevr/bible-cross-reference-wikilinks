@@ -1,0 +1,8 @@
+[[Deuteronomy 32:37]]
+[[Judges 9:38]]
+[[Judges 10:14]]
+[[2 Kings 3:13]]
+[[Jeremiah 2:28]]
+[[Jeremiah 29:31]]
+[[Jeremiah 37:19]]
+[[Lamentations 2:14]]

@@ -1,0 +1,6 @@
+[[Genesis 13:13]]
+[[Genesis 15:16]]
+[[Numbers 16:38]]
+[[Job 31:3]]
+[[Proverbs 10:29]]
+[[Proverbs 13:21]]

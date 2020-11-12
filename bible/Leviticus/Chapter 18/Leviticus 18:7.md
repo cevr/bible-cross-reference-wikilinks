@@ -1,0 +1,5 @@
+[[Genesis 19:32]]
+[[Leviticus 18:8]]
+[[Leviticus 20:11]]
+[[Leviticus 20:14]]
+[[Ezekiel 22:10]]

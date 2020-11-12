@@ -1,0 +1,5 @@
+[[Leviticus 11:1]]
+[[Leviticus 11:2]]
+[[Leviticus 11:11]]
+[[1 Kings 4:23]]
+[[Acts 10:14]]

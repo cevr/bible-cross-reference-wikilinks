@@ -1,0 +1,7 @@
+[[Psalms 9:16]]
+[[Psalms 73:17]]
+[[Psalms 137:7]]
+[[Ezekiel 25:14]]
+[[Amos 1:11]]
+[[Matthew 7:2]]
+[[James 2:13]]

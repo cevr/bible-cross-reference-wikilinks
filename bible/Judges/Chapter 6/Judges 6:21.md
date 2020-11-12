@@ -1,0 +1,5 @@
+[[Leviticus 9:24]]
+[[Judges 13:20]]
+[[1 Kings 18:38]]
+[[1 Chronicles 21:26]]
+[[2 Chronicles 7:1]]

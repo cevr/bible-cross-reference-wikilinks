@@ -1,0 +1,6 @@
+[[1 Chronicles 15:17]]
+[[1 Chronicles 16:4]]
+[[1 Chronicles 25:1]]
+[[2 Chronicles 8:14]]
+[[Ezra 3:4]]
+[[Psalms 145:2]]

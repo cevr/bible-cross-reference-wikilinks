@@ -1,0 +1,6 @@
+[[Psalms 103:20]]
+[[Isaiah 46:10]]
+[[Zechariah 1:10]]
+[[Zechariah 6:7]]
+[[Revelation 16:2]]
+[[Revelation 16:17]]

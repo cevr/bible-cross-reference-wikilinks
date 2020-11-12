@@ -1,0 +1,5 @@
+[[Numbers 19:15]]
+[[1 Corinthians 15:33]]
+[[2 Timothy 2:17]]
+[[Hebrews 12:15]]
+[[Revelation 18:4]]

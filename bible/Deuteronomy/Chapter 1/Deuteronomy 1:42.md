@@ -1,0 +1,8 @@
+[[Leviticus 26:17]]
+[[Numbers 14:41]]
+[[Joshua 7:8]]
+[[1 Samuel 4:2]]
+[[1 Samuel 4:10]]
+[[Isaiah 30:17]]
+[[Isaiah 59:1]]
+[[Hosea 9:12]]

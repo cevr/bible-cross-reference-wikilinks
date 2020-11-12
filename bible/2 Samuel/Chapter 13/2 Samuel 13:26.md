@@ -1,0 +1,6 @@
+[[2 Samuel 3:27]]
+[[2 Samuel 11:13]]
+[[2 Samuel 20:9]]
+[[Psalms 55:21]]
+[[Proverbs 26:24]]
+[[Jeremiah 9:7]]

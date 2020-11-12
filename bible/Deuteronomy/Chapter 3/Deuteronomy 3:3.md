@@ -1,0 +1,6 @@
+[[Numbers 21:35]]
+[[Deuteronomy 2:33]]
+[[Deuteronomy 29:6]]
+[[Joshua 13:12]]
+[[Joshua 13:30]]
+[[Psalms 136:20]]

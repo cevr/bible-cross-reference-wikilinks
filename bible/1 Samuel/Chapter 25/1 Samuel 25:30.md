@@ -1,0 +1,5 @@
+[[1 Samuel 13:14]]
+[[1 Samuel 15:28]]
+[[1 Samuel 23:17]]
+[[1 Samuel 24:21]]
+[[Psalms 89:20]]

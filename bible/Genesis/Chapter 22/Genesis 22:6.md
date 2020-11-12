@@ -1,0 +1,6 @@
+[[2 Kings 2:6]]
+[[Isaiah 53:6]]
+[[Matthew 8:17]]
+[[Luke 24:26]]
+[[John 19:17]]
+[[1 Peter 2:24]]

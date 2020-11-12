@@ -1,0 +1,5 @@
+[[Judges 8:30]]
+[[Judges 9:5]]
+[[Judges 10:4]]
+[[2 Samuel 5:12]]
+[[2 Chronicles 11:21]]

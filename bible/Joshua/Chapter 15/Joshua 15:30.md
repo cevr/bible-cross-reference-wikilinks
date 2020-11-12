@@ -1,0 +1,6 @@
+[[Numbers 14:45]]
+[[Numbers 21:3]]
+[[Deuteronomy 1:44]]
+[[Joshua 19:4]]
+[[Judges 1:17]]
+[[1 Samuel 30:30]]

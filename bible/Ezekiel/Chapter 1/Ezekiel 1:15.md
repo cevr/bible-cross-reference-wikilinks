@@ -1,0 +1,7 @@
+[[1 Kings 7:30]]
+[[Ezekiel 1:6]]
+[[Ezekiel 1:19]]
+[[Ezekiel 10:9]]
+[[Ezekiel 10:13]]
+[[Daniel 7:9]]
+[[Revelation 4:7]]

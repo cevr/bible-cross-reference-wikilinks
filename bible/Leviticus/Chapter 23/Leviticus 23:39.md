@@ -1,0 +1,5 @@
+[[Exodus 23:16]]
+[[Leviticus 23:24]]
+[[Leviticus 23:34]]
+[[Leviticus 23:36]]
+[[Deuteronomy 16:13]]

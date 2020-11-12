@@ -1,0 +1,8 @@
+[[Genesis 43:11]]
+[[Numbers 18:27]]
+[[Deuteronomy 6:5]]
+[[Proverbs 3:9]]
+[[Malachi 1:8]]
+[[Matthew 6:33]]
+[[Matthew 10:37]]
+[[Philippians 3:8]]

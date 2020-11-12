@@ -1,0 +1,8 @@
+[[Genesis 19:3]]
+[[Judges 13:15]]
+[[Amos 6:4]]
+[[Malachi 1:14]]
+[[Matthew 22:4]]
+[[Luke 15:23]]
+[[Luke 15:27]]
+[[Luke 15:30]]

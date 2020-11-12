@@ -1,0 +1,7 @@
+[[Proverbs 12:16]]
+[[Proverbs 12:23]]
+[[Proverbs 13:16]]
+[[Proverbs 15:2]]
+[[Proverbs 15:28]]
+[[Proverbs 29:11]]
+[[Ecclesiastes 10:3]]

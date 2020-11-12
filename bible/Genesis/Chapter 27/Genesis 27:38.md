@@ -1,0 +1,7 @@
+[[Genesis 27:34]]
+[[Genesis 27:36]]
+[[Genesis 49:28]]
+[[Proverbs 1:24]]
+[[Isaiah 32:10]]
+[[Isaiah 65:14]]
+[[Hebrews 12:17]]

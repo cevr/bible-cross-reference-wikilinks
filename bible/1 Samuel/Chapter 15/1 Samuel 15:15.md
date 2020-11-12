@@ -1,0 +1,8 @@
+[[Genesis 3:12]]
+[[Exodus 32:22]]
+[[1 Samuel 15:9]]
+[[1 Samuel 15:21]]
+[[Job 31:33]]
+[[Proverbs 28:13]]
+[[Matthew 2:8]]
+[[Luke 10:29]]

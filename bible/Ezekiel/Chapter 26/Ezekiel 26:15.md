@@ -1,0 +1,8 @@
+[[Isaiah 2:19]]
+[[Jeremiah 49:21]]
+[[Ezekiel 26:18]]
+[[Ezekiel 27:28]]
+[[Ezekiel 27:35]]
+[[Ezekiel 31:16]]
+[[Ezekiel 32:10]]
+[[Hebrews 12:26]]

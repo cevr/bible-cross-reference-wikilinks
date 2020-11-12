@@ -1,0 +1,8 @@
+[[Genesis 24:3]]
+[[Genesis 28:9]]
+[[Genesis 36:2]]
+[[Genesis 36:5]]
+[[Genesis 36:13]]
+[[Exodus 34:16]]
+[[1 Corinthians 7:2]]
+[[Hebrews 12:16]]

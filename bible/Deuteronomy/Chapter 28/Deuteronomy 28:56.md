@@ -1,0 +1,5 @@
+[[Deuteronomy 28:54]]
+[[Isaiah 3:16]]
+[[Isaiah 47:1]]
+[[Lamentations 4:3]]
+[[Lamentations 4:5]]

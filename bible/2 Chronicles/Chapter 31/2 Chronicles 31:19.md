@@ -1,0 +1,7 @@
+[[Leviticus 25:32]]
+[[Leviticus 25:34]]
+[[Numbers 35:2]]
+[[1 Chronicles 6:54]]
+[[1 Chronicles 6:60]]
+[[2 Chronicles 28:15]]
+[[2 Chronicles 31:12]]

@@ -1,0 +1,5 @@
+[[Numbers 32:39]]
+[[Joshua 12:4]]
+[[Joshua 17:5]]
+[[Judges 5:17]]
+[[Ezekiel 48:4]]

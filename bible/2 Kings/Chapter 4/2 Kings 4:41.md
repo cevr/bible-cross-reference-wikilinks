@@ -1,0 +1,7 @@
+[[Exodus 15:25]]
+[[2 Kings 2:21]]
+[[2 Kings 5:10]]
+[[2 Kings 6:6]]
+[[John 9:6]]
+[[Acts 28:5]]
+[[1 Corinthians 1:25]]

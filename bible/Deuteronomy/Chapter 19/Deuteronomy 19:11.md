@@ -1,0 +1,8 @@
+[[Genesis 9:5]]
+[[Genesis 9:6]]
+[[Exodus 21:12]]
+[[Exodus 21:14]]
+[[Numbers 35:16]]
+[[Numbers 35:24]]
+[[Deuteronomy 27:24]]
+[[Proverbs 28:17]]

@@ -1,0 +1,7 @@
+[[Leviticus 23:1]]
+[[Numbers 15:1]]
+[[Numbers 28:1]]
+[[Deuteronomy 16:1]]
+[[Ezekiel 45:24]]
+[[Ezekiel 46:5]]
+[[Ezekiel 46:7]]

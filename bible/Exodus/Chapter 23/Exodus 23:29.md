@@ -1,0 +1,6 @@
+[[Exodus 34:24]]
+[[Deuteronomy 7:22]]
+[[Joshua 15:63]]
+[[Joshua 16:10]]
+[[Joshua 17:12]]
+[[Judges 3:1]]

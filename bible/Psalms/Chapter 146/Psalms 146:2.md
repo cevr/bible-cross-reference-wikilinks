@@ -1,0 +1,7 @@
+[[Judges 5:3]]
+[[Psalms 63:4]]
+[[Psalms 71:14]]
+[[Psalms 104:33]]
+[[Psalms 145:1]]
+[[Psalms 145:2]]
+[[Revelation 7:9]]

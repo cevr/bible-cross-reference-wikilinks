@@ -1,0 +1,5 @@
+[[Genesis 19:28]]
+[[Joshua 8:20]]
+[[Songs of Solomon 3:6]]
+[[Joel 2:30]]
+[[Revelation 19:3]]

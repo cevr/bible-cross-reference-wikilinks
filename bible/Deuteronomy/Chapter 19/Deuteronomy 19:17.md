@@ -1,0 +1,6 @@
+[[Exodus 21:6]]
+[[Deuteronomy 16:18]]
+[[Deuteronomy 17:9]]
+[[Deuteronomy 21:5]]
+[[Malachi 2:7]]
+[[Matthew 23:2]]

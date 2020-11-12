@@ -1,0 +1,8 @@
+[[Leviticus 14:42]]
+[[Psalms 69:25]]
+[[Psalms 109:8]]
+[[Zechariah 5:3]]
+[[Luke 20:42]]
+[[Luke 24:44]]
+[[Acts 1:25]]
+[[Acts 13:33]]

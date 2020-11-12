@@ -1,0 +1,8 @@
+[[Exodus 29:9]]
+[[Exodus 29:29]]
+[[Exodus 29:30]]
+[[Leviticus 4:3]]
+[[Leviticus 4:5]]
+[[Leviticus 4:16]]
+[[Leviticus 16:4]]
+[[Numbers 20:26]]

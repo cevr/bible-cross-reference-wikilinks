@@ -1,0 +1,7 @@
+[[Job 8:16]]
+[[Psalms 1:3]]
+[[Psalms 92:10]]
+[[Isaiah 58:11]]
+[[Jeremiah 14:1]]
+[[Ezekiel 31:4]]
+[[Ezekiel 47:12]]

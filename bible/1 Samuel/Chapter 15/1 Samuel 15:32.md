@@ -1,0 +1,5 @@
+[[Joshua 10:22]]
+[[Judges 8:11]]
+[[Jeremiah 48:44]]
+[[1 Thessalonians 5:3]]
+[[Revelation 18:7]]

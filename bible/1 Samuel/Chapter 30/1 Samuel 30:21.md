@@ -1,0 +1,6 @@
+[[Judges 8:15]]
+[[1 Samuel 17:18]]
+[[1 Samuel 17:22]]
+[[1 Samuel 30:10]]
+[[Hebrews 13:1]]
+[[1 Peter 3:8]]

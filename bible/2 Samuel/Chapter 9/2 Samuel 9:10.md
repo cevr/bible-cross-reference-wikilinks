@@ -1,0 +1,6 @@
+[[2 Samuel 9:7]]
+[[2 Samuel 9:11]]
+[[2 Samuel 19:18]]
+[[2 Samuel 19:28]]
+[[2 Kings 25:29]]
+[[Luke 14:15]]

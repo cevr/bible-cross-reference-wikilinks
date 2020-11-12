@@ -1,0 +1,6 @@
+[[Joshua 15:16]]
+[[Joshua 15:31]]
+[[Joshua 15:57]]
+[[2 Samuel 21:6]]
+[[1 Chronicles 2:42]]
+[[Isaiah 10:31]]

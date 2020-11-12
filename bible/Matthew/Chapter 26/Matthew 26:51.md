@@ -1,0 +1,8 @@
+[[Matthew 26:35]]
+[[Mark 14:47]]
+[[Luke 9:55]]
+[[Luke 22:36]]
+[[Luke 22:49]]
+[[John 18:10]]
+[[John 18:36]]
+[[2 Corinthians 10:4]]

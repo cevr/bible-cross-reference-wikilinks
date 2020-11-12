@@ -1,0 +1,5 @@
+[[Proverbs 17:25]]
+[[1 Corinthians 5:1]]
+[[1 Corinthians 5:12]]
+[[Galatians 4:12]]
+[[Galatians 5:10]]

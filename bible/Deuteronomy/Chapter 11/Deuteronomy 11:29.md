@@ -1,0 +1,5 @@
+[[Deuteronomy 27:4]]
+[[Deuteronomy 27:12]]
+[[Deuteronomy 27:13]]
+[[Joshua 8:30]]
+[[Joshua 8:33]]

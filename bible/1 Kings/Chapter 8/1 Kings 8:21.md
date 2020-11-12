@@ -1,0 +1,7 @@
+[[Exodus 24:8]]
+[[Exodus 34:28]]
+[[Deuteronomy 9:9]]
+[[Deuteronomy 9:11]]
+[[Deuteronomy 31:26]]
+[[1 Kings 8:5]]
+[[1 Kings 8:9]]

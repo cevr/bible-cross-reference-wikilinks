@@ -1,0 +1,6 @@
+[[Matthew 13:55]]
+[[Mark 6:3]]
+[[John 7:3]]
+[[Acts 1:14]]
+[[1 Corinthians 9:5]]
+[[Galatians 1:19]]

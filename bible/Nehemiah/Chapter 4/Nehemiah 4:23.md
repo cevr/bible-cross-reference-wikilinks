@@ -1,0 +1,6 @@
+[[Judges 5:11]]
+[[Judges 9:48]]
+[[Nehemiah 5:16]]
+[[Nehemiah 7:2]]
+[[Joel 2:8]]
+[[1 Corinthians 15:10]]

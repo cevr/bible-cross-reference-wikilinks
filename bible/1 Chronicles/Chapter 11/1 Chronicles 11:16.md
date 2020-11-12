@@ -1,0 +1,8 @@
+[[1 Samuel 10:5]]
+[[1 Samuel 13:4]]
+[[1 Samuel 13:23]]
+[[1 Samuel 22:1]]
+[[1 Samuel 22:4]]
+[[1 Samuel 22:5]]
+[[1 Samuel 23:25]]
+[[Psalms 142:1]]

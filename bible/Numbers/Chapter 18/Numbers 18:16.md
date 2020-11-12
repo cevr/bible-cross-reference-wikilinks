@@ -1,0 +1,5 @@
+[[Exodus 30:13]]
+[[Leviticus 27:2]]
+[[Leviticus 27:25]]
+[[Numbers 3:47]]
+[[Ezekiel 45:12]]

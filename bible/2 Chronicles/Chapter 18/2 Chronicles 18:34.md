@@ -1,0 +1,6 @@
+[[Numbers 32:23]]
+[[2 Chronicles 18:16]]
+[[2 Chronicles 18:19]]
+[[2 Chronicles 18:27]]
+[[Proverbs 13:21]]
+[[Proverbs 28:17]]

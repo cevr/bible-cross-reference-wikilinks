@@ -1,0 +1,6 @@
+[[Isaiah 32:12]]
+[[Isaiah 38:14]]
+[[Isaiah 59:11]]
+[[Nahum 3:13]]
+[[Luke 23:27]]
+[[Luke 23:48]]

@@ -1,0 +1,8 @@
+[[Genesis 14:18]]
+[[Genesis 33:17]]
+[[Deuteronomy 23:4]]
+[[Judges 5:23]]
+[[1 Samuel 25:18]]
+[[2 Samuel 17:28]]
+[[Psalms 60:6]]
+[[3 John 1:6]]

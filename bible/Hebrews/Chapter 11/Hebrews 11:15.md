@@ -1,0 +1,5 @@
+[[Genesis 11:31]]
+[[Genesis 12:10]]
+[[Genesis 24:6]]
+[[Genesis 31:18]]
+[[Genesis 32:9]]

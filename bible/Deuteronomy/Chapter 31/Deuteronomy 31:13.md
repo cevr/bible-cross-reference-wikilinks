@@ -1,0 +1,7 @@
+[[Deuteronomy 6:7]]
+[[Deuteronomy 11:2]]
+[[Deuteronomy 32:47]]
+[[Psalms 78:4]]
+[[Psalms 78:5]]
+[[Proverbs 22:6]]
+[[Ephesians 6:4]]

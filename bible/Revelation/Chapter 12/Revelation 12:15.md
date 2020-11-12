@@ -1,0 +1,7 @@
+[[Psalms 18:4]]
+[[Psalms 65:7]]
+[[Psalms 93:3]]
+[[Isaiah 8:7]]
+[[Isaiah 28:2]]
+[[Isaiah 59:19]]
+[[Revelation 17:15]]

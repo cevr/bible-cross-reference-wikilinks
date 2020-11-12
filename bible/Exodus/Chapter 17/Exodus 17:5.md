@@ -1,0 +1,5 @@
+[[Exodus 7:19]]
+[[Exodus 7:20]]
+[[Numbers 20:8]]
+[[Ezekiel 2:6]]
+[[Acts 20:23]]

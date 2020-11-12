@@ -1,0 +1,8 @@
+[[Genesis 21:22]]
+[[Genesis 21:23]]
+[[1 Samuel 23:29]]
+[[2 Samuel 21:6]]
+[[2 Samuel 21:7]]
+[[Proverbs 26:24]]
+[[Matthew 10:16]]
+[[John 2:24]]

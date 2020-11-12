@@ -1,0 +1,8 @@
+[[Job 11:12]]
+[[Job 39:2]]
+[[Job 39:5]]
+[[Job 39:6]]
+[[Jeremiah 2:27]]
+[[Jeremiah 14:6]]
+[[Ezekiel 16:33]]
+[[Hosea 5:15]]

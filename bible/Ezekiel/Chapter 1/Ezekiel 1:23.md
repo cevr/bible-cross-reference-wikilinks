@@ -1,0 +1,5 @@
+[[Job 4:18]]
+[[Psalms 89:7]]
+[[Ezekiel 1:11]]
+[[Ezekiel 1:24]]
+[[Luke 17:10]]

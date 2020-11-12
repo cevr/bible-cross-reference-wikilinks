@@ -1,0 +1,8 @@
+[[Genesis 41:48]]
+[[Exodus 1:11]]
+[[2 Samuel 23:31]]
+[[2 Kings 18:15]]
+[[1 Chronicles 28:1]]
+[[2 Chronicles 16:2]]
+[[2 Chronicles 26:10]]
+[[Jeremiah 41:8]]

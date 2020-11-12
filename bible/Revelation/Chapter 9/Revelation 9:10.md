@@ -1,0 +1,5 @@
+[[2 Chronicles 10:11]]
+[[Luke 11:12]]
+[[Revelation 9:3]]
+[[Revelation 9:5]]
+[[Revelation 9:19]]

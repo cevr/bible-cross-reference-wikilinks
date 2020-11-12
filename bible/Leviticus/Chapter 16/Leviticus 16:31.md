@@ -1,0 +1,6 @@
+[[Exodus 31:15]]
+[[Exodus 35:2]]
+[[Leviticus 23:32]]
+[[Leviticus 25:4]]
+[[Isaiah 58:3]]
+[[Isaiah 58:5]]

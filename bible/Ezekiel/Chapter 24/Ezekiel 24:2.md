@@ -1,0 +1,6 @@
+[[2 Kings 25:1]]
+[[Isaiah 8:1]]
+[[Isaiah 30:8]]
+[[Jeremiah 39:1]]
+[[Jeremiah 52:4]]
+[[Habakkuk 2:2]]

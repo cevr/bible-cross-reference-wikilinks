@@ -1,0 +1,7 @@
+[[1 Kings 10:27]]
+[[2 Chronicles 1:12]]
+[[2 Chronicles 9:27]]
+[[Job 22:24]]
+[[Isaiah 9:10]]
+[[Isaiah 60:17]]
+[[Amos 7:14]]

@@ -1,0 +1,8 @@
+[[Genesis 19:27]]
+[[1 Kings 19:9]]
+[[1 Kings 19:13]]
+[[Isaiah 57:17]]
+[[Jeremiah 17:15]]
+[[Jeremiah 20:9]]
+[[Jonah 1:5]]
+[[Luke 19:41]]

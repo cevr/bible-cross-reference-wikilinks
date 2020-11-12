@@ -1,0 +1,5 @@
+[[Exodus 20:5]]
+[[Leviticus 26:39]]
+[[Isaiah 27:6]]
+[[Habakkuk 2:8]]
+[[Matthew 23:35]]

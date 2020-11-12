@@ -1,0 +1,7 @@
+[[Psalms 75:8]]
+[[Psalms 75:9]]
+[[Isaiah 51:17]]
+[[Ezekiel 22:14]]
+[[Ezekiel 23:3]]
+[[Ezekiel 23:8]]
+[[Revelation 18:7]]

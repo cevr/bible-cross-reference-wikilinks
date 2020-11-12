@@ -1,0 +1,5 @@
+[[Exodus 17:4]]
+[[Joshua 7:10]]
+[[2 Kings 20:11]]
+[[Ezra 10:4]]
+[[Nehemiah 9:9]]

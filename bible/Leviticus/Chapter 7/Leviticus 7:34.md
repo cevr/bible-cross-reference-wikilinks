@@ -1,0 +1,8 @@
+[[Exodus 29:9]]
+[[Exodus 29:27]]
+[[Leviticus 3:17]]
+[[Leviticus 7:30]]
+[[Leviticus 10:14]]
+[[Numbers 6:20]]
+[[Numbers 18:18]]
+[[Deuteronomy 18:3]]

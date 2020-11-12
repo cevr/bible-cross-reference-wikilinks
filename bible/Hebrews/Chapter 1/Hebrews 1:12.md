@@ -1,0 +1,6 @@
+[[Exodus 3:14]]
+[[Psalms 90:4]]
+[[Psalms 102:26]]
+[[John 8:58]]
+[[Hebrews 13:8]]
+[[James 1:17]]

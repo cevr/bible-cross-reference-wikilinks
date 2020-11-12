@@ -1,0 +1,6 @@
+[[Leviticus 3:1]]
+[[Leviticus 17:8]]
+[[1 Kings 8:62]]
+[[Ephesians 5:2]]
+[[Ephesians 5:12]]
+[[Hebrews 9:14]]

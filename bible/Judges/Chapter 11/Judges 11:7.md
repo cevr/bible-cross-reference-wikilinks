@@ -1,0 +1,7 @@
+[[Genesis 26:27]]
+[[Genesis 37:27]]
+[[Genesis 45:4]]
+[[Proverbs 17:17]]
+[[Isaiah 60:14]]
+[[Acts 7:9]]
+[[Revelation 3:9]]

@@ -1,0 +1,6 @@
+[[Genesis 24:2]]
+[[2 Kings 10:1]]
+[[2 Kings 11:12]]
+[[2 Kings 12:2]]
+[[Galatians 4:23]]
+[[Galatians 4:29]]

@@ -1,0 +1,6 @@
+[[2 Kings 18:20]]
+[[Job 16:3]]
+[[Jeremiah 43:2]]
+[[Zechariah 1:6]]
+[[Malachi 3:14]]
+[[Ephesians 5:6]]

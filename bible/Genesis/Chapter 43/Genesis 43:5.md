@@ -1,0 +1,5 @@
+[[Genesis 42:15]]
+[[Genesis 42:38]]
+[[Genesis 44:25]]
+[[Genesis 44:26]]
+[[Exodus 20:12]]

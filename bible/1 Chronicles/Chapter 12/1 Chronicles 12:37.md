@@ -1,0 +1,6 @@
+[[Numbers 32:33]]
+[[Deuteronomy 3:12]]
+[[Joshua 13:7]]
+[[Joshua 14:3]]
+[[Joshua 22:1]]
+[[1 Chronicles 5:1]]

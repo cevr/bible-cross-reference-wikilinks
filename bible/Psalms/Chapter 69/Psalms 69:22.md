@@ -1,0 +1,7 @@
+[[Deuteronomy 28:17]]
+[[Proverbs 1:32]]
+[[Isaiah 8:14]]
+[[Malachi 2:2]]
+[[Romans 11:8]]
+[[1 Thessalonians 5:3]]
+[[1 Peter 2:8]]

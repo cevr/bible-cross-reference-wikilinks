@@ -1,0 +1,5 @@
+[[Numbers 35:25]]
+[[2 Kings 6:4]]
+[[2 Kings 6:5]]
+[[Proverbs 27:12]]
+[[Isaiah 32:2]]

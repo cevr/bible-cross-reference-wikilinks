@@ -1,0 +1,7 @@
+[[Judges 3:13]]
+[[Judges 5:19]]
+[[Judges 6:3]]
+[[1 Chronicles 4:41]]
+[[2 Chronicles 26:6]]
+[[Psalms 106:42]]
+[[Psalms 106:43]]

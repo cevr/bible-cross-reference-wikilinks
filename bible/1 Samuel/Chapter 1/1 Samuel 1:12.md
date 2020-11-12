@@ -1,0 +1,6 @@
+[[Luke 11:8]]
+[[Luke 18:1]]
+[[Ephesians 6:18]]
+[[Colossians 4:2]]
+[[1 Thessalonians 5:17]]
+[[James 5:16]]

@@ -1,0 +1,6 @@
+[[Isaiah 14:19]]
+[[Isaiah 47:9]]
+[[Jeremiah 50:25]]
+[[Jeremiah 50:27]]
+[[Jeremiah 50:35]]
+[[Jeremiah 51:3]]

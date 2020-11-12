@@ -1,0 +1,6 @@
+[[Deuteronomy 33:9]]
+[[1 Kings 19:20]]
+[[Ecclesiastes 9:10]]
+[[Matthew 10:37]]
+[[Luke 14:18]]
+[[Luke 14:26]]

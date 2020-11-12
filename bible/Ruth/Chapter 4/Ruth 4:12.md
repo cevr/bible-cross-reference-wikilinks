@@ -1,0 +1,7 @@
+[[Genesis 38:29]]
+[[Genesis 46:12]]
+[[Numbers 26:20]]
+[[Ruth 4:18]]
+[[1 Samuel 2:20]]
+[[1 Chronicles 2:4]]
+[[Matthew 1:3]]

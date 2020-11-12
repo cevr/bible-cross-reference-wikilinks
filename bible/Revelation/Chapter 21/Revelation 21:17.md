@@ -1,0 +1,5 @@
+[[Deuteronomy 3:11]]
+[[Revelation 7:4]]
+[[Revelation 13:18]]
+[[Revelation 14:3]]
+[[Revelation 21:9]]

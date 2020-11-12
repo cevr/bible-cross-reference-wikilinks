@@ -1,0 +1,5 @@
+[[Exodus 13:18]]
+[[Exodus 14:2]]
+[[Exodus 15:9]]
+[[Numbers 33:7]]
+[[Joshua 24:6]]

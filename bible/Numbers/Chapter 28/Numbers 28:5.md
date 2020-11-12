@@ -1,0 +1,5 @@
+[[Exodus 16:36]]
+[[Exodus 29:38]]
+[[Leviticus 2:1]]
+[[Numbers 7:13]]
+[[Numbers 15:4]]

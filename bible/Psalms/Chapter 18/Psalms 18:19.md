@@ -1,0 +1,8 @@
+[[2 Samuel 22:18]]
+[[1 Kings 10:9]]
+[[Job 36:16]]
+[[Psalms 18:36]]
+[[Psalms 31:8]]
+[[Psalms 37:23]]
+[[Psalms 40:2]]
+[[Psalms 118:5]]

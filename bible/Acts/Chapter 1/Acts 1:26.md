@@ -1,0 +1,8 @@
+[[Leviticus 16:8]]
+[[Joshua 18:10]]
+[[1 Samuel 14:41]]
+[[1 Chronicles 24:5]]
+[[Proverbs 16:22]]
+[[Jonah 1:7]]
+[[Acts 2:14]]
+[[Acts 13:19]]

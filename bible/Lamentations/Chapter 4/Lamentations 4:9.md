@@ -1,0 +1,8 @@
+[[Leviticus 26:39]]
+[[Deuteronomy 28:51]]
+[[Isaiah 22:2]]
+[[Jeremiah 16:4]]
+[[Ezekiel 4:16]]
+[[Ezekiel 7:15]]
+[[Ezekiel 24:23]]
+[[Ezekiel 33:10]]

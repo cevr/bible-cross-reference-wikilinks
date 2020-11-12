@@ -1,0 +1,7 @@
+[[Exodus 25:15]]
+[[Exodus 25:26]]
+[[Exodus 26:29]]
+[[Exodus 27:7]]
+[[Exodus 37:5]]
+[[Exodus 38:7]]
+[[Exodus 39:16]]

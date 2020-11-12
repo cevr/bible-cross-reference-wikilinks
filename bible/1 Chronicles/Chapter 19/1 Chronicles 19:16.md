@@ -1,0 +1,5 @@
+[[2 Samuel 10:16]]
+[[Psalms 2:1]]
+[[Isaiah 8:9]]
+[[Micah 4:11]]
+[[Zechariah 14:1]]

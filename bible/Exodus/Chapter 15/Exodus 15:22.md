@@ -1,0 +1,6 @@
+[[Genesis 16:7]]
+[[Genesis 25:18]]
+[[Exodus 3:18]]
+[[Exodus 17:1]]
+[[Numbers 33:8]]
+[[1 Samuel 15:7]]

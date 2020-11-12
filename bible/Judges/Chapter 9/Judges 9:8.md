@@ -1,0 +1,5 @@
+[[Judges 8:22]]
+[[2 Kings 14:9]]
+[[Ezekiel 17:3]]
+[[Daniel 4:10]]
+[[1 Corinthians 12:15]]

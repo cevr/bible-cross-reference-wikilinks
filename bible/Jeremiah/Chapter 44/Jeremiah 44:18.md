@@ -1,0 +1,6 @@
+[[Numbers 11:5]]
+[[Job 21:14]]
+[[Psalms 73:9]]
+[[Jeremiah 40:12]]
+[[Malachi 3:13]]
+[[Malachi 3:14]]

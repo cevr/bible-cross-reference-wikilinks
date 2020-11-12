@@ -1,0 +1,7 @@
+[[Exodus 2:13]]
+[[Exodus 21:20]]
+[[Exodus 21:22]]
+[[Numbers 35:16]]
+[[Numbers 35:17]]
+[[Deuteronomy 25:11]]
+[[2 Samuel 14:6]]

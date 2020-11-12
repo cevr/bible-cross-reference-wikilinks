@@ -1,0 +1,6 @@
+[[Judges 16:23]]
+[[1 Samuel 17:51]]
+[[1 Samuel 17:54]]
+[[1 Samuel 31:4]]
+[[2 Samuel 1:20]]
+[[1 Chronicles 10:9]]

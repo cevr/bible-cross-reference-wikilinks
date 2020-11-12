@@ -1,0 +1,5 @@
+[[1 Samuel 29:4]]
+[[2 Samuel 14:17]]
+[[2 Samuel 14:20]]
+[[2 Samuel 19:27]]
+[[Galatians 4:14]]

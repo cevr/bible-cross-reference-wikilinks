@@ -1,0 +1,5 @@
+[[Ezra 7:26]]
+[[Nehemiah 10:32]]
+[[Nehemiah 13:15]]
+[[Romans 13:3]]
+[[1 Peter 2:14]]

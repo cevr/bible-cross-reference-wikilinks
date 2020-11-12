@@ -1,0 +1,6 @@
+[[Deuteronomy 7:2]]
+[[Deuteronomy 7:16]]
+[[Joshua 15:11]]
+[[Judges 4:17]]
+[[1 Chronicles 18:1]]
+[[Psalms 106:34]]

@@ -1,0 +1,5 @@
+[[Genesis 48:12]]
+[[1 Kings 17:24]]
+[[2 Kings 2:15]]
+[[2 Kings 4:27]]
+[[Hebrews 11:35]]

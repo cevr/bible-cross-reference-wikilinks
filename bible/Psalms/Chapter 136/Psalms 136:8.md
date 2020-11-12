@@ -1,0 +1,5 @@
+[[Genesis 1:16]]
+[[Psalms 74:16]]
+[[Psalms 148:3]]
+[[Jeremiah 31:35]]
+[[Matthew 5:45]]

@@ -1,0 +1,6 @@
+[[Isaiah 54:16]]
+[[Jeremiah 4:11]]
+[[Jeremiah 4:20]]
+[[Ezekiel 21:31]]
+[[Ezekiel 22:21]]
+[[Ezekiel 24:13]]

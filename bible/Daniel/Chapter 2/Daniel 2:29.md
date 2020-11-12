@@ -1,0 +1,5 @@
+[[Ezekiel 38:10]]
+[[Daniel 2:22]]
+[[Daniel 2:28]]
+[[Daniel 2:47]]
+[[Amos 4:13]]

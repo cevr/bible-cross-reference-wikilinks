@@ -1,0 +1,8 @@
+[[2 Kings 24:6]]
+[[2 Kings 24:12]]
+[[2 Kings 24:14]]
+[[2 Chronicles 36:9]]
+[[2 Chronicles 36:20]]
+[[Jeremiah 22:24]]
+[[Jeremiah 22:28]]
+[[Jeremiah 24:1]]

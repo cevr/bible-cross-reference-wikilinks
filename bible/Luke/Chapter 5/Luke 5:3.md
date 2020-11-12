@@ -1,0 +1,5 @@
+[[Matthew 4:18]]
+[[Matthew 13:1]]
+[[Mark 4:1]]
+[[John 1:41]]
+[[John 8:2]]

@@ -1,0 +1,5 @@
+[[Numbers 5:30]]
+[[Proverbs 6:34]]
+[[Songs of Solomon 8:6]]
+[[Zephaniah 3:8]]
+[[1 Corinthians 10:22]]

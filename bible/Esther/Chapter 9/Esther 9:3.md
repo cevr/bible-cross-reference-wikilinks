@@ -1,0 +1,8 @@
+[[Ezra 8:36]]
+[[Esther 3:2]]
+[[Esther 3:12]]
+[[Esther 8:5]]
+[[Esther 8:9]]
+[[Esther 8:17]]
+[[Daniel 3:2]]
+[[Daniel 6:1]]

@@ -1,0 +1,5 @@
+[[Genesis 41:23]]
+[[Ezekiel 17:10]]
+[[Ezekiel 19:12]]
+[[Hosea 13:15]]
+[[Jonah 4:8]]

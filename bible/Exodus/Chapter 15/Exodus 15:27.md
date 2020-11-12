@@ -1,0 +1,6 @@
+[[Numbers 33:9]]
+[[Psalms 23:2]]
+[[Isaiah 12:3]]
+[[Ezekiel 47:12]]
+[[Revelation 7:17]]
+[[Revelation 22:2]]

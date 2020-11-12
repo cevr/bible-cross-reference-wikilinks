@@ -1,0 +1,5 @@
+[[Numbers 19:2]]
+[[Deuteronomy 10:8]]
+[[Jeremiah 31:18]]
+[[Matthew 11:28]]
+[[Philippians 2:8]]

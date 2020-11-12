@@ -1,0 +1,5 @@
+[[Exodus 20:12]]
+[[Esther 2:10]]
+[[Proverbs 1:8]]
+[[John 2:5]]
+[[John 15:14]]

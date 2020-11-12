@@ -1,0 +1,6 @@
+[[Exodus 29:46]]
+[[Judges 2:1]]
+[[Judges 6:8]]
+[[Judges 6:9]]
+[[Nehemiah 9:9]]
+[[Nehemiah 9:27]]

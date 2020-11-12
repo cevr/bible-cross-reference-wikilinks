@@ -1,0 +1,5 @@
+[[Nehemiah 6:12]]
+[[Ezekiel 13:2]]
+[[Ezekiel 13:6]]
+[[Zechariah 10:2]]
+[[Matthew 24:23]]

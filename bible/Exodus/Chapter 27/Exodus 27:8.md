@@ -1,0 +1,8 @@
+[[Exodus 25:9]]
+[[Exodus 25:40]]
+[[Exodus 26:30]]
+[[1 Chronicles 28:11]]
+[[1 Chronicles 28:19]]
+[[Matthew 15:9]]
+[[Colossians 2:20]]
+[[Hebrews 8:5]]

@@ -1,0 +1,6 @@
+[[Leviticus 18:6]]
+[[Leviticus 18:7]]
+[[Deuteronomy 27:20]]
+[[Deuteronomy 27:23]]
+[[Amos 2:7]]
+[[1 Corinthians 5:1]]

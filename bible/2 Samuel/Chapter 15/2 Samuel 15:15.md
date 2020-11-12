@@ -1,0 +1,6 @@
+[[1 Samuel 14:7]]
+[[2 Samuel 9:11]]
+[[Proverbs 18:24]]
+[[Luke 22:28]]
+[[John 6:66]]
+[[John 15:14]]

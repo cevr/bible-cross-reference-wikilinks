@@ -1,0 +1,6 @@
+[[Deuteronomy 13:14]]
+[[Deuteronomy 20:10]]
+[[Joshua 22:13]]
+[[Judges 20:3]]
+[[Matthew 18:15]]
+[[Romans 12:18]]

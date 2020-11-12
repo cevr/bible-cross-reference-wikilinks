@@ -1,0 +1,8 @@
+[[Ezekiel 47:5]]
+[[Matthew 13:24]]
+[[Matthew 17:20]]
+[[Mark 4:30]]
+[[Luke 13:18]]
+[[Luke 17:6]]
+[[Luke 19:11]]
+[[Luke 20:9]]

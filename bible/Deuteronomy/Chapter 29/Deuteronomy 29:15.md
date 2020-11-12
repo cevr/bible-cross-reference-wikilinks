@@ -1,0 +1,5 @@
+[[Deuteronomy 5:3]]
+[[Jeremiah 32:39]]
+[[Jeremiah 50:5]]
+[[Acts 2:39]]
+[[1 Corinthians 7:14]]

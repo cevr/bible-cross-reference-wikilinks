@@ -1,0 +1,6 @@
+[[Judges 16:23]]
+[[1 Chronicles 10:10]]
+[[Daniel 5:2]]
+[[Daniel 5:23]]
+[[Habakkuk 1:11]]
+[[Habakkuk 1:16]]

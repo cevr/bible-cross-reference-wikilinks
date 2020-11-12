@@ -1,0 +1,5 @@
+[[Numbers 31:9]]
+[[Deuteronomy 3:7]]
+[[Deuteronomy 20:14]]
+[[Joshua 8:2]]
+[[Joshua 8:27]]

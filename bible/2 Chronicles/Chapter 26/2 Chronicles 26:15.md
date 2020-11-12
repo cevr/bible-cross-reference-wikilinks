@@ -1,0 +1,5 @@
+[[Exodus 31:4]]
+[[Deuteronomy 20:20]]
+[[2 Chronicles 2:7]]
+[[2 Chronicles 2:14]]
+[[Matthew 4:24]]

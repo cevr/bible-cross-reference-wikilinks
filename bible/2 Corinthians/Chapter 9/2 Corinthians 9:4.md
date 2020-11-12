@@ -1,0 +1,5 @@
+[[Romans 15:26]]
+[[2 Corinthians 8:1]]
+[[2 Corinthians 8:24]]
+[[2 Corinthians 9:2]]
+[[2 Corinthians 11:17]]

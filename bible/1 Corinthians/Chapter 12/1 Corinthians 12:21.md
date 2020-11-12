@@ -1,0 +1,6 @@
+[[Numbers 10:31]]
+[[1 Samuel 25:32]]
+[[Ezra 10:1]]
+[[Nehemiah 4:16]]
+[[Job 29:11]]
+[[1 Corinthians 12:17]]

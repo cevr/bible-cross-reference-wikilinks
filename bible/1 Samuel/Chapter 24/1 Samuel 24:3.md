@@ -1,0 +1,6 @@
+[[Judges 3:24]]
+[[1 Samuel 13:2]]
+[[1 Samuel 26:2]]
+[[Psalms 57:1]]
+[[Psalms 141:6]]
+[[Psalms 142:1]]

@@ -1,0 +1,6 @@
+[[Leviticus 6:4]]
+[[1 Samuel 12:3]]
+[[2 Samuel 12:6]]
+[[Nehemiah 5:3]]
+[[Isaiah 58:6]]
+[[Luke 3:8]]

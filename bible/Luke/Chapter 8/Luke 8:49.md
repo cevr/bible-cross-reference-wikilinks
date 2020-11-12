@@ -1,0 +1,6 @@
+[[Isaiah 7:12]]
+[[Matthew 9:23]]
+[[Mark 5:35]]
+[[Luke 7:6]]
+[[Luke 8:41]]
+[[Luke 11:7]]

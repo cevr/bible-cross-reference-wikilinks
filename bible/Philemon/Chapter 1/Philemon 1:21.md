@@ -1,0 +1,5 @@
+[[2 Corinthians 2:3]]
+[[2 Corinthians 7:16]]
+[[2 Corinthians 8:22]]
+[[Galatians 5:10]]
+[[2 Thessalonians 3:4]]

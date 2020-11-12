@@ -1,0 +1,5 @@
+[[Exodus 1:2]]
+[[Numbers 1:4]]
+[[Numbers 10:14]]
+[[Numbers 13:4]]
+[[1 Corinthians 2:1]]

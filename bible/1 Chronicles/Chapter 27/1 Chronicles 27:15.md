@@ -1,0 +1,5 @@
+[[Joshua 15:17]]
+[[Judges 3:9]]
+[[2 Samuel 23:29]]
+[[1 Chronicles 4:13]]
+[[1 Chronicles 11:30]]

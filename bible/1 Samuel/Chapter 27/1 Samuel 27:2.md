@@ -1,0 +1,5 @@
+[[1 Samuel 21:10]]
+[[1 Samuel 21:11]]
+[[1 Samuel 25:13]]
+[[1 Samuel 30:8]]
+[[1 Kings 2:39]]

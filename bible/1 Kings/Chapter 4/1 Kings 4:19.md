@@ -1,0 +1,5 @@
+[[Numbers 21:21]]
+[[Deuteronomy 2:26]]
+[[Joshua 12:1]]
+[[Joshua 12:6]]
+[[Joshua 13:9]]

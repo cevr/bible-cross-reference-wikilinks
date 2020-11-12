@@ -1,0 +1,6 @@
+[[Daniel 8:16]]
+[[Daniel 9:21]]
+[[Matthew 18:10]]
+[[Luke 1:26]]
+[[Luke 2:10]]
+[[Hebrews 4:14]]

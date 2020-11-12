@@ -1,0 +1,7 @@
+[[Genesis 31:48]]
+[[Exodus 25:40]]
+[[Joshua 24:27]]
+[[2 Kings 16:10]]
+[[Isaiah 19:19]]
+[[Ezekiel 43:10]]
+[[Hebrews 8:5]]

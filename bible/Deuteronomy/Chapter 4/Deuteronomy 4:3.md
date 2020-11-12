@@ -1,0 +1,8 @@
+[[Numbers 25:1]]
+[[Numbers 25:3]]
+[[Numbers 26:64]]
+[[Numbers 31:16]]
+[[Deuteronomy 11:7]]
+[[Joshua 22:17]]
+[[Psalms 106:28]]
+[[Hosea 9:10]]

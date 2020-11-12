@@ -1,0 +1,8 @@
+[[Psalms 89:35]]
+[[Psalms 89:36]]
+[[Isaiah 37:29]]
+[[Jeremiah 16:16]]
+[[Ezekiel 34:16]]
+[[Ezekiel 39:4]]
+[[Amos 6:8]]
+[[Habakkuk 1:15]]

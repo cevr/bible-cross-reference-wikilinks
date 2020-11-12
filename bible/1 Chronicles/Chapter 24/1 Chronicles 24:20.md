@@ -1,0 +1,5 @@
+[[1 Chronicles 6:18]]
+[[1 Chronicles 23:12]]
+[[1 Chronicles 23:16]]
+[[1 Chronicles 26:24]]
+[[2 Chronicles 31:17]]

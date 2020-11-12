@@ -1,0 +1,8 @@
+[[Leviticus 7:21]]
+[[Leviticus 12:1]]
+[[Leviticus 12:2]]
+[[Leviticus 13:3]]
+[[Leviticus 15:1]]
+[[Leviticus 15:2]]
+[[Leviticus 22:4]]
+[[Numbers 19:11]]

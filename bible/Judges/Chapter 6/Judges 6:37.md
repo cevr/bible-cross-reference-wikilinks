@@ -1,0 +1,8 @@
+[[Genesis 24:14]]
+[[Deuteronomy 32:2]]
+[[Psalms 72:6]]
+[[Psalms 147:19]]
+[[Hosea 6:3]]
+[[Hosea 14:5]]
+[[Matthew 10:5]]
+[[Matthew 15:24]]

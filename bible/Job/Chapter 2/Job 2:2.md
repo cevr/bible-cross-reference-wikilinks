@@ -1,0 +1,5 @@
+[[Genesis 16:8]]
+[[Job 1:7]]
+[[John 14:30]]
+[[2 Corinthians 4:4]]
+[[1 Peter 5:8]]

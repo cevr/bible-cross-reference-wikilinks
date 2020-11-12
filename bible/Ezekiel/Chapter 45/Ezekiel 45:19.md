@@ -1,0 +1,5 @@
+[[Leviticus 16:16]]
+[[Leviticus 16:18]]
+[[Ezekiel 43:14]]
+[[Ezekiel 43:17]]
+[[Ezekiel 43:20]]

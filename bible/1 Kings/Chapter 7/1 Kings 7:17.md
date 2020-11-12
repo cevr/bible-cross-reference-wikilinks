@@ -1,0 +1,5 @@
+[[Exodus 28:14]]
+[[Exodus 28:22]]
+[[Exodus 28:24]]
+[[Exodus 39:15]]
+[[2 Kings 25:17]]

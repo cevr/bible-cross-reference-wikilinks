@@ -1,0 +1,8 @@
+[[2 Chronicles 36:17]]
+[[Isaiah 29:2]]
+[[Jeremiah 19:7]]
+[[Jeremiah 20:5]]
+[[Jeremiah 21:10]]
+[[Jeremiah 32:3]]
+[[Jeremiah 32:24]]
+[[Jeremiah 32:36]]

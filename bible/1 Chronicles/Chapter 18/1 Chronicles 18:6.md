@@ -1,0 +1,6 @@
+[[1 Samuel 18:14]]
+[[1 Chronicles 17:8]]
+[[1 Chronicles 18:2]]
+[[Psalms 18:43]]
+[[Psalms 121:8]]
+[[Proverbs 21:31]]

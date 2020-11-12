@@ -1,0 +1,5 @@
+[[Matthew 10:10]]
+[[Luke 10:7]]
+[[1 Corinthians 9:4]]
+[[Galatians 6:6]]
+[[1 Timothy 5:17]]

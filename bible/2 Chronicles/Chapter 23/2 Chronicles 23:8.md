@@ -1,0 +1,5 @@
+[[2 Kings 11:9]]
+[[1 Chronicles 24:1]]
+[[1 Chronicles 24:24]]
+[[1 Chronicles 25:25]]
+[[1 Chronicles 26:26]]

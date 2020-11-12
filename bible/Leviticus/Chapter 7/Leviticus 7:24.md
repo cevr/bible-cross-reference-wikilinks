@@ -1,0 +1,7 @@
+[[Exodus 22:30]]
+[[Exodus 22:31]]
+[[Leviticus 17:15]]
+[[Leviticus 22:8]]
+[[Deuteronomy 14:21]]
+[[Ezekiel 4:14]]
+[[Ezekiel 44:31]]

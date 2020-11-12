@@ -1,0 +1,6 @@
+[[Romans 15:28]]
+[[Philippians 1:25]]
+[[Philippians 2:19]]
+[[Philemon 1:22]]
+[[2 John 1:12]]
+[[3 John 1:14]]

@@ -1,0 +1,8 @@
+[[Joshua 24:15]]
+[[Matthew 6:24]]
+[[Matthew 20:4]]
+[[John 8:34]]
+[[Romans 6:12]]
+[[Romans 6:17]]
+[[Romans 6:19]]
+[[2 Peter 2:19]]

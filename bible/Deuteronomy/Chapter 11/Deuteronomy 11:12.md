@@ -1,0 +1,7 @@
+[[1 Kings 9:3]]
+[[Ezra 5:5]]
+[[Psalms 33:18]]
+[[Psalms 34:15]]
+[[Psalms 65:11]]
+[[Isaiah 36:17]]
+[[Jeremiah 24:6]]

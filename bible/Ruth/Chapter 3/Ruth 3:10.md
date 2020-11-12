@@ -1,0 +1,6 @@
+[[Ruth 1:8]]
+[[Ruth 2:4]]
+[[Ruth 2:11]]
+[[Ruth 2:20]]
+[[1 Samuel 15:13]]
+[[1 Corinthians 13:4]]

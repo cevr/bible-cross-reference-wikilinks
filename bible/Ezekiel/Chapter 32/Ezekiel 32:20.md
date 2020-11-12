@@ -1,0 +1,6 @@
+[[Psalms 28:3]]
+[[Proverbs 24:11]]
+[[Jeremiah 22:19]]
+[[Ezekiel 29:8]]
+[[Ezekiel 32:23]]
+[[Ezekiel 32:29]]

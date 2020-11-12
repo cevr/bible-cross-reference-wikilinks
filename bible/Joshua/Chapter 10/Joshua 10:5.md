@@ -1,0 +1,6 @@
+[[Genesis 15:16]]
+[[Numbers 13:29]]
+[[Joshua 9:1]]
+[[Joshua 9:2]]
+[[Joshua 10:6]]
+[[Isaiah 8:9]]

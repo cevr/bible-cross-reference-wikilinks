@@ -1,0 +1,6 @@
+[[1 Samuel 4:5]]
+[[1 Samuel 28:14]]
+[[1 Kings 1:40]]
+[[1 Kings 14:6]]
+[[Ezra 3:13]]
+[[Daniel 5:26]]

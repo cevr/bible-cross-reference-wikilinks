@@ -1,0 +1,7 @@
+[[Genesis 37:36]]
+[[2 Samuel 20:16]]
+[[Ecclesiastes 9:13]]
+[[Jeremiah 39:9]]
+[[Jeremiah 52:12]]
+[[Jeremiah 52:14]]
+[[Daniel 2:24]]

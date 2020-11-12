@@ -1,0 +1,5 @@
+[[Genesis 28:20]]
+[[Numbers 30:2]]
+[[1 Samuel 1:11]]
+[[Ecclesiastes 5:1]]
+[[Ecclesiastes 5:4]]

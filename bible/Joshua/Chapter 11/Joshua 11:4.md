@@ -1,0 +1,7 @@
+[[Genesis 22:17]]
+[[Genesis 32:12]]
+[[Judges 7:12]]
+[[1 Samuel 13:5]]
+[[2 Samuel 17:11]]
+[[1 Kings 4:20]]
+[[Psalms 20:8]]

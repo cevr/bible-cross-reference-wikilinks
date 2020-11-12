@@ -1,0 +1,6 @@
+[[Exodus 30:16]]
+[[Leviticus 24:5]]
+[[Numbers 28:1]]
+[[2 Chronicles 2:4]]
+[[2 Chronicles 24:5]]
+[[Hebrews 10:11]]

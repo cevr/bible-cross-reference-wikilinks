@@ -1,0 +1,8 @@
+[[2 Chronicles 23:21]]
+[[2 Chronicles 24:25]]
+[[2 Chronicles 28:26]]
+[[2 Chronicles 28:27]]
+[[2 Chronicles 33:20]]
+[[Proverbs 10:7]]
+[[Jeremiah 22:18]]
+[[Jeremiah 22:28]]

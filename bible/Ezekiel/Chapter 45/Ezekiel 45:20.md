@@ -1,0 +1,7 @@
+[[Leviticus 4:27]]
+[[Leviticus 16:20]]
+[[Psalms 19:12]]
+[[Ezekiel 45:15]]
+[[Ezekiel 45:18]]
+[[Romans 16:18]]
+[[Hebrews 5:2]]

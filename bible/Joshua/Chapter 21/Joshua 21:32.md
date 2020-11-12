@@ -1,0 +1,5 @@
+[[Joshua 19:35]]
+[[Joshua 19:37]]
+[[Joshua 20:7]]
+[[Judges 4:6]]
+[[1 Chronicles 6:76]]

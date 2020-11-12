@@ -1,0 +1,8 @@
+[[Matthew 17:20]]
+[[Matthew 21:21]]
+[[Mark 9:23]]
+[[Mark 11:22]]
+[[Luke 17:6]]
+[[Acts 3:16]]
+[[Romans 4:19]]
+[[Philippians 4:13]]

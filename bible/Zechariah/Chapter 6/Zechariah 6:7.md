@@ -1,0 +1,7 @@
+[[Genesis 13:17]]
+[[2 Chronicles 16:9]]
+[[Job 1:6]]
+[[Job 2:1]]
+[[Daniel 7:19]]
+[[Daniel 7:24]]
+[[Zechariah 1:10]]

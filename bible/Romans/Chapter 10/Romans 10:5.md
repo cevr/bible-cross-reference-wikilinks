@@ -1,0 +1,8 @@
+[[Leviticus 18:5]]
+[[Nehemiah 9:29]]
+[[Ezekiel 20:11]]
+[[Ezekiel 20:13]]
+[[Ezekiel 20:21]]
+[[Luke 10:27]]
+[[Romans 7:10]]
+[[Galatians 3:12]]

@@ -1,0 +1,6 @@
+[[1 Kings 22:13]]
+[[Matthew 17:27]]
+[[1 Corinthians 10:32]]
+[[2 Corinthians 6:3]]
+[[Galatians 2:5]]
+[[James 3:17]]

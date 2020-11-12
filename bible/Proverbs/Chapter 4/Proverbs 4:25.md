@@ -1,0 +1,7 @@
+[[Job 31:1]]
+[[Psalms 119:37]]
+[[Proverbs 15:21]]
+[[Proverbs 21:29]]
+[[Proverbs 23:5]]
+[[Proverbs 23:33]]
+[[Matthew 6:22]]

@@ -1,0 +1,5 @@
+[[Exodus 27:9]]
+[[1 Kings 6:36]]
+[[1 Kings 7:12]]
+[[2 Kings 21:5]]
+[[Ezekiel 42:15]]

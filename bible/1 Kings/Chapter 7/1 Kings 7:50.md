@@ -1,0 +1,7 @@
+[[Exodus 25:29]]
+[[Exodus 25:38]]
+[[Exodus 27:3]]
+[[Leviticus 16:12]]
+[[Numbers 7:86]]
+[[2 Chronicles 4:21]]
+[[Zechariah 14:20]]

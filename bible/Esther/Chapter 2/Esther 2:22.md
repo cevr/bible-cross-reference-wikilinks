@@ -1,0 +1,5 @@
+[[Esther 6:1]]
+[[Ecclesiastes 10:20]]
+[[Acts 23:12]]
+[[Romans 11:33]]
+[[Philippians 2:4]]

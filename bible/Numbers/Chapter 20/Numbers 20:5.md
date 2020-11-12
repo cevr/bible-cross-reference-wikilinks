@@ -1,0 +1,7 @@
+[[Numbers 16:14]]
+[[Numbers 27:14]]
+[[Deuteronomy 8:15]]
+[[Nehemiah 9:21]]
+[[Jeremiah 2:2]]
+[[Jeremiah 2:6]]
+[[Ezekiel 20:36]]

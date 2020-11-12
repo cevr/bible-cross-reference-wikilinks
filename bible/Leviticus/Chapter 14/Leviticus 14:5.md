@@ -1,0 +1,6 @@
+[[Leviticus 14:50]]
+[[Numbers 5:17]]
+[[2 Corinthians 4:7]]
+[[2 Corinthians 5:1]]
+[[2 Corinthians 13:4]]
+[[Hebrews 2:14]]

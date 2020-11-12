@@ -1,0 +1,7 @@
+[[Genesis 38:8]]
+[[Leviticus 25:25]]
+[[Deuteronomy 25:8]]
+[[Deuteronomy 25:9]]
+[[Ruth 2:20]]
+[[Ruth 3:9]]
+[[Ruth 3:13]]

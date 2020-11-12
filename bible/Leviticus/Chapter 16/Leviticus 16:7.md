@@ -1,0 +1,5 @@
+[[Leviticus 1:3]]
+[[Leviticus 4:4]]
+[[Leviticus 12:6]]
+[[Matthew 16:21]]
+[[Romans 12:1]]

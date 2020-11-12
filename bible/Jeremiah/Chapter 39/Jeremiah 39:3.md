@@ -1,0 +1,5 @@
+[[2 Kings 17:30]]
+[[Jeremiah 1:15]]
+[[Jeremiah 21:4]]
+[[Jeremiah 38:17]]
+[[Jeremiah 39:13]]

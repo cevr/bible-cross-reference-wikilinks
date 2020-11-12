@@ -1,0 +1,7 @@
+[[Genesis 41:46]]
+[[1 Samuel 10:5]]
+[[1 Samuel 16:21]]
+[[1 Samuel 18:10]]
+[[1 Samuel 19:9]]
+[[1 Kings 10:8]]
+[[2 Kings 3:15]]

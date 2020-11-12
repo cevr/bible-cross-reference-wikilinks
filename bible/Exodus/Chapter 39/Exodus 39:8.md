@@ -1,0 +1,8 @@
+[[Exodus 25:7]]
+[[Exodus 28:4]]
+[[Exodus 28:13]]
+[[Exodus 28:15]]
+[[Leviticus 8:8]]
+[[Psalms 89:28]]
+[[Isaiah 59:17]]
+[[Ephesians 6:14]]

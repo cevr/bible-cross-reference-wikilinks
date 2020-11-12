@@ -1,0 +1,6 @@
+[[Judges 17:5]]
+[[Judges 18:3]]
+[[1 Samuel 14:28]]
+[[Job 3:2]]
+[[Proverbs 19:27]]
+[[Isaiah 8:19]]

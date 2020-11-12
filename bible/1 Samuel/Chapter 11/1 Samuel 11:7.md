@@ -1,0 +1,8 @@
+[[Genesis 35:5]]
+[[Judges 19:29]]
+[[Judges 20:1]]
+[[Judges 21:5]]
+[[2 Chronicles 14:14]]
+[[2 Chronicles 17:10]]
+[[2 Chronicles 19:7]]
+[[Isaiah 8:13]]

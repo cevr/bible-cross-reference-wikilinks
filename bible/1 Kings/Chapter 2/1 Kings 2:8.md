@@ -1,0 +1,8 @@
+[[Exodus 22:27]]
+[[2 Samuel 16:5]]
+[[2 Samuel 16:8]]
+[[2 Samuel 19:16]]
+[[2 Samuel 19:17]]
+[[2 Samuel 19:24]]
+[[1 Kings 2:36]]
+[[Jeremiah 4:2]]

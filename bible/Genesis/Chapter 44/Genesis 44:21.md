@@ -1,0 +1,6 @@
+[[Genesis 42:15]]
+[[Genesis 42:20]]
+[[Genesis 43:29]]
+[[Jeremiah 24:6]]
+[[Jeremiah 40:4]]
+[[Amos 9:4]]

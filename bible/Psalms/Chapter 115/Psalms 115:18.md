@@ -1,0 +1,6 @@
+[[Psalms 113:2]]
+[[Psalms 118:17]]
+[[Psalms 145:2]]
+[[Psalms 145:21]]
+[[Daniel 2:20]]
+[[Revelation 5:13]]

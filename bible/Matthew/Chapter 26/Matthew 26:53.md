@@ -1,0 +1,8 @@
+[[2 Kings 6:17]]
+[[Daniel 7:10]]
+[[Matthew 4:11]]
+[[Matthew 10:1]]
+[[Matthew 25:31]]
+[[Luke 8:30]]
+[[2 Thessalonians 1:7]]
+[[Jude 1:14]]

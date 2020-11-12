@@ -1,0 +1,5 @@
+[[Psalms 104:17]]
+[[Ezekiel 17:23]]
+[[Daniel 4:12]]
+[[Daniel 4:21]]
+[[Matthew 13:32]]

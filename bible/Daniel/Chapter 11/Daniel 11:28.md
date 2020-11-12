@@ -1,0 +1,5 @@
+[[Daniel 8:12]]
+[[Daniel 8:24]]
+[[Daniel 11:22]]
+[[Daniel 11:30]]
+[[Acts 3:25]]

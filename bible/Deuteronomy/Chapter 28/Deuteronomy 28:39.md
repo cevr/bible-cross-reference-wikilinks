@@ -1,0 +1,7 @@
+[[Job 15:33]]
+[[Isaiah 5:10]]
+[[Isaiah 17:10]]
+[[Joel 1:4]]
+[[Joel 2:2]]
+[[Jonah 4:7]]
+[[Habakkuk 3:17]]

@@ -1,0 +1,6 @@
+[[Leviticus 26:22]]
+[[1 Kings 20:36]]
+[[2 Kings 17:25]]
+[[Isaiah 51:19]]
+[[Jeremiah 15:3]]
+[[Ezekiel 5:17]]

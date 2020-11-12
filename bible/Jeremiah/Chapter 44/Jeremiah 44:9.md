@@ -1,0 +1,8 @@
+[[Deuteronomy 9:7]]
+[[Joshua 22:17]]
+[[Ezra 9:7]]
+[[Ezra 9:14]]
+[[Jeremiah 7:17]]
+[[Jeremiah 44:15]]
+[[Jeremiah 44:21]]
+[[Daniel 9:5]]

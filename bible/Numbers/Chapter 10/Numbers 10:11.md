@@ -1,0 +1,7 @@
+[[Exodus 40:2]]
+[[Exodus 40:17]]
+[[Numbers 1:1]]
+[[Numbers 9:1]]
+[[Numbers 9:5]]
+[[Numbers 9:11]]
+[[Numbers 9:17]]

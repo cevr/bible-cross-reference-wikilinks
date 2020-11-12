@@ -1,0 +1,5 @@
+[[Leviticus 3:4]]
+[[Leviticus 7:15]]
+[[Deuteronomy 12:5]]
+[[Deuteronomy 12:17]]
+[[Deuteronomy 16:11]]

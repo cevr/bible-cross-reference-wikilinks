@@ -1,0 +1,7 @@
+[[Deuteronomy 31:19]]
+[[1 Kings 8:9]]
+[[2 Kings 22:8]]
+[[2 Kings 22:13]]
+[[2 Chronicles 34:14]]
+[[Romans 3:19]]
+[[Galatians 2:19]]

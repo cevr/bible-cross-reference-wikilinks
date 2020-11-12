@@ -1,0 +1,5 @@
+[[Deuteronomy 3:7]]
+[[Deuteronomy 20:16]]
+[[Joshua 6:21]]
+[[Joshua 6:24]]
+[[Joshua 10:40]]

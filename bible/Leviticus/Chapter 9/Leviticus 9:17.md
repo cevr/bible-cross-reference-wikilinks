@@ -1,0 +1,8 @@
+[[Exodus 29:38]]
+[[Leviticus 2:1]]
+[[Leviticus 3:5]]
+[[Leviticus 9:1]]
+[[1 Chronicles 16:40]]
+[[2 Chronicles 2:3]]
+[[John 6:53]]
+[[Galatians 2:20]]

@@ -1,0 +1,6 @@
+[[Genesis 26:29]]
+[[Judges 17:2]]
+[[Ruth 3:10]]
+[[Psalms 115:15]]
+[[Proverbs 17:8]]
+[[Proverbs 18:16]]

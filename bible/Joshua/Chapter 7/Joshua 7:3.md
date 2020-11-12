@@ -1,0 +1,7 @@
+[[Proverbs 13:4]]
+[[Proverbs 21:25]]
+[[Luke 13:24]]
+[[Hebrews 4:11]]
+[[Hebrews 6:11]]
+[[2 Peter 1:5]]
+[[2 Peter 1:10]]

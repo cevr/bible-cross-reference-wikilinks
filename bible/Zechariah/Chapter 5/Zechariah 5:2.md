@@ -1,0 +1,7 @@
+[[Genesis 6:11]]
+[[Jeremiah 1:11]]
+[[Amos 7:8]]
+[[Zephaniah 1:14]]
+[[Zechariah 4:2]]
+[[2 Peter 2:3]]
+[[Revelation 18:5]]

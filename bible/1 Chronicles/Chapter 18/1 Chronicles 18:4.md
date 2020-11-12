@@ -1,0 +1,8 @@
+[[Deuteronomy 17:16]]
+[[Joshua 11:6]]
+[[Joshua 11:9]]
+[[2 Samuel 8:4]]
+[[1 Kings 4:2]]
+[[1 Kings 10:26]]
+[[Psalms 20:7]]
+[[Psalms 33:16]]

@@ -1,0 +1,6 @@
+[[Matthew 4:23]]
+[[Matthew 9:35]]
+[[Matthew 12:15]]
+[[Matthew 14:35]]
+[[Matthew 15:30]]
+[[Mark 6:55]]

@@ -1,0 +1,5 @@
+[[Songs of Solomon 5:3]]
+[[Matthew 25:10]]
+[[Luke 7:6]]
+[[Luke 13:25]]
+[[Galatians 6:17]]

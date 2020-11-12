@@ -1,0 +1,6 @@
+[[Psalms 10:3]]
+[[Psalms 12:2]]
+[[Proverbs 26:28]]
+[[Proverbs 29:5]]
+[[Acts 24:26]]
+[[Jude 1:16]]

@@ -1,0 +1,7 @@
+[[Jeremiah 29:1]]
+[[Matthew 24:1]]
+[[Mark 13:1]]
+[[Colossians 4:16]]
+[[1 Thessalonians 4:18]]
+[[1 Thessalonians 5:27]]
+[[Revelation 1:3]]

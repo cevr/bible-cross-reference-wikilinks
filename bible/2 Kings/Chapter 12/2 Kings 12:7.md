@@ -1,0 +1,7 @@
+[[2 Kings 11:4]]
+[[2 Kings 12:2]]
+[[1 Chronicles 21:3]]
+[[2 Chronicles 23:1]]
+[[2 Chronicles 24:5]]
+[[2 Chronicles 24:16]]
+[[Haggai 1:2]]

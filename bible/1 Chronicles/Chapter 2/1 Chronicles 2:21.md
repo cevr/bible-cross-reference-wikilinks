@@ -1,0 +1,7 @@
+[[Genesis 50:23]]
+[[Numbers 26:29]]
+[[Numbers 27:1]]
+[[Numbers 32:39]]
+[[Numbers 32:41]]
+[[Deuteronomy 3:15]]
+[[1 Chronicles 7:14]]

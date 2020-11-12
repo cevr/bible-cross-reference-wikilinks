@@ -1,0 +1,7 @@
+[[Judges 4:6]]
+[[Judges 4:12]]
+[[2 Kings 1:7]]
+[[Psalms 12:2]]
+[[Psalms 89:12]]
+[[Ezekiel 23:15]]
+[[Jude 1:16]]

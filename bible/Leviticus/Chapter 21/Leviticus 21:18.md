@@ -1,0 +1,8 @@
+[[Leviticus 22:19]]
+[[Isaiah 56:10]]
+[[Matthew 23:16]]
+[[Matthew 23:19]]
+[[1 Timothy 3:2]]
+[[1 Timothy 3:7]]
+[[Titus 1:7]]
+[[Titus 1:10]]

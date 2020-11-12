@@ -1,0 +1,5 @@
+[[Exodus 3:10]]
+[[Exodus 5:1]]
+[[Exodus 5:23]]
+[[Exodus 6:29]]
+[[Exodus 7:1]]

@@ -1,0 +1,7 @@
+[[Numbers 26:33]]
+[[Numbers 36:1]]
+[[Numbers 36:11]]
+[[Joshua 17:3]]
+[[Joshua 17:4]]
+[[1 Chronicles 7:15]]
+[[Galatians 3:28]]

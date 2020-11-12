@@ -1,0 +1,7 @@
+[[1 Kings 16:22]]
+[[1 Kings 16:23]]
+[[2 Kings 9:21]]
+[[2 Kings 11:1]]
+[[2 Kings 11:13]]
+[[2 Chronicles 22:2]]
+[[2 Chronicles 22:5]]

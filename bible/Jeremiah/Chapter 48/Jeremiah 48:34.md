@@ -1,0 +1,7 @@
+[[Genesis 13:10]]
+[[Numbers 32:3]]
+[[Numbers 32:36]]
+[[Deuteronomy 34:3]]
+[[Isaiah 15:4]]
+[[Jeremiah 48:2]]
+[[Jeremiah 48:5]]

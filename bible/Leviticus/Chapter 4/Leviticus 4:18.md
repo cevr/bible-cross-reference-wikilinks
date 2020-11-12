@@ -1,0 +1,7 @@
+[[Exodus 29:12]]
+[[Exodus 30:10]]
+[[Leviticus 4:7]]
+[[Leviticus 5:9]]
+[[Leviticus 8:15]]
+[[Leviticus 9:9]]
+[[2 Chronicles 29:22]]

@@ -1,0 +1,6 @@
+[[2 Kings 13:7]]
+[[Isaiah 27:7]]
+[[Isaiah 41:15]]
+[[Jeremiah 10:24]]
+[[Jeremiah 46:28]]
+[[Amos 1:3]]

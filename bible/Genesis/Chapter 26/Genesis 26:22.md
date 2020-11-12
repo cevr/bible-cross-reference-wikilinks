@@ -1,0 +1,8 @@
+[[Genesis 17:6]]
+[[Genesis 28:3]]
+[[Genesis 41:52]]
+[[Exodus 1:7]]
+[[Psalms 4:1]]
+[[Psalms 18:19]]
+[[Psalms 118:5]]
+[[Psalms 119:32]]

@@ -1,0 +1,8 @@
+[[Numbers 23:18]]
+[[Judges 3:19]]
+[[2 Samuel 12:1]]
+[[2 Samuel 24:12]]
+[[Psalms 29:1]]
+[[Jeremiah 10:7]]
+[[Amos 3:15]]
+[[Micah 6:9]]

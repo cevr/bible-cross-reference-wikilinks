@@ -1,0 +1,6 @@
+[[Ecclesiastes 10:4]]
+[[Ephesians 5:21]]
+[[Ephesians 6:5]]
+[[Titus 2:9]]
+[[1 Peter 2:18]]
+[[1 Peter 5:5]]

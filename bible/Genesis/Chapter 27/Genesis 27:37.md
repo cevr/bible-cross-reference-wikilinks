@@ -1,0 +1,5 @@
+[[Genesis 25:23]]
+[[Genesis 27:28]]
+[[2 Samuel 8:14]]
+[[1 Kings 22:48]]
+[[Romans 9:10]]

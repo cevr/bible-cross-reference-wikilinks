@@ -1,0 +1,5 @@
+[[1 Samuel 18:4]]
+[[1 Kings 1:33]]
+[[Esther 1:11]]
+[[Esther 2:17]]
+[[Luke 15:22]]

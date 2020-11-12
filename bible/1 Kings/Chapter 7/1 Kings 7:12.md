@@ -1,0 +1,7 @@
+[[1 Kings 6:3]]
+[[1 Kings 6:36]]
+[[1 Kings 7:6]]
+[[2 Chronicles 4:9]]
+[[John 10:23]]
+[[Acts 3:11]]
+[[Acts 5:12]]

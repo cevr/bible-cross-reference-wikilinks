@@ -1,0 +1,8 @@
+[[Isaiah 28:16]]
+[[Zechariah 4:7]]
+[[Matthew 21:42]]
+[[Mark 12:10]]
+[[Luke 20:17]]
+[[Acts 4:11]]
+[[Ephesians 2:20]]
+[[1 Peter 2:4]]

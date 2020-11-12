@@ -1,0 +1,6 @@
+[[Leviticus 4:3]]
+[[1 Chronicles 9:1]]
+[[Nehemiah 7:5]]
+[[Nehemiah 13:29]]
+[[Matthew 22:11]]
+[[Matthew 25:11]]

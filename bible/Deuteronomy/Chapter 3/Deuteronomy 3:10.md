@@ -1,0 +1,7 @@
+[[Numbers 21:33]]
+[[Deuteronomy 4:49]]
+[[Joshua 12:4]]
+[[Joshua 13:11]]
+[[Joshua 13:30]]
+[[Joshua 13:31]]
+[[1 Kings 4:13]]

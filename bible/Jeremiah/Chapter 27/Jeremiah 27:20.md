@@ -1,0 +1,5 @@
+[[2 Kings 24:14]]
+[[2 Chronicles 36:10]]
+[[2 Chronicles 36:18]]
+[[Jeremiah 22:28]]
+[[Jeremiah 24:1]]

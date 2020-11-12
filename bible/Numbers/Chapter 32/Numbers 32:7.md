@@ -1,0 +1,6 @@
+[[Numbers 13:27]]
+[[Numbers 13:31]]
+[[Numbers 21:4]]
+[[Numbers 32:9]]
+[[Deuteronomy 1:28]]
+[[Acts 21:13]]

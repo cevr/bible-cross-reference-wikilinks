@@ -1,0 +1,5 @@
+[[Genesis 42:9]]
+[[Genesis 42:16]]
+[[2 Samuel 3:25]]
+[[1 Corinthians 13:5]]
+[[1 Corinthians 13:7]]

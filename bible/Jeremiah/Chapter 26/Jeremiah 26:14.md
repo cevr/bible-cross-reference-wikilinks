@@ -1,0 +1,6 @@
+[[Joshua 9:25]]
+[[2 Samuel 15:26]]
+[[2 Chronicles 24:22]]
+[[Esther 3:11]]
+[[Jeremiah 38:5]]
+[[Daniel 3:16]]

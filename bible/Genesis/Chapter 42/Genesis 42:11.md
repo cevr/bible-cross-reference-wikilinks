@@ -1,0 +1,5 @@
+[[Genesis 42:19]]
+[[Genesis 42:33]]
+[[Genesis 43:7]]
+[[John 7:18]]
+[[2 Corinthians 6:4]]

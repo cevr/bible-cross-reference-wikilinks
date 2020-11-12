@@ -1,0 +1,6 @@
+[[Isaiah 5:19]]
+[[Jeremiah 20:7]]
+[[Ezekiel 12:22]]
+[[Ezekiel 12:27]]
+[[Amos 5:18]]
+[[2 Peter 3:3]]

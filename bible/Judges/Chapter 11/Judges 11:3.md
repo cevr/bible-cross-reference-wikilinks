@@ -1,0 +1,8 @@
+[[Judges 9:4]]
+[[1 Samuel 22:2]]
+[[1 Samuel 27:2]]
+[[1 Samuel 30:22]]
+[[2 Samuel 10:6]]
+[[2 Samuel 10:8]]
+[[Job 30:1]]
+[[Acts 17:5]]

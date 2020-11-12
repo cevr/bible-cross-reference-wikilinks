@@ -1,0 +1,8 @@
+[[Numbers 6:26]]
+[[1 Samuel 1:17]]
+[[1 Samuel 20:15]]
+[[1 Samuel 20:22]]
+[[1 Samuel 20:23]]
+[[1 Samuel 23:18]]
+[[Luke 7:50]]
+[[Acts 16:36]]

@@ -1,0 +1,6 @@
+[[Genesis 5:32]]
+[[Genesis 8:17]]
+[[Genesis 10:1]]
+[[Genesis 10:2]]
+[[Genesis 10:5]]
+[[1 Chronicles 1:4]]

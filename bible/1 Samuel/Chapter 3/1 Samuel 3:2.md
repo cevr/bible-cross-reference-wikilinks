@@ -1,0 +1,7 @@
+[[Genesis 27:1]]
+[[Genesis 48:10]]
+[[Genesis 48:19]]
+[[1 Samuel 2:22]]
+[[1 Samuel 4:15]]
+[[Psalms 90:10]]
+[[Ecclesiastes 12:3]]

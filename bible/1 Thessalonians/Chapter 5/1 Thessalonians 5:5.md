@@ -1,0 +1,5 @@
+[[Leviticus 11:16]]
+[[Luke 16:8]]
+[[John 12:36]]
+[[Acts 26:18]]
+[[Ephesians 5:8]]

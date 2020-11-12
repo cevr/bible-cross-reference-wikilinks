@@ -1,0 +1,5 @@
+[[Judges 8:30]]
+[[Judges 8:35]]
+[[Judges 9:5]]
+[[Judges 9:14]]
+[[Psalms 109:4]]

@@ -1,0 +1,8 @@
+[[2 Samuel 8:8]]
+[[1 Kings 7:15]]
+[[1 Chronicles 22:14]]
+[[2 Chronicles 3:15]]
+[[2 Chronicles 4:2]]
+[[2 Chronicles 4:12]]
+[[2 Chronicles 4:16]]
+[[Jeremiah 52:17]]

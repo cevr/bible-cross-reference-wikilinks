@@ -1,0 +1,6 @@
+[[2 Kings 5:13]]
+[[Malachi 3:8]]
+[[Matthew 10:10]]
+[[Romans 15:27]]
+[[2 Corinthians 11:15]]
+[[Galatians 6:6]]

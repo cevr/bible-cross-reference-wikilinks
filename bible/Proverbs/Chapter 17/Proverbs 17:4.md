@@ -1,0 +1,8 @@
+[[1 Samuel 22:7]]
+[[1 Kings 22:6]]
+[[Proverbs 28:4]]
+[[Isaiah 30:10]]
+[[Jeremiah 5:31]]
+[[2 Timothy 4:3]]
+[[1 John 4:5]]
+[[Revelation 13:3]]

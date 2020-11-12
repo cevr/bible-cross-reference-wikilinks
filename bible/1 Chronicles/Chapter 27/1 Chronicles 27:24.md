@@ -1,0 +1,5 @@
+[[2 Samuel 24:1]]
+[[2 Samuel 24:15]]
+[[1 Chronicles 21:1]]
+[[1 Chronicles 21:5]]
+[[1 Chronicles 21:6]]

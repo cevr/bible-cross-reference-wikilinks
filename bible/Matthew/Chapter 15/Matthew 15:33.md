@@ -1,0 +1,7 @@
+[[Numbers 11:21]]
+[[2 Kings 4:42]]
+[[Matthew 14:15]]
+[[Mark 6:37]]
+[[Mark 8:4]]
+[[Luke 9:13]]
+[[John 6:5]]

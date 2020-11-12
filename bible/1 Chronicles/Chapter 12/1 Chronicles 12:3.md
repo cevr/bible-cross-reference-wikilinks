@@ -1,0 +1,5 @@
+[[1 Samuel 11:4]]
+[[2 Samuel 21:6]]
+[[2 Samuel 23:31]]
+[[1 Chronicles 11:28]]
+[[1 Chronicles 11:33]]

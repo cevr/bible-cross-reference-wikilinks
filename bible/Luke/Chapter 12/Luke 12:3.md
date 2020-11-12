@@ -1,0 +1,6 @@
+[[Job 24:14]]
+[[Ecclesiastes 10:12]]
+[[Ecclesiastes 10:20]]
+[[Matthew 10:27]]
+[[Matthew 12:36]]
+[[Jude 1:14]]

@@ -1,0 +1,5 @@
+[[Judges 21:8]]
+[[1 Samuel 31:11]]
+[[2 Samuel 2:5]]
+[[1 Chronicles 10:12]]
+[[Psalms 18:17]]

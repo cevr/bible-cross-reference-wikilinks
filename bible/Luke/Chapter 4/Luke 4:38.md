@@ -1,0 +1,8 @@
+[[Matthew 8:14]]
+[[Matthew 15:23]]
+[[Mark 1:29]]
+[[Luke 7:3]]
+[[John 11:3]]
+[[John 11:22]]
+[[1 Corinthians 9:5]]
+[[James 5:14]]

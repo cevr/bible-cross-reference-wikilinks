@@ -1,0 +1,5 @@
+[[Genesis 4:8]]
+[[Exodus 2:13]]
+[[Deuteronomy 22:26]]
+[[2 Samuel 13:28]]
+[[2 Samuel 13:29]]

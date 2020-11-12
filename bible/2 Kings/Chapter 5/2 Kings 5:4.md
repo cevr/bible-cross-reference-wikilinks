@@ -1,0 +1,6 @@
+[[2 Kings 7:9]]
+[[Mark 5:19]]
+[[Mark 16:9]]
+[[John 1:42]]
+[[John 4:28]]
+[[1 Corinthians 1:26]]

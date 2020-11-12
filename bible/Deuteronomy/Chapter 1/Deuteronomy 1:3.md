@@ -1,0 +1,5 @@
+[[Leviticus 27:34]]
+[[Numbers 1:1]]
+[[Numbers 20:1]]
+[[Numbers 33:38]]
+[[Deuteronomy 4:1]]

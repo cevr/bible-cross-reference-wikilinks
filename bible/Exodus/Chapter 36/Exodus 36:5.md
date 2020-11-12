@@ -1,0 +1,6 @@
+[[Exodus 32:3]]
+[[2 Chronicles 24:14]]
+[[2 Chronicles 31:6]]
+[[2 Corinthians 8:2]]
+[[Philippians 2:21]]
+[[Philippians 4:17]]

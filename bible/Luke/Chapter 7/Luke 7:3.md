@@ -1,0 +1,5 @@
+[[Matthew 8:5]]
+[[Luke 8:41]]
+[[Luke 9:38]]
+[[John 4:47]]
+[[Philemon 1:10]]

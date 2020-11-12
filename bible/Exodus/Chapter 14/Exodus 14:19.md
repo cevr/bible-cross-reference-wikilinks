@@ -1,0 +1,8 @@
+[[Exodus 13:21]]
+[[Exodus 14:24]]
+[[Exodus 23:20]]
+[[Exodus 32:34]]
+[[Numbers 20:16]]
+[[Isaiah 52:12]]
+[[Isaiah 63:9]]
+[[Micah 2:13]]

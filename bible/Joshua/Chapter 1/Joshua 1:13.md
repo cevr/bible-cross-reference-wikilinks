@@ -1,0 +1,6 @@
+[[Numbers 32:20]]
+[[Numbers 32:21]]
+[[Numbers 32:28]]
+[[Deuteronomy 3:18]]
+[[Joshua 22:1]]
+[[Joshua 22:2]]

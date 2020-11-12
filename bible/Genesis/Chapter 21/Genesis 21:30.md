@@ -1,0 +1,5 @@
+[[Genesis 26:18]]
+[[Genesis 31:44]]
+[[Genesis 31:52]]
+[[Joshua 22:27]]
+[[Joshua 24:27]]

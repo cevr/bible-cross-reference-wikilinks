@@ -1,0 +1,6 @@
+[[Exodus 39:43]]
+[[Numbers 32:33]]
+[[Joshua 13:29]]
+[[Joshua 17:1]]
+[[Joshua 17:5]]
+[[Joshua 17:6]]

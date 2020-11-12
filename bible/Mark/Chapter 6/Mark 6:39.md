@@ -1,0 +1,5 @@
+[[1 Kings 10:5]]
+[[Esther 1:5]]
+[[Matthew 15:35]]
+[[1 Corinthians 14:33]]
+[[1 Corinthians 14:40]]

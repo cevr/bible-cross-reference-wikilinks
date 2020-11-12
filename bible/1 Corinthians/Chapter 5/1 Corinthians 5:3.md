@@ -1,0 +1,5 @@
+[[2 Corinthians 10:1]]
+[[2 Corinthians 10:11]]
+[[2 Corinthians 13:2]]
+[[Colossians 2:5]]
+[[1 Thessalonians 2:17]]

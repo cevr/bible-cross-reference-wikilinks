@@ -1,0 +1,5 @@
+[[Numbers 32:39]]
+[[Judges 6:2]]
+[[Judges 10:5]]
+[[Isaiah 30:13]]
+[[1 Thessalonians 5:3]]

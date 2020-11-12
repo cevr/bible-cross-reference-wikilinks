@@ -1,0 +1,5 @@
+[[Judges 9:28]]
+[[1 Samuel 2:3]]
+[[2 Samuel 2:26]]
+[[2 Kings 14:8]]
+[[Jeremiah 2:28]]

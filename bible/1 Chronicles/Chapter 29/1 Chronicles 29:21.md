@@ -1,0 +1,7 @@
+[[Leviticus 23:13]]
+[[Numbers 15:5]]
+[[Numbers 15:7]]
+[[Numbers 15:10]]
+[[1 Kings 8:62]]
+[[2 Chronicles 7:4]]
+[[Ezra 6:17]]

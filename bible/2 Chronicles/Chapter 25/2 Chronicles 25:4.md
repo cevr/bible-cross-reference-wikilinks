@@ -1,0 +1,5 @@
+[[Deuteronomy 24:16]]
+[[2 Kings 14:5]]
+[[Jeremiah 31:29]]
+[[Ezekiel 18:4]]
+[[Ezekiel 18:20]]

@@ -1,0 +1,6 @@
+[[Deuteronomy 33:25]]
+[[Joshua 22:8]]
+[[Judges 18:10]]
+[[1 Chronicles 22:3]]
+[[1 Chronicles 22:14]]
+[[Job 28:2]]

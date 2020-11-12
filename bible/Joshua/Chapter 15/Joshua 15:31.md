@@ -1,0 +1,5 @@
+[[Joshua 19:5]]
+[[1 Samuel 27:6]]
+[[1 Samuel 30:1]]
+[[1 Chronicles 2:49]]
+[[1 Chronicles 12:1]]

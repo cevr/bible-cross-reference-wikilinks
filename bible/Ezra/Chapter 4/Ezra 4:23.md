@@ -1,0 +1,5 @@
+[[Ezra 4:8]]
+[[Ezra 4:17]]
+[[Proverbs 4:16]]
+[[Micah 2:1]]
+[[Romans 3:15]]

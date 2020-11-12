@@ -1,0 +1,6 @@
+[[Ruth 4:4]]
+[[1 Samuel 9:15]]
+[[1 Kings 11:38]]
+[[1 Chronicles 17:25]]
+[[Psalms 10:17]]
+[[Psalms 40:6]]

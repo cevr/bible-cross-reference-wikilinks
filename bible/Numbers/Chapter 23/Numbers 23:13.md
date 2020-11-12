@@ -1,0 +1,8 @@
+[[Numbers 22:6]]
+[[Numbers 22:41]]
+[[Joshua 24:9]]
+[[1 Kings 20:23]]
+[[1 Kings 20:28]]
+[[Psalms 109:17]]
+[[Micah 6:5]]
+[[James 3:9]]

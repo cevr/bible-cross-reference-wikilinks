@@ -1,0 +1,5 @@
+[[Exodus 29:22]]
+[[Leviticus 3:3]]
+[[Leviticus 3:9]]
+[[Proverbs 23:26]]
+[[Isaiah 53:10]]

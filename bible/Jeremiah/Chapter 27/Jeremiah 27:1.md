@@ -1,0 +1,7 @@
+[[2 Chronicles 36:11]]
+[[Jeremiah 26:1]]
+[[Jeremiah 27:3]]
+[[Jeremiah 27:12]]
+[[Jeremiah 27:19]]
+[[Jeremiah 28:1]]
+[[Jeremiah 32:1]]

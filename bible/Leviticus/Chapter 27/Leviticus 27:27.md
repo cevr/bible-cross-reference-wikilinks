@@ -1,0 +1,5 @@
+[[Leviticus 5:16]]
+[[Leviticus 27:11]]
+[[Leviticus 27:13]]
+[[Leviticus 27:15]]
+[[Leviticus 27:31]]

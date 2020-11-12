@@ -1,0 +1,5 @@
+[[Exodus 7:19]]
+[[Exodus 8:5]]
+[[Exodus 8:16]]
+[[Joshua 10:11]]
+[[Revelation 16:21]]

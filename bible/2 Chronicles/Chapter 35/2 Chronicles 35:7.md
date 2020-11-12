@@ -1,0 +1,7 @@
+[[1 Kings 8:63]]
+[[1 Chronicles 29:3]]
+[[2 Chronicles 7:8]]
+[[2 Chronicles 30:24]]
+[[2 Chronicles 31:3]]
+[[Isaiah 32:8]]
+[[Ezekiel 45:17]]

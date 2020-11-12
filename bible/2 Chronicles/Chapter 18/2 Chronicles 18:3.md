@@ -1,0 +1,6 @@
+[[1 Kings 22:4]]
+[[2 Kings 3:7]]
+[[2 Chronicles 19:2]]
+[[Psalms 139:21]]
+[[Ephesians 5:11]]
+[[2 John 1:10]]

@@ -1,0 +1,6 @@
+[[1 Samuel 2:26]]
+[[Proverbs 3:3]]
+[[Luke 1:80]]
+[[Luke 2:40]]
+[[Acts 7:9]]
+[[Romans 14:18]]

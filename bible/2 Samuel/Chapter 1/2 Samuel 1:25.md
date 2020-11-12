@@ -1,0 +1,5 @@
+[[Judges 5:18]]
+[[1 Samuel 14:13]]
+[[2 Samuel 1:19]]
+[[2 Samuel 1:27]]
+[[Lamentations 5:16]]

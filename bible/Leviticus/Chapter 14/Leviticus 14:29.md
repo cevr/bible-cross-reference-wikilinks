@@ -1,0 +1,6 @@
+[[Exodus 30:15]]
+[[Leviticus 14:18]]
+[[Leviticus 14:20]]
+[[John 17:19]]
+[[1 John 2:1]]
+[[1 John 5:6]]

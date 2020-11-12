@@ -1,0 +1,7 @@
+[[Joshua 11:1]]
+[[Joshua 11:5]]
+[[Psalms 2:1]]
+[[Isaiah 8:9]]
+[[Micah 4:11]]
+[[Zechariah 14:2]]
+[[Revelation 19:19]]

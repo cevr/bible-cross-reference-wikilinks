@@ -1,0 +1,6 @@
+[[Genesis 40:10]]
+[[Psalms 53:5]]
+[[Matthew 14:2]]
+[[Matthew 27:4]]
+[[Luke 9:9]]
+[[Revelation 11:10]]

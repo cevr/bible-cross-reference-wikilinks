@@ -1,0 +1,5 @@
+[[Ezekiel 3:23]]
+[[Ezekiel 8:4]]
+[[Ezekiel 10:4]]
+[[Ezekiel 11:22]]
+[[Ezekiel 43:2]]

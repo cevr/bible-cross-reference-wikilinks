@@ -1,0 +1,6 @@
+[[Leviticus 17:7]]
+[[Deuteronomy 32:16]]
+[[2 Chronicles 11:15]]
+[[Psalms 106:37]]
+[[2 Corinthians 4:4]]
+[[Revelation 9:20]]

@@ -1,0 +1,5 @@
+[[Joshua 19:32]]
+[[Joshua 19:38]]
+[[Judges 1:30]]
+[[Judges 1:35]]
+[[Psalms 18:24]]

@@ -1,0 +1,5 @@
+[[Exodus 1:1]]
+[[Exodus 1:5]]
+[[Exodus 24:1]]
+[[Deuteronomy 10:22]]
+[[Acts 7:14]]

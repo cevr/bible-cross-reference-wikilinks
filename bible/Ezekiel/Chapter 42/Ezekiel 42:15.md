@@ -1,0 +1,7 @@
+[[2 Chronicles 4:9]]
+[[Ezekiel 40:5]]
+[[Ezekiel 40:6]]
+[[Ezekiel 41:2]]
+[[Ezekiel 41:15]]
+[[Ezekiel 43:1]]
+[[Ezekiel 45:2]]

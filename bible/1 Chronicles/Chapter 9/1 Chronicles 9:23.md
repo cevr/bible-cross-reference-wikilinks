@@ -1,0 +1,6 @@
+[[1 Chronicles 23:32]]
+[[1 Chronicles 26:12]]
+[[2 Chronicles 23:19]]
+[[Nehemiah 12:45]]
+[[Ezekiel 44:10]]
+[[Ezekiel 44:14]]

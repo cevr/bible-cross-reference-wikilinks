@@ -1,0 +1,5 @@
+[[Isaiah 23:8]]
+[[Jeremiah 51:37]]
+[[Ezekiel 27:30]]
+[[Revelation 13:4]]
+[[Revelation 18:9]]

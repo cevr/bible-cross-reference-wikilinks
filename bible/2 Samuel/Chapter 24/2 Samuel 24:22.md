@@ -1,0 +1,5 @@
+[[Genesis 23:11]]
+[[Judges 6:26]]
+[[1 Samuel 6:14]]
+[[1 Kings 19:21]]
+[[1 Chronicles 21:22]]

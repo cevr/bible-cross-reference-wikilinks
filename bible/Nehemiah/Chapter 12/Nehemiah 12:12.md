@@ -1,0 +1,5 @@
+[[1 Chronicles 9:33]]
+[[1 Chronicles 15:12]]
+[[1 Chronicles 24:4]]
+[[1 Chronicles 24:6]]
+[[Nehemiah 12:22]]

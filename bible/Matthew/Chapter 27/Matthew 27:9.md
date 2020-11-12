@@ -1,0 +1,6 @@
+[[Exodus 21:32]]
+[[Leviticus 27:2]]
+[[Leviticus 27:4]]
+[[Zechariah 11:12]]
+[[Matthew 1:22]]
+[[Matthew 26:15]]

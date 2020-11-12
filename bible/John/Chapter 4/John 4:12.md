@@ -1,0 +1,5 @@
+[[Isaiah 53:2]]
+[[Matthew 12:42]]
+[[John 4:6]]
+[[John 8:53]]
+[[Hebrews 3:3]]

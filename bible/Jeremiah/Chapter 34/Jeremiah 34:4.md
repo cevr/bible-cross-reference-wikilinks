@@ -1,0 +1,5 @@
+[[2 Chronicles 18:18]]
+[[Jeremiah 2:4]]
+[[Jeremiah 7:2]]
+[[Jeremiah 32:5]]
+[[Hosea 4:1]]

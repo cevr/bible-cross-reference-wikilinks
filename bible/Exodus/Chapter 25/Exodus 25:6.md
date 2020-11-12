@@ -1,0 +1,6 @@
+[[Exodus 25:37]]
+[[Exodus 27:20]]
+[[Exodus 30:23]]
+[[Exodus 38:6]]
+[[Exodus 40:24]]
+[[Numbers 4:16]]

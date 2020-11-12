@@ -1,0 +1,5 @@
+[[Genesis 2:8]]
+[[Songs of Solomon 4:12]]
+[[Songs of Solomon 6:2]]
+[[Jeremiah 39:4]]
+[[Luke 17:27]]

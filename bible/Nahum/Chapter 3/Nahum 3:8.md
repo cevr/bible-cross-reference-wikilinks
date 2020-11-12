@@ -1,0 +1,5 @@
+[[Isaiah 19:5]]
+[[Jeremiah 46:25]]
+[[Ezekiel 30:14]]
+[[Ezekiel 31:2]]
+[[Amos 6:2]]

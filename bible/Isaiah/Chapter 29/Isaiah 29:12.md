@@ -1,0 +1,5 @@
+[[Isaiah 28:12]]
+[[Isaiah 29:18]]
+[[Jeremiah 5:4]]
+[[Hosea 4:6]]
+[[John 7:15]]

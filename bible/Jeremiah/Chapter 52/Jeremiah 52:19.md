@@ -1,0 +1,8 @@
+[[Exodus 25:31]]
+[[Leviticus 26:12]]
+[[Numbers 16:46]]
+[[1 Kings 7:49]]
+[[2 Kings 25:15]]
+[[2 Chronicles 4:6]]
+[[2 Chronicles 4:8]]
+[[Revelation 8:3]]

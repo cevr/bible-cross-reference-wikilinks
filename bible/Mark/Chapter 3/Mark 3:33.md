@@ -1,0 +1,7 @@
+[[Deuteronomy 33:9]]
+[[Mark 3:21]]
+[[Mark 6:3]]
+[[Luke 2:49]]
+[[John 2:4]]
+[[John 7:3]]
+[[2 Corinthians 5:16]]

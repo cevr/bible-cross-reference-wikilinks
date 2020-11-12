@@ -1,0 +1,8 @@
+[[Psalms 30:1]]
+[[Psalms 30:8]]
+[[Psalms 30:9]]
+[[Psalms 34:3]]
+[[Psalms 34:6]]
+[[Psalms 116:1]]
+[[Psalms 116:12]]
+[[Psalms 145:1]]

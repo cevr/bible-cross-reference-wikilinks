@@ -1,0 +1,5 @@
+[[Ezekiel 40:17]]
+[[Ezekiel 41:12]]
+[[Ezekiel 42:1]]
+[[Ezekiel 42:7]]
+[[Ezekiel 42:13]]

@@ -1,0 +1,8 @@
+[[Numbers 11:25]]
+[[Judges 3:10]]
+[[Judges 6:34]]
+[[Judges 10:17]]
+[[Judges 13:25]]
+[[1 Samuel 10:10]]
+[[1 Samuel 16:13]]
+[[1 Chronicles 12:18]]

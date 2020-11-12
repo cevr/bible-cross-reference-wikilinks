@@ -1,0 +1,8 @@
+[[1 Samuel 12:25]]
+[[1 Samuel 28:1]]
+[[1 Samuel 28:4]]
+[[1 Samuel 28:15]]
+[[1 Samuel 28:19]]
+[[1 Samuel 29:1]]
+[[2 Samuel 1:21]]
+[[1 Chronicles 10:1]]

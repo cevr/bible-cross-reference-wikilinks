@@ -1,0 +1,5 @@
+[[Exodus 12:28]]
+[[1 Kings 19:9]]
+[[Proverbs 3:5]]
+[[Matthew 16:24]]
+[[John 15:14]]

@@ -1,0 +1,7 @@
+[[Leviticus 14:9]]
+[[Numbers 6:18]]
+[[Numbers 19:14]]
+[[Ezekiel 44:27]]
+[[Acts 18:18]]
+[[Acts 21:23]]
+[[Philippians 3:8]]

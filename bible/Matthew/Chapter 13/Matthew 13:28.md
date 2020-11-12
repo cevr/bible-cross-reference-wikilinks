@@ -1,0 +1,5 @@
+[[Luke 9:49]]
+[[1 Corinthians 5:3]]
+[[2 Corinthians 2:6]]
+[[1 Thessalonians 5:14]]
+[[Jude 1:22]]

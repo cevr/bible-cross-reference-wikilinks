@@ -1,0 +1,8 @@
+[[Exodus 27:1]]
+[[Exodus 38:1]]
+[[Exodus 40:29]]
+[[Leviticus 1:5]]
+[[Ephesians 1:6]]
+[[Hebrews 13:10]]
+[[1 John 2:2]]
+[[1 John 4:9]]

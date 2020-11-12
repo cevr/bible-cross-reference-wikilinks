@@ -1,0 +1,5 @@
+[[Leviticus 11:5]]
+[[Deuteronomy 14:7]]
+[[1 Samuel 24:2]]
+[[Job 39:1]]
+[[Proverbs 30:26]]

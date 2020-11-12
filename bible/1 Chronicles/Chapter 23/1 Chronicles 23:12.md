@@ -1,0 +1,5 @@
+[[Exodus 6:18]]
+[[Numbers 3:27]]
+[[Numbers 26:58]]
+[[1 Chronicles 6:2]]
+[[1 Chronicles 6:3]]

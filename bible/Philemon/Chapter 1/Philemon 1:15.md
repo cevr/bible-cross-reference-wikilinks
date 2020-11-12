@@ -1,0 +1,5 @@
+[[Genesis 45:5]]
+[[Genesis 50:20]]
+[[Psalms 76:10]]
+[[Isaiah 20:6]]
+[[Acts 4:28]]

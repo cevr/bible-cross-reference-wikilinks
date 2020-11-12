@@ -1,0 +1,6 @@
+[[Exodus 3:6]]
+[[Exodus 3:15]]
+[[Mark 12:26]]
+[[Luke 20:37]]
+[[Acts 7:32]]
+[[Hebrews 11:16]]

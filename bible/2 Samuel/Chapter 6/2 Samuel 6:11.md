@@ -1,0 +1,5 @@
+[[Genesis 30:27]]
+[[Genesis 39:5]]
+[[Genesis 39:23]]
+[[Proverbs 3:9]]
+[[Malachi 3:10]]

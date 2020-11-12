@@ -1,0 +1,7 @@
+[[Exodus 9:9]]
+[[Exodus 15:26]]
+[[Leviticus 13:25]]
+[[2 Kings 20:7]]
+[[Job 2:7]]
+[[Psalms 38:3]]
+[[Isaiah 38:21]]

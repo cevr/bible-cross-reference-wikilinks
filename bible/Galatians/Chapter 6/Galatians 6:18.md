@@ -1,0 +1,6 @@
+[[Romans 16:20]]
+[[Romans 16:23]]
+[[2 Corinthians 13:14]]
+[[2 Timothy 4:22]]
+[[Philemon 1:25]]
+[[Revelation 22:21]]

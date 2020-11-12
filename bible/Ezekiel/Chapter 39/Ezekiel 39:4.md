@@ -1,0 +1,8 @@
+[[Isaiah 34:2]]
+[[Jeremiah 15:3]]
+[[Ezekiel 29:5]]
+[[Ezekiel 32:4]]
+[[Ezekiel 33:27]]
+[[Ezekiel 38:21]]
+[[Ezekiel 39:17]]
+[[Revelation 19:17]]

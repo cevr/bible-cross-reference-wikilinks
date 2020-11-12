@@ -1,0 +1,5 @@
+[[2 Chronicles 17:3]]
+[[2 Chronicles 17:4]]
+[[2 Chronicles 26:4]]
+[[2 Chronicles 28:1]]
+[[2 Chronicles 34:2]]

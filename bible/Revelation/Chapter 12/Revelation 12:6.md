@@ -1,0 +1,8 @@
+[[1 Kings 17:3]]
+[[1 Kings 17:9]]
+[[1 Kings 19:4]]
+[[Matthew 4:11]]
+[[Revelation 11:2]]
+[[Revelation 12:4]]
+[[Revelation 12:14]]
+[[Revelation 13:5]]

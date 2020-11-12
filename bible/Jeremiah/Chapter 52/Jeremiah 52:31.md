@@ -1,0 +1,7 @@
+[[Genesis 40:13]]
+[[Genesis 40:20]]
+[[2 Kings 25:27]]
+[[Job 22:29]]
+[[Psalms 3:3]]
+[[Psalms 27:6]]
+[[Proverbs 21:1]]

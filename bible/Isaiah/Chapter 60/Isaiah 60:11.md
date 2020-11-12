@@ -1,0 +1,7 @@
+[[Nehemiah 13:19]]
+[[Psalms 149:8]]
+[[Isaiah 49:23]]
+[[Isaiah 60:5]]
+[[Isaiah 60:18]]
+[[Isaiah 62:10]]
+[[Revelation 21:25]]

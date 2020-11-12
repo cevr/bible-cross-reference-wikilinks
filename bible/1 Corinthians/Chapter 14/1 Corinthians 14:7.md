@@ -1,0 +1,5 @@
+[[Numbers 10:2]]
+[[Matthew 11:17]]
+[[Luke 7:32]]
+[[1 Corinthians 13:1]]
+[[1 Corinthians 14:8]]

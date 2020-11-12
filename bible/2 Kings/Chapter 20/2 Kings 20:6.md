@@ -1,0 +1,5 @@
+[[2 Kings 19:34]]
+[[2 Chronicles 32:22]]
+[[Psalms 116:15]]
+[[Isaiah 10:24]]
+[[Acts 27:24]]

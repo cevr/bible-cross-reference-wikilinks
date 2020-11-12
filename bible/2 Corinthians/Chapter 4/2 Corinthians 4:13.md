@@ -1,0 +1,8 @@
+[[Psalms 116:10]]
+[[Proverbs 21:28]]
+[[Acts 15:11]]
+[[Romans 1:12]]
+[[1 Corinthians 12:9]]
+[[2 Corinthians 3:12]]
+[[Hebrews 11:1]]
+[[2 Peter 1:1]]

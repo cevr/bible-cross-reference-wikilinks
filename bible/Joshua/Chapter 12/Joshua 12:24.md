@@ -1,0 +1,6 @@
+[[Deuteronomy 7:24]]
+[[1 Kings 14:17]]
+[[1 Kings 16:23]]
+[[2 Kings 15:14]]
+[[Nehemiah 9:24]]
+[[Psalms 135:11]]

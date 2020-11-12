@@ -1,0 +1,6 @@
+[[Numbers 18:3]]
+[[2 Kings 23:9]]
+[[Jeremiah 3:25]]
+[[Ezekiel 16:61]]
+[[Ezekiel 32:20]]
+[[Ezekiel 36:7]]

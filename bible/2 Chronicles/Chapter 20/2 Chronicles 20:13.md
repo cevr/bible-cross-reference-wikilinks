@@ -1,0 +1,6 @@
+[[Deuteronomy 29:9]]
+[[Deuteronomy 29:10]]
+[[Ezra 10:1]]
+[[Joel 2:16]]
+[[Jonah 3:5]]
+[[Acts 21:5]]

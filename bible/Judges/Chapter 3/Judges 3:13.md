@@ -1,0 +1,7 @@
+[[Deuteronomy 34:3]]
+[[Judges 1:16]]
+[[Judges 5:14]]
+[[Judges 6:3]]
+[[Judges 10:9]]
+[[Judges 10:12]]
+[[Psalms 83:6]]

@@ -1,0 +1,5 @@
+[[Genesis 9:25]]
+[[Genesis 9:26]]
+[[Deuteronomy 20:11]]
+[[Joshua 17:13]]
+[[1 Samuel 14:24]]

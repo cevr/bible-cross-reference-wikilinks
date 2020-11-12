@@ -1,0 +1,7 @@
+[[1 Chronicles 6:34]]
+[[1 Chronicles 9:25]]
+[[1 Chronicles 24:1]]
+[[2 Chronicles 23:4]]
+[[2 Chronicles 23:8]]
+[[1 Corinthians 14:40]]
+[[Hebrews 7:11]]

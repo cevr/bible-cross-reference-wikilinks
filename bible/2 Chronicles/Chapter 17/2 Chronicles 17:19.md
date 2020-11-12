@@ -1,0 +1,5 @@
+[[2 Chronicles 11:12]]
+[[2 Chronicles 11:23]]
+[[2 Chronicles 17:2]]
+[[2 Chronicles 17:12]]
+[[2 Chronicles 33:14]]

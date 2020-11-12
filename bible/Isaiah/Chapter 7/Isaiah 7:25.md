@@ -1,0 +1,5 @@
+[[Isaiah 5:17]]
+[[Isaiah 7:21]]
+[[Isaiah 13:20]]
+[[Isaiah 17:2]]
+[[Zephaniah 2:6]]

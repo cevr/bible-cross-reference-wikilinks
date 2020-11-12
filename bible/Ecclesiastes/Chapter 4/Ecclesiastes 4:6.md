@@ -1,0 +1,6 @@
+[[Psalms 37:16]]
+[[Proverbs 15:16]]
+[[Proverbs 15:17]]
+[[Proverbs 16:8]]
+[[Proverbs 17:1]]
+[[Ecclesiastes 1:14]]

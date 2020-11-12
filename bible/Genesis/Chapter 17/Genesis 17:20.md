@@ -1,0 +1,7 @@
+[[Genesis 12:2]]
+[[Genesis 16:10]]
+[[Genesis 21:13]]
+[[Genesis 21:18]]
+[[Genesis 25:12]]
+[[Genesis 25:13]]
+[[Genesis 25:16]]

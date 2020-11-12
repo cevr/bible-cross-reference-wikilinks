@@ -1,0 +1,5 @@
+[[Deuteronomy 28:49]]
+[[Isaiah 28:11]]
+[[Jeremiah 5:15]]
+[[John 10:34]]
+[[Romans 3:19]]

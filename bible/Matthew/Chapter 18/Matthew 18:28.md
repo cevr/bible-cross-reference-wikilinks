@@ -1,0 +1,7 @@
+[[Deuteronomy 15:2]]
+[[Nehemiah 5:7]]
+[[Nehemiah 5:10]]
+[[Nehemiah 10:31]]
+[[Isaiah 58:3]]
+[[Ezekiel 45:9]]
+[[Matthew 20:2]]

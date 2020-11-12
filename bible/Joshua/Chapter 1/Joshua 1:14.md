@@ -1,0 +1,5 @@
+[[Exodus 13:18]]
+[[Deuteronomy 20:8]]
+[[Deuteronomy 33:21]]
+[[Joshua 4:12]]
+[[Revelation 17:4]]

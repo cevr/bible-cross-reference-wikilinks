@@ -1,0 +1,6 @@
+[[Genesis 14:15]]
+[[Genesis 15:2]]
+[[1 Kings 11:24]]
+[[Isaiah 7:8]]
+[[Ezekiel 47:16]]
+[[Acts 9:2]]

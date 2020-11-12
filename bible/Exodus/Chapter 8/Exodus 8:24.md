@@ -1,0 +1,5 @@
+[[Exodus 8:4]]
+[[Exodus 8:14]]
+[[Exodus 8:21]]
+[[Psalms 78:45]]
+[[Psalms 105:31]]

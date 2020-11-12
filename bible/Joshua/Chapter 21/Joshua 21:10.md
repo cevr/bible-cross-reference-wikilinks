@@ -1,0 +1,7 @@
+[[Exodus 6:18]]
+[[Exodus 6:20]]
+[[Numbers 3:2]]
+[[Numbers 3:19]]
+[[Numbers 3:27]]
+[[Numbers 4:2]]
+[[Joshua 21:4]]

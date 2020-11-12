@@ -1,0 +1,8 @@
+[[Numbers 20:14]]
+[[1 Kings 20:14]]
+[[1 Kings 21:1]]
+[[1 Kings 21:15]]
+[[1 Kings 21:16]]
+[[2 Kings 9:25]]
+[[2 Chronicles 22:7]]
+[[Micah 1:13]]

@@ -1,0 +1,8 @@
+[[Job 25:3]]
+[[Psalms 145:9]]
+[[Matthew 5:9]]
+[[Luke 6:35]]
+[[John 13:35]]
+[[Acts 14:17]]
+[[Ephesians 5:1]]
+[[1 John 3:9]]

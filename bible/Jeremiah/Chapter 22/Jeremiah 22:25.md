@@ -1,0 +1,6 @@
+[[2 Kings 24:15]]
+[[Proverbs 10:24]]
+[[Jeremiah 21:7]]
+[[Jeremiah 22:28]]
+[[Jeremiah 34:20]]
+[[Jeremiah 38:16]]

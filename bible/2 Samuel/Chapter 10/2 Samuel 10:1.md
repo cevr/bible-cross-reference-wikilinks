@@ -1,0 +1,6 @@
+[[Judges 10:7]]
+[[Judges 11:12]]
+[[1 Samuel 11:1]]
+[[2 Samuel 17:27]]
+[[1 Chronicles 19:1]]
+[[1 Chronicles 19:19]]

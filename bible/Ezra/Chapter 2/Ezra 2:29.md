@@ -1,0 +1,7 @@
+[[Numbers 32:3]]
+[[Deuteronomy 32:49]]
+[[Ezra 10:43]]
+[[Nehemiah 7:33]]
+[[Isaiah 15:2]]
+[[Jeremiah 48:1]]
+[[Jeremiah 48:22]]

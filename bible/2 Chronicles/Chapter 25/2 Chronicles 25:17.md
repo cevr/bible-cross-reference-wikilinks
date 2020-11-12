@@ -1,0 +1,6 @@
+[[1 Samuel 27:1]]
+[[2 Samuel 2:14]]
+[[2 Kings 14:8]]
+[[2 Chronicles 25:13]]
+[[Proverbs 20:3]]
+[[Luke 2:43]]

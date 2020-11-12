@@ -1,0 +1,8 @@
+[[Exodus 12:30]]
+[[1 Samuel 9:16]]
+[[1 Kings 19:17]]
+[[Isaiah 15:3]]
+[[Jeremiah 14:2]]
+[[Jeremiah 25:34]]
+[[Jeremiah 48:3]]
+[[Amos 5:19]]

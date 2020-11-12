@@ -1,0 +1,6 @@
+[[1 Samuel 2:7]]
+[[1 Samuel 2:30]]
+[[Psalms 53:5]]
+[[Obadiah 1:2]]
+[[Micah 7:10]]
+[[Luke 1:51]]

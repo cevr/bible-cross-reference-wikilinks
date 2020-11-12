@@ -1,0 +1,7 @@
+[[Exodus 25:31]]
+[[Exodus 27:20]]
+[[Exodus 27:21]]
+[[Numbers 8:2]]
+[[Numbers 8:3]]
+[[Matthew 5:14]]
+[[Philippians 2:15]]

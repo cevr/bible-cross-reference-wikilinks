@@ -1,0 +1,6 @@
+[[Genesis 2:17]]
+[[Genesis 3:6]]
+[[Genesis 3:19]]
+[[John 5:21]]
+[[Romans 5:12]]
+[[1 Corinthians 15:45]]

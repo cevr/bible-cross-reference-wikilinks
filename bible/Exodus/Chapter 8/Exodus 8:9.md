@@ -1,0 +1,6 @@
+[[Exodus 7:25]]
+[[Exodus 8:11]]
+[[Numbers 14:20]]
+[[Judges 7:2]]
+[[1 Kings 18:25]]
+[[Isaiah 10:15]]

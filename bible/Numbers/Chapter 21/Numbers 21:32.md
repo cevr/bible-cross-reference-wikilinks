@@ -1,0 +1,7 @@
+[[Genesis 15:21]]
+[[Numbers 32:1]]
+[[Numbers 32:3]]
+[[Numbers 32:35]]
+[[Joshua 24:12]]
+[[Isaiah 16:8]]
+[[Jeremiah 48:32]]

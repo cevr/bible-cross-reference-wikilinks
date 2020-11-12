@@ -1,0 +1,7 @@
+[[2 Samuel 6:12]]
+[[1 Chronicles 13:14]]
+[[1 Chronicles 15:18]]
+[[1 Chronicles 15:21]]
+[[1 Chronicles 15:24]]
+[[1 Chronicles 16:5]]
+[[1 Chronicles 16:38]]

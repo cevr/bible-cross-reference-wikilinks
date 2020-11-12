@@ -1,0 +1,5 @@
+[[Leviticus 4:3]]
+[[Leviticus 8:14]]
+[[Numbers 6:9]]
+[[Ezekiel 44:17]]
+[[Hebrews 7:26]]

@@ -1,0 +1,6 @@
+[[Deuteronomy 20:8]]
+[[Matthew 13:21]]
+[[Matthew 20:16]]
+[[Luke 14:25]]
+[[Revelation 17:14]]
+[[Revelation 21:8]]

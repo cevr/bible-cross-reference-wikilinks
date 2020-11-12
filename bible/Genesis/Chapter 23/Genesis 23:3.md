@@ -1,0 +1,8 @@
+[[Genesis 10:15]]
+[[Genesis 23:5]]
+[[Genesis 23:7]]
+[[Genesis 25:10]]
+[[Genesis 27:46]]
+[[Genesis 49:30]]
+[[1 Samuel 26:6]]
+[[2 Samuel 23:39]]

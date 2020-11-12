@@ -1,0 +1,5 @@
+[[2 Samuel 3:27]]
+[[2 Samuel 4:6]]
+[[2 Samuel 5:6]]
+[[2 Samuel 20:10]]
+[[2 Samuel 20:12]]

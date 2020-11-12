@@ -1,0 +1,8 @@
+[[Genesis 4:8]]
+[[Genesis 9:5]]
+[[Genesis 27:35]]
+[[2 Samuel 14:6]]
+[[Proverbs 19:21]]
+[[Lamentations 3:37]]
+[[Acts 28:4]]
+[[James 4:13]]

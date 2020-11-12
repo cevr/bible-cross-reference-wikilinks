@@ -1,0 +1,6 @@
+[[Genesis 24:55]]
+[[Genesis 24:60]]
+[[Genesis 27:43]]
+[[Genesis 28:2]]
+[[Genesis 29:5]]
+[[Genesis 29:13]]

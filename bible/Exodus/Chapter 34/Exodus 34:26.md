@@ -1,0 +1,8 @@
+[[Exodus 23:19]]
+[[Deuteronomy 14:21]]
+[[Deuteronomy 26:2]]
+[[Deuteronomy 26:10]]
+[[Proverbs 3:9]]
+[[Matthew 6:33]]
+[[1 Corinthians 15:20]]
+[[James 1:18]]

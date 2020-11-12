@@ -1,0 +1,6 @@
+[[Psalms 17:5]]
+[[Psalms 37:23]]
+[[Psalms 119:116]]
+[[Proverbs 16:1]]
+[[Proverbs 20:24]]
+[[Daniel 5:23]]

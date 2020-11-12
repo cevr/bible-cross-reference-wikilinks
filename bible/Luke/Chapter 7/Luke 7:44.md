@@ -1,0 +1,7 @@
+[[Genesis 18:4]]
+[[Genesis 19:2]]
+[[Genesis 43:24]]
+[[Judges 19:21]]
+[[1 Samuel 25:41]]
+[[1 Timothy 5:10]]
+[[James 2:6]]

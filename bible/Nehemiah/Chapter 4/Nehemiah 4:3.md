@@ -1,0 +1,7 @@
+[[1 Kings 20:10]]
+[[1 Kings 20:18]]
+[[2 Kings 18:23]]
+[[Nehemiah 2:10]]
+[[Nehemiah 2:19]]
+[[Nehemiah 6:1]]
+[[Lamentations 5:18]]

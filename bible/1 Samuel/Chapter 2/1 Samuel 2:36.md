@@ -1,0 +1,6 @@
+[[Judges 17:10]]
+[[1 Samuel 2:29]]
+[[1 Kings 2:27]]
+[[2 Kings 23:9]]
+[[Ezekiel 44:10]]
+[[Malachi 1:13]]

@@ -1,0 +1,7 @@
+[[Exodus 28:26]]
+[[1 Samuel 2:18]]
+[[1 Samuel 2:28]]
+[[1 Samuel 4:4]]
+[[1 Samuel 4:21]]
+[[1 Samuel 22:9]]
+[[1 Samuel 22:20]]

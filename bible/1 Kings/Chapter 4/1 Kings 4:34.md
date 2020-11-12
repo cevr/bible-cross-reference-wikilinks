@@ -1,0 +1,5 @@
+[[1 Kings 10:1]]
+[[2 Chronicles 9:1]]
+[[2 Chronicles 9:23]]
+[[Isaiah 2:2]]
+[[Zechariah 8:23]]

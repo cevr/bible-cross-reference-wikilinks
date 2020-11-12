@@ -1,0 +1,7 @@
+[[Isaiah 7:14]]
+[[Isaiah 40:9]]
+[[Isaiah 43:1]]
+[[Lamentations 1:12]]
+[[John 1:29]]
+[[John 19:2]]
+[[Hebrews 12:2]]

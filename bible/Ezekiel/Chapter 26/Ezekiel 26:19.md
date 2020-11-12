@@ -1,0 +1,5 @@
+[[Isaiah 8:7]]
+[[Ezekiel 26:3]]
+[[Daniel 9:26]]
+[[Daniel 11:40]]
+[[Revelation 17:15]]

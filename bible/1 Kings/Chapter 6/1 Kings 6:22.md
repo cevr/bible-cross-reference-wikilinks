@@ -1,0 +1,6 @@
+[[Exodus 26:29]]
+[[Exodus 30:1]]
+[[Exodus 30:3]]
+[[Exodus 30:5]]
+[[1 Kings 6:20]]
+[[2 Chronicles 3:7]]

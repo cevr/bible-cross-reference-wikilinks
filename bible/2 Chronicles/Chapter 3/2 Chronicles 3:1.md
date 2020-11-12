@@ -1,0 +1,8 @@
+[[Genesis 22:2]]
+[[Genesis 22:14]]
+[[2 Samuel 24:16]]
+[[2 Samuel 24:18]]
+[[1 Kings 6:1]]
+[[1 Kings 6:6]]
+[[1 Chronicles 21:18]]
+[[1 Chronicles 22:1]]

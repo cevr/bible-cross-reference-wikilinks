@@ -1,0 +1,5 @@
+[[Genesis 13:10]]
+[[Genesis 14:2]]
+[[Genesis 14:10]]
+[[Genesis 19:20]]
+[[Genesis 19:22]]

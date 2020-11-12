@@ -1,0 +1,7 @@
+[[2 Chronicles 13:3]]
+[[2 Chronicles 13:12]]
+[[2 Chronicles 28:6]]
+[[Isaiah 10:16]]
+[[Isaiah 37:36]]
+[[Nahum 1:5]]
+[[1 Corinthians 10:22]]

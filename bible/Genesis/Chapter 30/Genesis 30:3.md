@@ -1,0 +1,6 @@
+[[Genesis 16:2]]
+[[Genesis 30:9]]
+[[Genesis 46:25]]
+[[Genesis 50:23]]
+[[Ruth 4:11]]
+[[Job 3:12]]

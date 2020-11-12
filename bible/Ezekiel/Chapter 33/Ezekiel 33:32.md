@@ -1,0 +1,5 @@
+[[Isaiah 42:20]]
+[[Jeremiah 42:21]]
+[[Mark 4:16]]
+[[Mark 6:20]]
+[[John 5:35]]

@@ -1,0 +1,5 @@
+[[1 Chronicles 26:20]]
+[[Ezra 8:33]]
+[[Mark 13:34]]
+[[Acts 20:31]]
+[[2 Timothy 4:5]]

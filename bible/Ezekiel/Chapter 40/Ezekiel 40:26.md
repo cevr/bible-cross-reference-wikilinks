@@ -1,0 +1,7 @@
+[[Psalms 92:12]]
+[[Songs of Solomon 7:7]]
+[[Ezekiel 40:6]]
+[[Ezekiel 40:16]]
+[[Ezekiel 40:22]]
+[[Ezekiel 40:29]]
+[[2 Peter 3:18]]

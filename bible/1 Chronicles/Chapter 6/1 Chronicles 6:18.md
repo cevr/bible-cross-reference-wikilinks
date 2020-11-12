@@ -1,0 +1,5 @@
+[[1 Chronicles 6:2]]
+[[1 Chronicles 6:13]]
+[[1 Chronicles 15:17]]
+[[1 Chronicles 23:12]]
+[[Psalms 88:1]]

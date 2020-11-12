@@ -1,0 +1,5 @@
+[[Proverbs 7:17]]
+[[Songs of Solomon 3:6]]
+[[Isaiah 57:9]]
+[[Luke 7:37]]
+[[1 Thessalonians 4:4]]

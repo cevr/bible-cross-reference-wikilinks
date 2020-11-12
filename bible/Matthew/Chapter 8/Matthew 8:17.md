@@ -1,0 +1,6 @@
+[[Genesis 22:6]]
+[[Isaiah 53:4]]
+[[Matthew 1:22]]
+[[Matthew 2:15]]
+[[Matthew 2:23]]
+[[1 Peter 2:24]]

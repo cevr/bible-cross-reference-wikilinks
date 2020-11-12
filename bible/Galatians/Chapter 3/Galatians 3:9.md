@@ -1,0 +1,7 @@
+[[Romans 4:11]]
+[[Romans 4:16]]
+[[Romans 4:24]]
+[[Galatians 3:7]]
+[[Galatians 3:14]]
+[[Galatians 3:29]]
+[[Galatians 4:28]]

@@ -1,0 +1,6 @@
+[[Exodus 29:27]]
+[[Exodus 29:28]]
+[[Leviticus 7:30]]
+[[Leviticus 7:34]]
+[[Leviticus 22:7]]
+[[Deuteronomy 12:27]]

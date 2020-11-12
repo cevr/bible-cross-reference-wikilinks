@@ -1,0 +1,7 @@
+[[Deuteronomy 28:41]]
+[[2 Kings 20:17]]
+[[2 Kings 20:18]]
+[[2 Kings 24:15]]
+[[Isaiah 39:6]]
+[[Isaiah 39:7]]
+[[Jeremiah 41:1]]

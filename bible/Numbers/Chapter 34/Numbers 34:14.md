@@ -1,0 +1,5 @@
+[[Numbers 32:23]]
+[[Numbers 32:33]]
+[[Deuteronomy 3:12]]
+[[Joshua 13:8]]
+[[Joshua 14:2]]

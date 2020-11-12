@@ -1,0 +1,7 @@
+[[Exodus 19:6]]
+[[Daniel 7:18]]
+[[Daniel 7:27]]
+[[1 Peter 2:5]]
+[[Revelation 1:6]]
+[[Revelation 20:6]]
+[[Revelation 22:5]]

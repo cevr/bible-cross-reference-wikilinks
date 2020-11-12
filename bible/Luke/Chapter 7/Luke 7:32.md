@@ -1,0 +1,6 @@
+[[Proverbs 17:16]]
+[[Isaiah 28:9]]
+[[Isaiah 29:11]]
+[[Jeremiah 5:3]]
+[[Zechariah 8:5]]
+[[Matthew 11:16]]

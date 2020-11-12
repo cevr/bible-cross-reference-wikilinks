@@ -1,0 +1,6 @@
+[[Job 20:7]]
+[[Psalms 37:35]]
+[[Isaiah 17:14]]
+[[Isaiah 29:8]]
+[[Isaiah 49:25]]
+[[Zephaniah 3:19]]

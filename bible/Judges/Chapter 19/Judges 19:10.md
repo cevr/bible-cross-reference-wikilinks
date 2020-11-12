@@ -1,0 +1,6 @@
+[[Joshua 15:8]]
+[[Joshua 15:63]]
+[[Joshua 18:28]]
+[[Judges 1:8]]
+[[2 Samuel 5:6]]
+[[1 Chronicles 11:4]]

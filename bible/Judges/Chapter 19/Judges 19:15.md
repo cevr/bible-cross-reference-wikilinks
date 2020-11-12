@@ -1,0 +1,7 @@
+[[Genesis 18:2]]
+[[Genesis 19:2]]
+[[Judges 19:18]]
+[[Judges 20:4]]
+[[Matthew 25:35]]
+[[Matthew 25:43]]
+[[Hebrews 13:2]]

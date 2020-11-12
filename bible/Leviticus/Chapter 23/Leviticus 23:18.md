@@ -1,0 +1,5 @@
+[[Leviticus 1:3]]
+[[Leviticus 23:12]]
+[[Numbers 15:4]]
+[[Numbers 28:27]]
+[[Malachi 1:13]]

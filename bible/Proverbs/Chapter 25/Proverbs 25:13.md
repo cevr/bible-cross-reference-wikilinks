@@ -1,0 +1,5 @@
+[[Joshua 22:32]]
+[[Proverbs 13:17]]
+[[Proverbs 25:25]]
+[[Proverbs 26:6]]
+[[Philippians 2:25]]

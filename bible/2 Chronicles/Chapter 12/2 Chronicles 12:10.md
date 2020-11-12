@@ -1,0 +1,6 @@
+[[2 Samuel 8:18]]
+[[2 Samuel 23:23]]
+[[1 Kings 14:27]]
+[[1 Chronicles 11:25]]
+[[Songs of Solomon 3:7]]
+[[Lamentations 4:1]]

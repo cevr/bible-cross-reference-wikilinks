@@ -1,0 +1,7 @@
+[[Genesis 14:6]]
+[[Genesis 36:2]]
+[[Genesis 36:22]]
+[[Genesis 36:29]]
+[[Deuteronomy 2:12]]
+[[Deuteronomy 2:22]]
+[[1 Chronicles 1:38]]

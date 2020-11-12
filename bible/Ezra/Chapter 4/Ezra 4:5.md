@@ -1,0 +1,6 @@
+[[Ezra 4:24]]
+[[Ezra 5:5]]
+[[Psalms 2:1]]
+[[Daniel 10:13]]
+[[Nahum 1:11]]
+[[Acts 24:1]]

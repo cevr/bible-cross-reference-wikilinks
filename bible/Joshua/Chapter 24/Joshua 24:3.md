@@ -1,0 +1,7 @@
+[[Genesis 12:1]]
+[[Genesis 15:5]]
+[[Genesis 21:2]]
+[[Genesis 21:3]]
+[[Nehemiah 9:7]]
+[[Psalms 127:3]]
+[[Acts 7:2]]

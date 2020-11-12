@@ -1,0 +1,7 @@
+[[Ecclesiastes 7:1]]
+[[Romans 12:17]]
+[[Romans 14:16]]
+[[1 Corinthians 10:32]]
+[[2 Corinthians 8:21]]
+[[1 Thessalonians 5:22]]
+[[1 Peter 2:12]]

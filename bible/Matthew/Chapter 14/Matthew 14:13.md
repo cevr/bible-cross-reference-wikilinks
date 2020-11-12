@@ -1,0 +1,7 @@
+[[Matthew 10:23]]
+[[Matthew 12:15]]
+[[Matthew 14:1]]
+[[Matthew 15:32]]
+[[Mark 6:30]]
+[[Luke 9:10]]
+[[John 6:1]]

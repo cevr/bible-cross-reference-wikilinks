@@ -1,0 +1,6 @@
+[[1 Samuel 7:6]]
+[[1 Samuel 19:5]]
+[[Songs of Solomon 8:6]]
+[[Acts 20:24]]
+[[Acts 21:13]]
+[[2 Corinthians 5:14]]

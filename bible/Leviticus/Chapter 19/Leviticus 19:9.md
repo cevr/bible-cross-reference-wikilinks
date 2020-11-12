@@ -1,0 +1,8 @@
+[[Leviticus 23:10]]
+[[Leviticus 23:22]]
+[[Leviticus 23:29]]
+[[Deuteronomy 24:19]]
+[[Deuteronomy 24:21]]
+[[Ruth 2:2]]
+[[Ruth 2:8]]
+[[Ruth 2:15]]

@@ -1,0 +1,7 @@
+[[Joshua 22:12]]
+[[Judges 8:10]]
+[[Judges 20:15]]
+[[Judges 20:17]]
+[[2 Samuel 14:13]]
+[[2 Samuel 24:9]]
+[[2 Kings 3:26]]

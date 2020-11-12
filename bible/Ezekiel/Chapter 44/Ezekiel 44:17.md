@@ -1,0 +1,7 @@
+[[Exodus 28:39]]
+[[Exodus 28:43]]
+[[Exodus 39:27]]
+[[Leviticus 16:4]]
+[[Ezekiel 44:27]]
+[[Revelation 4:4]]
+[[Revelation 19:8]]

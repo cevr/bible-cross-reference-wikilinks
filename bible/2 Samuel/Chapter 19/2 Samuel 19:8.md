@@ -1,0 +1,8 @@
+[[2 Samuel 15:2]]
+[[2 Samuel 18:4]]
+[[2 Samuel 18:6]]
+[[2 Samuel 18:17]]
+[[2 Samuel 18:24]]
+[[2 Samuel 19:3]]
+[[1 Kings 22:36]]
+[[2 Kings 14:12]]

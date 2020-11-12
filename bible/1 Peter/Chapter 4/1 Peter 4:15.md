@@ -1,0 +1,7 @@
+[[Matthew 5:11]]
+[[1 Thessalonians 4:11]]
+[[2 Thessalonians 3:11]]
+[[1 Timothy 5:13]]
+[[2 Timothy 2:9]]
+[[1 Peter 2:19]]
+[[1 Peter 3:17]]

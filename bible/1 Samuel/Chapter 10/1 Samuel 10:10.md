@@ -1,0 +1,7 @@
+[[Judges 3:10]]
+[[Judges 15:14]]
+[[1 Samuel 10:5]]
+[[1 Samuel 11:6]]
+[[1 Samuel 16:13]]
+[[1 Samuel 19:20]]
+[[1 Samuel 19:24]]

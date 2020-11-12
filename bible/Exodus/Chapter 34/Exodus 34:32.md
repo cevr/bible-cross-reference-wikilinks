@@ -1,0 +1,8 @@
+[[Exodus 21:1]]
+[[Exodus 24:3]]
+[[Exodus 35:1]]
+[[Numbers 15:40]]
+[[1 Kings 22:14]]
+[[Matthew 28:20]]
+[[1 Corinthians 11:23]]
+[[1 Corinthians 15:3]]

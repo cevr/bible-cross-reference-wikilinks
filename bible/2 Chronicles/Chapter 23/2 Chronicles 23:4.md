@@ -1,0 +1,6 @@
+[[1 Chronicles 9:25]]
+[[1 Chronicles 23:3]]
+[[1 Chronicles 23:28]]
+[[1 Chronicles 24:3]]
+[[1 Chronicles 26:13]]
+[[Luke 1:8]]

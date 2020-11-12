@@ -1,0 +1,7 @@
+[[2 Kings 22:11]]
+[[Jeremiah 13:18]]
+[[Jeremiah 23:9]]
+[[Jeremiah 36:24]]
+[[Jeremiah 38:1]]
+[[Amos 7:10]]
+[[Acts 24:25]]

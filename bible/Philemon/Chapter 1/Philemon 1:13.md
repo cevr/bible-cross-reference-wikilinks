@@ -1,0 +1,6 @@
+[[1 Corinthians 16:17]]
+[[Ephesians 3:1]]
+[[Ephesians 4:1]]
+[[Philippians 1:7]]
+[[Philippians 2:30]]
+[[Philemon 1:1]]

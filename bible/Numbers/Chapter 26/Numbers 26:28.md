@@ -1,0 +1,7 @@
+[[Genesis 41:51]]
+[[Genesis 41:52]]
+[[Genesis 46:20]]
+[[Genesis 48:5]]
+[[Genesis 48:13]]
+[[1 Chronicles 5:23]]
+[[1 Chronicles 7:14]]

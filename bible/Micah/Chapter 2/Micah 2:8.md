@@ -1,0 +1,5 @@
+[[2 Samuel 20:19]]
+[[2 Chronicles 28:5]]
+[[Psalms 55:20]]
+[[Psalms 120:6]]
+[[Isaiah 9:21]]

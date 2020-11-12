@@ -1,0 +1,5 @@
+[[Genesis 46:10]]
+[[Exodus 6:14]]
+[[Exodus 6:15]]
+[[1 Kings 7:21]]
+[[1 Chronicles 4:24]]

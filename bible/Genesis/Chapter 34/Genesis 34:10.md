@@ -1,0 +1,5 @@
+[[Genesis 13:9]]
+[[Genesis 20:15]]
+[[Genesis 34:21]]
+[[Genesis 42:34]]
+[[Genesis 47:27]]

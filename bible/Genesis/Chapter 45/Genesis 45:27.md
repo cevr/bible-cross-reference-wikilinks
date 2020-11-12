@@ -1,0 +1,7 @@
+[[Genesis 45:19]]
+[[Judges 15:19]]
+[[1 Samuel 30:12]]
+[[Psalms 85:6]]
+[[Proverbs 25:25]]
+[[Isaiah 57:15]]
+[[Hosea 6:2]]

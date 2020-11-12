@@ -1,0 +1,6 @@
+[[2 Chronicles 11:1]]
+[[2 Chronicles 13:3]]
+[[2 Chronicles 14:7]]
+[[2 Chronicles 14:8]]
+[[2 Chronicles 17:14]]
+[[2 Chronicles 25:5]]

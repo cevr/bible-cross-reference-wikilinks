@@ -1,0 +1,8 @@
+[[Psalms 17:13]]
+[[Isaiah 10:5]]
+[[Isaiah 29:16]]
+[[Isaiah 37:23]]
+[[Isaiah 45:9]]
+[[Jeremiah 51:20]]
+[[Ezekiel 28:9]]
+[[Romans 9:20]]

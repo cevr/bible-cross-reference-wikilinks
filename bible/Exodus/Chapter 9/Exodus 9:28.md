@@ -1,0 +1,8 @@
+[[Exodus 8:4]]
+[[Exodus 8:8]]
+[[Exodus 8:28]]
+[[Exodus 10:17]]
+[[Exodus 11:1]]
+[[Numbers 21:7]]
+[[Psalms 29:3]]
+[[Acts 8:24]]

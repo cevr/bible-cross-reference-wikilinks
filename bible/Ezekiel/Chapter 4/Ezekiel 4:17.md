@@ -1,0 +1,5 @@
+[[Leviticus 26:39]]
+[[2 Kings 6:25]]
+[[2 Chronicles 34:24]]
+[[Ezekiel 24:23]]
+[[Ezekiel 33:10]]

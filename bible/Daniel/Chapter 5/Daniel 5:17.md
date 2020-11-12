@@ -1,0 +1,8 @@
+[[Genesis 14:23]]
+[[2 Kings 3:13]]
+[[2 Kings 5:16]]
+[[2 Kings 5:26]]
+[[Psalms 119:46]]
+[[Daniel 2:6]]
+[[Daniel 5:29]]
+[[Acts 8:20]]

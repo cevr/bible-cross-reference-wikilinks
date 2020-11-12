@@ -1,0 +1,6 @@
+[[Leviticus 11:3]]
+[[Leviticus 11:47]]
+[[Psalms 104:4]]
+[[Ezekiel 1:13]]
+[[Daniel 10:6]]
+[[Revelation 1:15]]

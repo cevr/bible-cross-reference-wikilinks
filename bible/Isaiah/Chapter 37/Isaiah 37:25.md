@@ -1,0 +1,7 @@
+[[Deuteronomy 11:10]]
+[[1 Kings 20:10]]
+[[2 Kings 19:23]]
+[[Isaiah 10:13]]
+[[Isaiah 10:14]]
+[[Isaiah 19:5]]
+[[Isaiah 36:12]]

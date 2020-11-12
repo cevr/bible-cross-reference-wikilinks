@@ -1,0 +1,6 @@
+[[Leviticus 1:3]]
+[[Leviticus 1:4]]
+[[Leviticus 4:20]]
+[[Leviticus 5:15]]
+[[Leviticus 6:6]]
+[[1 Timothy 2:5]]

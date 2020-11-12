@@ -1,0 +1,8 @@
+[[Genesis 32:30]]
+[[Genesis 32:31]]
+[[Exodus 19:19]]
+[[Exodus 33:20]]
+[[Numbers 14:14]]
+[[Deuteronomy 4:33]]
+[[Deuteronomy 5:4]]
+[[Judges 13:22]]

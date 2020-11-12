@@ -1,0 +1,5 @@
+[[Leviticus 13:10]]
+[[Numbers 12:10]]
+[[2 Kings 5:25]]
+[[2 Chronicles 16:10]]
+[[2 Chronicles 25:16]]

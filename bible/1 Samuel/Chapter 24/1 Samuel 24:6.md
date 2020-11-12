@@ -1,0 +1,8 @@
+[[1 Samuel 26:9]]
+[[2 Samuel 1:14]]
+[[2 Samuel 24:10]]
+[[1 Kings 21:3]]
+[[Job 31:29]]
+[[Matthew 5:44]]
+[[Romans 12:14]]
+[[1 Thessalonians 5:15]]

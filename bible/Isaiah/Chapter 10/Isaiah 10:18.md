@@ -1,0 +1,6 @@
+[[2 Kings 19:23]]
+[[2 Kings 19:28]]
+[[Isaiah 9:18]]
+[[Isaiah 10:33]]
+[[Jeremiah 21:14]]
+[[Ezekiel 20:47]]

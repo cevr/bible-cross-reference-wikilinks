@@ -1,0 +1,7 @@
+[[Exodus 32:7]]
+[[2 Kings 15:34]]
+[[2 Chronicles 26:4]]
+[[2 Chronicles 26:16]]
+[[Psalms 119:120]]
+[[Isaiah 1:4]]
+[[Acts 5:13]]

@@ -1,0 +1,8 @@
+[[Numbers 5:19]]
+[[Joshua 16:7]]
+[[1 Samuel 14:24]]
+[[1 Kings 16:34]]
+[[1 Kings 22:16]]
+[[Malachi 1:4]]
+[[Matthew 26:63]]
+[[Acts 19:13]]

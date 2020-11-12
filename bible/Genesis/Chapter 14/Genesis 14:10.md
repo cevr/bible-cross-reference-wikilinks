@@ -1,0 +1,7 @@
+[[Genesis 11:3]]
+[[Genesis 19:17]]
+[[Genesis 19:30]]
+[[Joshua 8:24]]
+[[Psalms 83:10]]
+[[Isaiah 24:18]]
+[[Jeremiah 48:44]]

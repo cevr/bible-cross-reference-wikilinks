@@ -1,0 +1,5 @@
+[[1 Chronicles 16:16]]
+[[Romans 3:5]]
+[[Romans 6:19]]
+[[1 Corinthians 15:32]]
+[[Hebrews 9:17]]

@@ -1,0 +1,8 @@
+[[Numbers 4:15]]
+[[Numbers 7:9]]
+[[Joshua 3:3]]
+[[1 Kings 8:5]]
+[[1 Chronicles 15:2]]
+[[1 Chronicles 15:15]]
+[[1 Chronicles 15:25]]
+[[2 Chronicles 5:6]]

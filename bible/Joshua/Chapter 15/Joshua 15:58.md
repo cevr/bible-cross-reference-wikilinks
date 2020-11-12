@@ -1,0 +1,5 @@
+[[1 Chronicles 2:45]]
+[[1 Chronicles 4:18]]
+[[1 Chronicles 4:39]]
+[[1 Chronicles 12:7]]
+[[2 Chronicles 11:7]]

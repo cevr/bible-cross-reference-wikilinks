@@ -1,0 +1,7 @@
+[[Exodus 34:29]]
+[[Ecclesiastes 8:1]]
+[[Matthew 5:22]]
+[[Matthew 13:43]]
+[[Matthew 17:2]]
+[[2 Corinthians 3:7]]
+[[2 Corinthians 3:18]]

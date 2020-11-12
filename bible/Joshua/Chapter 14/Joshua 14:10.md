@@ -1,0 +1,6 @@
+[[Numbers 14:30]]
+[[Numbers 14:33]]
+[[Numbers 14:34]]
+[[Numbers 14:38]]
+[[Joshua 11:18]]
+[[Psalms 91:7]]

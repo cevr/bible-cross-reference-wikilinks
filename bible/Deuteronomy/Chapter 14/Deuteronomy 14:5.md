@@ -1,0 +1,5 @@
+[[Deuteronomy 12:15]]
+[[Deuteronomy 12:22]]
+[[1 Kings 5:3]]
+[[Job 39:1]]
+[[Isaiah 51:20]]

@@ -1,0 +1,6 @@
+[[Exodus 32:12]]
+[[Numbers 14:16]]
+[[Deuteronomy 1:27]]
+[[Deuteronomy 32:27]]
+[[Joshua 7:9]]
+[[Ezekiel 20:9]]

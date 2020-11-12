@@ -1,0 +1,5 @@
+[[2 Chronicles 31:12]]
+[[Isaiah 1:10]]
+[[Jeremiah 3:10]]
+[[Jeremiah 7:21]]
+[[Micah 6:6]]

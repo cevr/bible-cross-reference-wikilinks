@@ -1,0 +1,5 @@
+[[Deuteronomy 28:25]]
+[[Deuteronomy 28:41]]
+[[2 Chronicles 11:4]]
+[[Acts 7:26]]
+[[Acts 13:26]]

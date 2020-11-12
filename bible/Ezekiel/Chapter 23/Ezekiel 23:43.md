@@ -1,0 +1,5 @@
+[[Ezra 9:7]]
+[[Psalms 106:6]]
+[[Jeremiah 13:23]]
+[[Ezekiel 23:3]]
+[[Daniel 9:16]]

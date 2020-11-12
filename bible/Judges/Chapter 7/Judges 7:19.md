@@ -1,0 +1,8 @@
+[[Exodus 14:24]]
+[[Judges 7:16]]
+[[Psalms 2:9]]
+[[Jeremiah 13:13]]
+[[Jeremiah 19:1]]
+[[Matthew 25:6]]
+[[1 Thessalonians 5:2]]
+[[Revelation 16:15]]

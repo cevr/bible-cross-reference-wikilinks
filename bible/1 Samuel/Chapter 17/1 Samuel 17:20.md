@@ -1,0 +1,7 @@
+[[Joshua 3:1]]
+[[1 Samuel 15:12]]
+[[1 Samuel 17:28]]
+[[1 Samuel 26:5]]
+[[1 Samuel 26:7]]
+[[Luke 19:43]]
+[[Ephesians 6:1]]

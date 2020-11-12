@@ -1,0 +1,5 @@
+[[Revelation 15:1]]
+[[Revelation 16:1]]
+[[Revelation 17:1]]
+[[Revelation 19:7]]
+[[Revelation 21:2]]

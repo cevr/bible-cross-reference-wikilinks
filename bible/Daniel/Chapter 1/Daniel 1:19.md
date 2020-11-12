@@ -1,0 +1,6 @@
+[[Genesis 41:46]]
+[[1 Kings 17:1]]
+[[Proverbs 22:29]]
+[[Jeremiah 15:19]]
+[[Daniel 1:4]]
+[[Daniel 1:5]]

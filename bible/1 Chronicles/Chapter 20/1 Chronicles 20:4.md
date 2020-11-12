@@ -1,0 +1,7 @@
+[[Joshua 12:12]]
+[[Joshua 16:3]]
+[[2 Samuel 21:15]]
+[[2 Samuel 21:18]]
+[[1 Chronicles 11:29]]
+[[1 Chronicles 14:16]]
+[[1 Chronicles 27:11]]

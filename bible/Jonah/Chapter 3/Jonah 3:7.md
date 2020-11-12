@@ -1,0 +1,6 @@
+[[2 Chronicles 20:3]]
+[[Ezra 8:21]]
+[[Joel 1:18]]
+[[Joel 2:15]]
+[[Jonah 3:5]]
+[[Romans 8:20]]

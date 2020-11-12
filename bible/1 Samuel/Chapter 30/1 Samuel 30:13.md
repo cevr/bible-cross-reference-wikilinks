@@ -1,0 +1,6 @@
+[[2 Samuel 1:3]]
+[[2 Samuel 1:8]]
+[[2 Samuel 1:13]]
+[[Job 31:13]]
+[[Proverbs 12:10]]
+[[James 2:13]]

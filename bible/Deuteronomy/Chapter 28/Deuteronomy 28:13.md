@@ -1,0 +1,7 @@
+[[Exodus 15:26]]
+[[Numbers 24:18]]
+[[Deuteronomy 4:6]]
+[[Deuteronomy 28:1]]
+[[Deuteronomy 28:43]]
+[[Isaiah 9:14]]
+[[Philippians 1:27]]

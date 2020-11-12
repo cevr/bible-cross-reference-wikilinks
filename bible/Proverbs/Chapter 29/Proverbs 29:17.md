@@ -1,0 +1,6 @@
+[[Proverbs 10:1]]
+[[Proverbs 13:24]]
+[[Proverbs 19:18]]
+[[Proverbs 22:15]]
+[[Proverbs 23:13]]
+[[Proverbs 29:15]]

@@ -1,0 +1,7 @@
+[[Genesis 1:26]]
+[[Genesis 3:16]]
+[[Genesis 5:1]]
+[[Genesis 9:6]]
+[[Psalms 8:6]]
+[[1 Corinthians 11:3]]
+[[James 3:9]]

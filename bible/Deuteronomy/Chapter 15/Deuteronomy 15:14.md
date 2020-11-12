@@ -1,0 +1,6 @@
+[[Nehemiah 8:10]]
+[[Psalms 68:10]]
+[[Psalms 112:9]]
+[[Proverbs 10:22]]
+[[Acts 20:35]]
+[[1 Corinthians 16:2]]

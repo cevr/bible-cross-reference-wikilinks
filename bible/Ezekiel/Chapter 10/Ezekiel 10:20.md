@@ -1,0 +1,7 @@
+[[1 Kings 6:29]]
+[[1 Kings 7:36]]
+[[Ezekiel 1:1]]
+[[Ezekiel 1:5]]
+[[Ezekiel 1:22]]
+[[Ezekiel 3:23]]
+[[Ezekiel 10:15]]

@@ -1,0 +1,8 @@
+[[Jeremiah 14:14]]
+[[Jeremiah 23:21]]
+[[Jeremiah 28:15]]
+[[Jeremiah 29:9]]
+[[Jeremiah 29:23]]
+[[Ezekiel 13:8]]
+[[Ezekiel 13:22]]
+[[2 Peter 2:1]]

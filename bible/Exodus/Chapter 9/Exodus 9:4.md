@@ -1,0 +1,6 @@
+[[Exodus 8:19]]
+[[Exodus 8:22]]
+[[Exodus 10:23]]
+[[Exodus 12:13]]
+[[Isaiah 65:13]]
+[[Malachi 3:18]]

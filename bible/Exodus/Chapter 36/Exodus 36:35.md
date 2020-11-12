@@ -1,0 +1,5 @@
+[[Exodus 26:31]]
+[[Exodus 30:6]]
+[[Exodus 40:21]]
+[[Matthew 27:51]]
+[[Hebrews 10:20]]

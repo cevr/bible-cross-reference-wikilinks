@@ -1,0 +1,5 @@
+[[Isaiah 39:7]]
+[[Isaiah 56:3]]
+[[1 Corinthians 7:32]]
+[[1 Corinthians 9:5]]
+[[1 Corinthians 9:15]]

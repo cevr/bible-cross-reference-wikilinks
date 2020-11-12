@@ -1,0 +1,5 @@
+[[Matthew 5:46]]
+[[Mark 2:15]]
+[[Luke 5:29]]
+[[John 9:31]]
+[[1 Timothy 1:13]]

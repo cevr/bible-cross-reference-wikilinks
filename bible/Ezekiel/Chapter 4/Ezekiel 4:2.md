@@ -1,0 +1,8 @@
+[[Isaiah 22:7]]
+[[Jeremiah 6:6]]
+[[Jeremiah 32:24]]
+[[Jeremiah 39:1]]
+[[Jeremiah 52:4]]
+[[Ezekiel 21:22]]
+[[Ezekiel 21:27]]
+[[Luke 19:42]]

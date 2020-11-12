@@ -1,0 +1,5 @@
+[[Joshua 8:15]]
+[[Joshua 8:24]]
+[[Lamentations 1:3]]
+[[Hosea 9:9]]
+[[Hosea 10:9]]

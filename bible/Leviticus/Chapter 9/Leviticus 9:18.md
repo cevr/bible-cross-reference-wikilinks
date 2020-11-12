@@ -1,0 +1,6 @@
+[[Leviticus 3:1]]
+[[Leviticus 7:11]]
+[[Romans 5:1]]
+[[Romans 5:10]]
+[[Ephesians 2:14]]
+[[Colossians 1:20]]

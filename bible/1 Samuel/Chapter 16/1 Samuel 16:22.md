@@ -1,0 +1,5 @@
+[[Genesis 30:27]]
+[[Genesis 39:4]]
+[[Deuteronomy 1:38]]
+[[Psalms 131:1]]
+[[Daniel 1:5]]

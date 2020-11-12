@@ -1,0 +1,6 @@
+[[Leviticus 14:34]]
+[[Leviticus 25:2]]
+[[Numbers 34:2]]
+[[Deuteronomy 12:9]]
+[[Deuteronomy 19:1]]
+[[Joshua 20:2]]

@@ -1,0 +1,5 @@
+[[Deuteronomy 17:18]]
+[[2 Chronicles 34:30]]
+[[Ezra 7:1]]
+[[Nehemiah 8:1]]
+[[Matthew 2:4]]

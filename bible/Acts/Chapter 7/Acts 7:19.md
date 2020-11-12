@@ -1,0 +1,5 @@
+[[Exodus 1:9]]
+[[Psalms 83:4]]
+[[Psalms 105:25]]
+[[Psalms 129:1]]
+[[Revelation 12:4]]

@@ -1,0 +1,5 @@
+[[Exodus 7:21]]
+[[Numbers 11:5]]
+[[Ezekiel 47:10]]
+[[Habakkuk 1:15]]
+[[Habakkuk 1:17]]

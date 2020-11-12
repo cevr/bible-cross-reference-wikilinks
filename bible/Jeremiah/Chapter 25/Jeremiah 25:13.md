@@ -1,0 +1,6 @@
+[[Isaiah 55:11]]
+[[Jeremiah 1:5]]
+[[Jeremiah 1:10]]
+[[Daniel 5:28]]
+[[Daniel 5:31]]
+[[Revelation 10:11]]

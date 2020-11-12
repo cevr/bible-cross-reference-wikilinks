@@ -1,0 +1,5 @@
+[[Exodus 12:49]]
+[[Leviticus 4:27]]
+[[Numbers 35:15]]
+[[Joshua 8:33]]
+[[1 Kings 8:41]]

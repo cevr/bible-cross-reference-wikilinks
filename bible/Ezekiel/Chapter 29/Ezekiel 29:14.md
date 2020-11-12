@@ -1,0 +1,6 @@
+[[Genesis 10:14]]
+[[1 Chronicles 1:12]]
+[[Isaiah 11:11]]
+[[Jeremiah 44:1]]
+[[Ezekiel 30:14]]
+[[Zechariah 10:11]]

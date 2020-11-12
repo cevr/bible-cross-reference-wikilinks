@@ -1,0 +1,8 @@
+[[Deuteronomy 32:37]]
+[[Judges 10:14]]
+[[2 Chronicles 28:22]]
+[[Isaiah 45:20]]
+[[Isaiah 46:7]]
+[[Jeremiah 2:28]]
+[[Jeremiah 18:15]]
+[[Jeremiah 44:17]]

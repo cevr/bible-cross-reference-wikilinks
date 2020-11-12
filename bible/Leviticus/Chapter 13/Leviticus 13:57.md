@@ -1,0 +1,6 @@
+[[Isaiah 33:14]]
+[[Matthew 3:12]]
+[[Matthew 22:7]]
+[[Matthew 25:41]]
+[[Revelation 21:8]]
+[[Revelation 21:27]]

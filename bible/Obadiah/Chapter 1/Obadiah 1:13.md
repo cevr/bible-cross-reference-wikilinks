@@ -1,0 +1,6 @@
+[[2 Samuel 16:12]]
+[[Job 31:29]]
+[[Psalms 22:17]]
+[[Ezekiel 35:5]]
+[[Ezekiel 35:10]]
+[[Zechariah 1:15]]

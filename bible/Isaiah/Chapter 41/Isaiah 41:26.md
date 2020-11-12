@@ -1,0 +1,5 @@
+[[Isaiah 41:22]]
+[[Isaiah 43:9]]
+[[Isaiah 44:7]]
+[[Isaiah 45:21]]
+[[Habakkuk 2:18]]

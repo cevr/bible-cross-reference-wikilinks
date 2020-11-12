@@ -1,0 +1,7 @@
+[[Isaiah 27:9]]
+[[Ezekiel 16:41]]
+[[Ezekiel 22:15]]
+[[Ezekiel 23:3]]
+[[Ezekiel 23:19]]
+[[Micah 5:10]]
+[[Zechariah 13:2]]

@@ -1,0 +1,5 @@
+[[1 Kings 6:30]]
+[[2 Chronicles 3:6]]
+[[Revelation 21:11]]
+[[Revelation 21:19]]
+[[Revelation 21:21]]

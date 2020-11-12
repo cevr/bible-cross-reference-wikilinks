@@ -1,0 +1,6 @@
+[[Genesis 11:31]]
+[[Genesis 24:10]]
+[[Genesis 27:43]]
+[[Genesis 28:10]]
+[[Acts 7:2]]
+[[Acts 7:4]]

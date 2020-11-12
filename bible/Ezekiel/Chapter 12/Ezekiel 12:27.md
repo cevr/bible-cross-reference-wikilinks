@@ -1,0 +1,5 @@
+[[Isaiah 28:14]]
+[[Ezekiel 12:22]]
+[[Daniel 10:14]]
+[[Amos 6:3]]
+[[2 Peter 3:4]]

@@ -1,0 +1,7 @@
+[[Genesis 38:30]]
+[[Genesis 46:12]]
+[[Numbers 26:20]]
+[[1 Chronicles 18:17]]
+[[1 Chronicles 23:28]]
+[[Nehemiah 10:21]]
+[[Matthew 1:3]]

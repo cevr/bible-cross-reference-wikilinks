@@ -1,0 +1,7 @@
+[[Exodus 28:8]]
+[[Exodus 29:5]]
+[[Leviticus 8:7]]
+[[Isaiah 11:5]]
+[[Matthew 28:20]]
+[[1 Corinthians 11:23]]
+[[Revelation 1:13]]

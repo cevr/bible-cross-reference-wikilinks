@@ -1,0 +1,5 @@
+[[Genesis 16:15]]
+[[Genesis 20:2]]
+[[Genesis 22:24]]
+[[Judges 9:1]]
+[[Judges 9:18]]

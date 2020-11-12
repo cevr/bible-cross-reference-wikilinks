@@ -1,0 +1,5 @@
+[[Joshua 15:48]]
+[[Judges 2:16]]
+[[Judges 3:9]]
+[[Judges 3:27]]
+[[Judges 12:8]]

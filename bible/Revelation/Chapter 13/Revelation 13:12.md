@@ -1,0 +1,7 @@
+[[2 Thessalonians 2:4]]
+[[Revelation 13:3]]
+[[Revelation 13:14]]
+[[Revelation 14:9]]
+[[Revelation 14:11]]
+[[Revelation 17:10]]
+[[Revelation 19:20]]

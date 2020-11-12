@@ -1,0 +1,6 @@
+[[Leviticus 26:36]]
+[[Leviticus 26:37]]
+[[Jeremiah 46:6]]
+[[Jeremiah 46:21]]
+[[Jeremiah 50:16]]
+[[Jeremiah 51:9]]
