@@ -1,5 +1,5 @@
-const fs = require("fs");
-const path = require("path");
+let fs = require("fs");
+let path = require("path");
 
 
 // abbreviations -> name
@@ -88,7 +88,7 @@ let getChapter = (name) => {
   return `Chapter ${chapter}`
 }
 
-const references = path.resolve(process.cwd(), "refs");
+let references = path.resolve(process.cwd(), "refs");
 let markdownPath = path.resolve(process.cwd(), "..", "notes", "bible")
 
 let main = async () => {
