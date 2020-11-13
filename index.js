@@ -1,7 +1,6 @@
 let fs = require("fs");
 let path = require("path");
 
-
 // abbreviations -> name
 let books = {
   GEN: "Genesis",
@@ -79,17 +78,17 @@ let createFileName = (name) => {
 };
 
 let getBook = (name) => {
-  let [book] = name.split(" ")
-  return books[book]
-}
+  let [book] = name.split(" ");
+  return books[book];
+};
 
 let getChapter = (name) => {
-  let [,chapter] = name.split(" ")
-  return `Chapter ${chapter}`
-}
+  let [, chapter] = name.split(" ");
+  return `Chapter ${chapter}`;
+};
 
 let references = path.resolve(process.cwd(), "refs");
-let markdownPath = path.resolve(process.cwd(), "..", "notes", "bible")
+let markdownPath = path.resolve(process.cwd(), "bible");
 
 let main = async () => {
   // loop through the json files
@@ -97,15 +96,15 @@ let main = async () => {
     // use require (automatically parses it for us)
     let refJson = require(`./books/${file}`);
     Object.values(refJson).forEach((ref) => {
-      let book = getBook(ref.v)
-      let chapter = getChapter(ref.v)
+      let book = getBook(ref.v);
+      let chapter = getChapter(ref.v);
 
       // here we create folders for a book and chapter
       // this is so file systems don't crash at 32,102 verses not being nested
-      let bookFolder = path.resolve(markdownPath, book)
-      if(!fs.existsSync(bookFolder)) fs.mkdirSync(bookFolder)
-      let chapterFolder = path.resolve(bookFolder, chapter)
-      if(!fs.existsSync(chapterFolder)) fs.mkdirSync(chapterFolder)
+      let bookFolder = path.resolve(markdownPath, book);
+      if (!fs.existsSync(bookFolder)) fs.mkdirSync(bookFolder);
+      let chapterFolder = path.resolve(bookFolder, chapter);
+      if (!fs.existsSync(chapterFolder)) fs.mkdirSync(chapterFolder);
 
       // loop through all the references, creating a wikilink for each reference
       // ex: [[Matthew 2:3]]\n [[Matthew 3:1]]
@@ -116,12 +115,16 @@ let main = async () => {
 
       // create a md file for every verse
       fs.writeFileSync(
-        path.resolve(markdownPath, book, chapter,`${createFileName(ref.v)}.md`),
+        path.resolve(
+          markdownPath,
+          book,
+          chapter,
+          `${createFileName(ref.v)}.md`
+        ),
         wikiLinks
       );
     });
   });
-
 };
 
 main();
