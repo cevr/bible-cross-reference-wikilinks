@@ -1,8 +1,0 @@
-[[Matthew 15:17]]
-[[Luke 11:41]]
-[[Acts 10:15]]
-[[Acts 11:9]]
-[[Romans 14:1]]
-[[1 Corinthians 6:13]]
-[[Colossians 2:16]]
-[[Colossians 2:21]]

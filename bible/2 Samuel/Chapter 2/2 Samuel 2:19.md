@@ -1,7 +1,0 @@
-[[Joshua 1:7]]
-[[Joshua 23:6]]
-[[2 Samuel 2:21]]
-[[2 Samuel 3:27]]
-[[2 Samuel 3:30]]
-[[2 Kings 22:2]]
-[[Proverbs 4:27]]

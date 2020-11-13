@@ -1,0 +1,27 @@
+---
+Links:
+[[2 Kings 8:7]]
+[[2 Kings 22:12]]
+[[2 Kings 22:14]]
+[[2 Kings 25:22]]
+[[2 Chronicles 34:20]]
+[[Ezra 7:6]]
+[[Ezra 7:27]]
+[[Nehemiah 1:11]]
+[[Nehemiah 2:4]]
+[[Job 22:29]]
+[[Proverbs 16:7]]
+[[Proverbs 21:1]]
+[[Jeremiah 15:11]]
+[[Jeremiah 26:24]]
+[[Jeremiah 39:14]]
+[[Jeremiah 40:4]]
+[[Jeremiah 41:2]]
+[[Jeremiah 52:31]]
+[[Acts 27:3]]
+[[Acts 27:43]]
+[[Acts 28:10]]
+[[Hebrews 13:6]]
+---
+
+"Now while he was not yet gone back, he said, Go back also to Gedaliah the son of Ahikam the son of Shaphan, whom the king of Babylon hath made governor over the cities of Judah, and dwell with him among the people: or go wheresoever it seemeth convenient unto thee to go. So the captain of the guard gave him victuals and a reward, and let him go."

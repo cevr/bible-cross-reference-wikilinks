@@ -1,6 +1,0 @@
-[[Numbers 21:24]]
-[[Deuteronomy 1:4]]
-[[Deuteronomy 2:30]]
-[[Joshua 2:10]]
-[[Joshua 12:4]]
-[[1 Chronicles 6:71]]

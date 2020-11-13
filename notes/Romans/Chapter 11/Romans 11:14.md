@@ -1,0 +1,16 @@
+---
+Links:
+[[Romans 9:3]]
+[[Romans 11:11]]
+[[1 Corinthians 1:21]]
+[[1 Corinthians 7:16]]
+[[1 Corinthians 9:20]]
+[[1 Timothy 2:4]]
+[[1 Timothy 4:16]]
+[[2 Timothy 2:10]]
+[[Titus 3:5]]
+[[Philemon 1:12]]
+[[James 5:20]]
+---
+
+"If by any means I may provoke to emulation them which are my flesh, and might save some of them."

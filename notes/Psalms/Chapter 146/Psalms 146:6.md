@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 1:1]]
+[[Exodus 20:11]]
+[[Deuteronomy 7:9]]
+[[Job 38:8]]
+[[Psalms 33:6]]
+[[Psalms 89:2]]
+[[Psalms 89:33]]
+[[Psalms 95:5]]
+[[Psalms 98:3]]
+[[Psalms 100:5]]
+[[Psalms 115:15]]
+[[Psalms 117:2]]
+[[Psalms 136:5]]
+[[Psalms 148:5]]
+[[Proverbs 8:28]]
+[[Jeremiah 10:11]]
+[[Jeremiah 32:17]]
+[[Daniel 9:4]]
+[[Micah 7:20]]
+[[John 1:3]]
+[[John 10:34]]
+[[Acts 14:15]]
+[[Colossians 1:16]]
+[[Titus 1:2]]
+[[Hebrews 6:18]]
+[[Revelation 14:7]]
+---
+
+"Which made heaven, and earth, the sea, and all that therein is: which keepeth truth for ever:"

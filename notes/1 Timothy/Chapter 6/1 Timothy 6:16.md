@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 3:14]]
+[[Exodus 33:20]]
+[[Deuteronomy 32:40]]
+[[Psalms 90:2]]
+[[Psalms 104:2]]
+[[Isaiah 57:15]]
+[[Habakkuk 3:4]]
+[[John 1:18]]
+[[John 6:46]]
+[[John 8:58]]
+[[John 14:9]]
+[[Romans 16:25]]
+[[Ephesians 3:21]]
+[[Philippians 4:20]]
+[[Colossians 1:15]]
+[[1 Timothy 1:17]]
+[[Hebrews 13:8]]
+[[1 John 1:5]]
+[[Jude 1:25]]
+[[Revelation 1:6]]
+[[Revelation 1:8]]
+[[Revelation 1:16]]
+[[Revelation 4:11]]
+[[Revelation 7:12]]
+[[Revelation 21:3]]
+[[Revelation 22:5]]
+---
+
+"Who only hath immortality, dwelling in the light which no man can approach unto; whom no man hath seen, nor can see: to whom be honour and power everlasting. Amen."

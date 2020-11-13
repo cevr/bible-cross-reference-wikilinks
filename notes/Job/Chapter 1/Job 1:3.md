@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 12:5]]
+[[Genesis 12:16]]
+[[Genesis 13:6]]
+[[Genesis 24:35]]
+[[Genesis 25:6]]
+[[Genesis 29:1]]
+[[Genesis 32:14]]
+[[Genesis 34:23]]
+[[Numbers 23:7]]
+[[Numbers 31:32]]
+[[Judges 6:3]]
+[[Judges 6:5]]
+[[Judges 7:12]]
+[[Judges 8:10]]
+[[1 Samuel 25:2]]
+[[2 Samuel 12:2]]
+[[1 Kings 4:30]]
+[[2 Kings 3:4]]
+[[2 Kings 15:20]]
+[[1 Chronicles 27:30]]
+[[2 Chronicles 26:10]]
+[[2 Chronicles 32:29]]
+[[Job 29:9]]
+[[Job 29:25]]
+[[Job 42:12]]
+[[Proverbs 10:22]]
+---
+
+"His substance also was seven thousand sheep, and three thousand camels, and five hundred yoke of oxen, and five hundred she asses, and a very great household; so that this man was the greatest of all the men of the east."

@@ -1,5 +1,0 @@
-[[Numbers 13:21]]
-[[Joshua 19:28]]
-[[Judges 1:31]]
-[[2 Samuel 10:6]]
-[[1 Chronicles 19:7]]

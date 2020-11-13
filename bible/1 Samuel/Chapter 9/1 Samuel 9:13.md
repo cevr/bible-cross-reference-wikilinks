@@ -1,7 +1,0 @@
-[[Matthew 26:26]]
-[[Mark 6:41]]
-[[Luke 24:30]]
-[[John 6:11]]
-[[John 6:23]]
-[[1 Corinthians 10:30]]
-[[1 Timothy 4:4]]

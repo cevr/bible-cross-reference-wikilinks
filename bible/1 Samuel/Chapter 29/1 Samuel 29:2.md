@@ -1,5 +1,0 @@
-[[Joshua 13:3]]
-[[1 Samuel 5:8]]
-[[1 Samuel 6:4]]
-[[1 Samuel 28:1]]
-[[1 Samuel 29:6]]

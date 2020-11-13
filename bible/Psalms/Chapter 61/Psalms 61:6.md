@@ -1,7 +1,0 @@
-[[Psalms 16:5]]
-[[Psalms 16:6]]
-[[Psalms 21:4]]
-[[Psalms 21:6]]
-[[Psalms 72:15]]
-[[Psalms 89:36]]
-[[Isaiah 53:10]]

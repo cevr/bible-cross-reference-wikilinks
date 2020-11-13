@@ -1,0 +1,21 @@
+---
+Links:
+[[Deuteronomy 26:15]]
+[[Psalms 80:8]]
+[[Psalms 89:21]]
+[[Psalms 90:13]]
+[[Isaiah 5:1]]
+[[Isaiah 11:1]]
+[[Isaiah 49:5]]
+[[Isaiah 63:15]]
+[[Jeremiah 2:21]]
+[[Jeremiah 23:5]]
+[[Lamentations 3:50]]
+[[Ezekiel 17:22]]
+[[Zechariah 3:8]]
+[[Zechariah 6:12]]
+[[Mark 12:1]]
+[[John 15:1]]
+---
+
+"And the vineyard which thy right hand hath planted, and the branch that thou madest strong for thyself."

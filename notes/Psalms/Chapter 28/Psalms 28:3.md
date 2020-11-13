@@ -1,0 +1,23 @@
+---
+Links:
+[[Numbers 16:26]]
+[[Psalms 7:14]]
+[[Psalms 10:7]]
+[[Psalms 10:14]]
+[[Psalms 12:2]]
+[[Psalms 26:9]]
+[[Psalms 36:4]]
+[[Psalms 52:1]]
+[[Psalms 55:21]]
+[[Psalms 62:4]]
+[[Psalms 141:4]]
+[[Proverbs 26:23]]
+[[Proverbs 26:24]]
+[[Jeremiah 9:8]]
+[[Micah 3:5]]
+[[Matthew 22:15]]
+[[Matthew 25:41]]
+[[Matthew 25:46]]
+---
+
+"Draw me not away with the wicked, and with the workers of iniquity, which speak peace to their neighbours, but mischief is in their hearts."

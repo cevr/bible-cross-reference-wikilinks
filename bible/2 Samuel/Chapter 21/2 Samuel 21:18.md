@@ -1,6 +1,0 @@
-[[2 Samuel 21:16]]
-[[2 Samuel 21:20]]
-[[2 Samuel 21:22]]
-[[1 Chronicles 11:29]]
-[[1 Chronicles 20:4]]
-[[1 Chronicles 27:11]]

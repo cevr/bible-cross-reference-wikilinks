@@ -1,0 +1,14 @@
+---
+Links:
+[[Acts 16:6]]
+[[Acts 19:10]]
+[[Acts 19:27]]
+[[Acts 19:31]]
+[[Acts 20:16]]
+[[1 Corinthians 16:19]]
+[[Philippians 2:21]]
+[[2 Timothy 4:10]]
+[[2 Timothy 4:16]]
+---
+
+"This thou knowest, that all they which are in Asia be turned away from me; of whom are Phygellus and Hermogenes."

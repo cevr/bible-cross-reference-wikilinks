@@ -1,0 +1,11 @@
+---
+Links:
+[[1 Samuel 25:35]]
+[[Job 4:4]]
+[[Proverbs 15:23]]
+[[Proverbs 24:26]]
+[[Ecclesiastes 12:10]]
+[[Isaiah 50:4]]
+---
+
+"A word fitly spoken is like apples of gold in pictures of silver."

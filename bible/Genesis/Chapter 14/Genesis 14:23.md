@@ -1,7 +1,0 @@
-[[1 Kings 13:8]]
-[[2 Kings 5:16]]
-[[2 Kings 5:20]]
-[[Esther 9:15]]
-[[2 Corinthians 11:9]]
-[[2 Corinthians 12:14]]
-[[Hebrews 13:5]]

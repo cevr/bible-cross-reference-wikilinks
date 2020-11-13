@@ -1,5 +1,0 @@
-[[Proverbs 24:10]]
-[[Matthew 16:24]]
-[[John 12:25]]
-[[Philippians 2:30]]
-[[Hebrews 12:3]]

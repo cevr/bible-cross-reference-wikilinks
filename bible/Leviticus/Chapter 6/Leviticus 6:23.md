@@ -1,6 +1,0 @@
-[[Leviticus 2:10]]
-[[Leviticus 4:5]]
-[[Leviticus 4:12]]
-[[Leviticus 4:21]]
-[[Leviticus 6:16]]
-[[Leviticus 16:27]]

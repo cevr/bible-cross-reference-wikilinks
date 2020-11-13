@@ -1,6 +1,0 @@
-[[Genesis 21:8]]
-[[Genesis 26:30]]
-[[Genesis 37:25]]
-[[Exodus 18:12]]
-[[1 Samuel 9:12]]
-[[2 Samuel 3:20]]

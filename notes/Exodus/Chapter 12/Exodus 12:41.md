@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 50:24]]
+[[Exodus 3:10]]
+[[Exodus 6:26]]
+[[Exodus 7:4]]
+[[Exodus 12:17]]
+[[Exodus 12:51]]
+[[Exodus 13:3]]
+[[Exodus 13:9]]
+[[Exodus 13:14]]
+[[Exodus 13:16]]
+[[Leviticus 23:43]]
+[[Numbers 23:22]]
+[[Numbers 33:1]]
+[[Deuteronomy 4:37]]
+[[Deuteronomy 16:1]]
+[[Joshua 5:14]]
+[[Joshua 24:5]]
+[[1 Kings 6:1]]
+[[2 Chronicles 14:12]]
+[[Psalms 102:13]]
+[[Psalms 114:1]]
+[[Psalms 136:11]]
+[[Daniel 9:24]]
+[[Habakkuk 2:3]]
+[[John 7:8]]
+[[Acts 1:7]]
+---
+
+"And it came to pass at the end of the four hundred and thirty years, even the selfsame day it came to pass, that all the hosts of the LORD went out from the land of Egypt."

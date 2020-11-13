@@ -1,0 +1,12 @@
+---
+Links:
+[[Psalms 22:6]]
+[[Isaiah 49:7]]
+[[Isaiah 53:3]]
+[[Matthew 27:27]]
+[[Mark 15:16]]
+[[Luke 23:11]]
+[[John 19:5]]
+---
+
+"And the soldiers platted a crown of thorns, and put it on his head, and they put on him a purple robe,"

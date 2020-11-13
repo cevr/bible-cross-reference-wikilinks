@@ -1,5 +1,0 @@
-[[Ezekiel 2:2]]
-[[Ezekiel 4:1]]
-[[Ezekiel 37:10]]
-[[Daniel 10:8]]
-[[Daniel 10:19]]

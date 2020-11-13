@@ -1,0 +1,20 @@
+---
+Links:
+[[Psalms 50:17]]
+[[Isaiah 1:23]]
+[[Jeremiah 7:11]]
+[[Ezekiel 22:13]]
+[[Ezekiel 22:27]]
+[[Ezekiel 22:29]]
+[[Matthew 21:19]]
+[[Matthew 23:13]]
+[[Matthew 23:33]]
+[[John 12:6]]
+[[1 Corinthians 5:11]]
+[[Galatians 5:21]]
+[[Ephesians 4:28]]
+[[1 Thessalonians 4:6]]
+[[1 Peter 4:15]]
+---
+
+"Nor thieves, nor covetous, nor drunkards, nor revilers, nor extortioners, shall inherit the kingdom of God."

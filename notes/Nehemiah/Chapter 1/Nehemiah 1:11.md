@@ -1,0 +1,26 @@
+---
+Links:
+[[Genesis 32:11]]
+[[Genesis 32:28]]
+[[Genesis 40:2]]
+[[Genesis 40:9]]
+[[Genesis 40:21]]
+[[Genesis 40:23]]
+[[Genesis 41:9]]
+[[Genesis 43:14]]
+[[Ezra 1:1]]
+[[Ezra 7:6]]
+[[Ezra 7:27]]
+[[Nehemiah 1:6]]
+[[Nehemiah 2:1]]
+[[Nehemiah 2:8]]
+[[Psalms 86:6]]
+[[Psalms 130:2]]
+[[Proverbs 1:29]]
+[[Proverbs 21:1]]
+[[Isaiah 26:8]]
+[[Malachi 3:16]]
+[[Hebrews 13:18]]
+---
+
+"O Lord, I beseech thee, let now thine ear be attentive to the prayer of thy servant, and to the prayer of thy servants, who desire to fear thy name: and prosper, I pray thee, thy servant this day, and grant him mercy in the sight of this man. For I was the king's cupbearer."

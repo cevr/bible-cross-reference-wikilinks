@@ -1,0 +1,25 @@
+---
+Links:
+[[2 Kings 21:2]]
+[[2 Kings 21:9]]
+[[2 Kings 24:3]]
+[[2 Kings 24:4]]
+[[Psalms 106:39]]
+[[Isaiah 1:21]]
+[[Jeremiah 2:1]]
+[[Ezekiel 7:2]]
+[[Ezekiel 12:25]]
+[[Ezekiel 22:4]]
+[[Ezekiel 22:6]]
+[[Ezekiel 22:27]]
+[[Ezekiel 23:37]]
+[[Ezekiel 23:45]]
+[[Ezekiel 24:6]]
+[[Ezekiel 33:25]]
+[[Micah 3:10]]
+[[Zephaniah 3:3]]
+[[Romans 2:5]]
+[[2 Peter 2:3]]
+---
+
+"Then say thou, Thus saith the Lord GOD, The city sheddeth blood in the midst of it, that her time may come, and maketh idols against herself to defile herself."

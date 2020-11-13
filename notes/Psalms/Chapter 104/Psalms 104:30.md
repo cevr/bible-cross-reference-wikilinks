@@ -1,0 +1,19 @@
+---
+Links:
+[[Job 12:10]]
+[[Job 26:13]]
+[[Job 33:4]]
+[[Psalms 33:6]]
+[[Isaiah 32:14]]
+[[Isaiah 65:17]]
+[[Isaiah 66:22]]
+[[Ezekiel 37:5]]
+[[Ezekiel 37:6]]
+[[Ezekiel 37:9]]
+[[Ephesians 2:1]]
+[[Ephesians 2:4]]
+[[Titus 3:5]]
+[[Revelation 21:5]]
+---
+
+"Thou sendest forth thy spirit, they are created: and thou renewest the face of the earth."

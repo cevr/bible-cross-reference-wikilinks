@@ -1,5 +1,0 @@
-[[Joshua 7:21]]
-[[2 Kings 5:24]]
-[[Jeremiah 41:8]]
-[[Matthew 13:44]]
-[[Matthew 25:18]]

@@ -1,0 +1,19 @@
+---
+Links:
+[[Job 8:22]]
+[[Psalms 21:8]]
+[[Psalms 35:26]]
+[[Psalms 72:8]]
+[[Psalms 109:19]]
+[[Psalms 109:29]]
+[[Proverbs 12:8]]
+[[Isaiah 9:6]]
+[[Isaiah 58:10]]
+[[Daniel 12:2]]
+[[Matthew 28:18]]
+[[Luke 1:32]]
+[[Revelation 11:15]]
+[[Revelation 17:14]]
+---
+
+"His enemies will I clothe with shame: but upon himself shall his crown flourish."

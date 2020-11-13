@@ -1,7 +1,0 @@
-[[1 Kings 10:28]]
-[[Proverbs 31:22]]
-[[Songs of Solomon 1:16]]
-[[Songs of Solomon 3:7]]
-[[Isaiah 19:9]]
-[[Ezekiel 27:7]]
-[[Revelation 2:22]]

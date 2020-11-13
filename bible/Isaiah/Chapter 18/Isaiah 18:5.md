@@ -1,5 +1,0 @@
-[[Songs of Solomon 2:13]]
-[[Songs of Solomon 2:15]]
-[[Isaiah 10:33]]
-[[Isaiah 17:10]]
-[[Ezekiel 17:6]]

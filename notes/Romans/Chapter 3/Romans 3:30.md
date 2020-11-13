@@ -1,0 +1,16 @@
+---
+Links:
+[[Romans 3:28]]
+[[Romans 4:11]]
+[[Romans 10:12]]
+[[Galatians 2:14]]
+[[Galatians 3:8]]
+[[Galatians 3:20]]
+[[Galatians 3:28]]
+[[Galatians 5:6]]
+[[Galatians 6:15]]
+[[Philippians 3:3]]
+[[Colossians 2:10]]
+---
+
+"Seeing it is one God, which shall justify the circumcision by faith, and uncircumcision through faith."

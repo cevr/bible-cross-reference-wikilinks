@@ -1,6 +1,0 @@
-[[Numbers 4:5]]
-[[Numbers 7:4]]
-[[Numbers 7:9]]
-[[1 Samuel 6:7]]
-[[1 Samuel 7:1]]
-[[Psalms 132:6]]

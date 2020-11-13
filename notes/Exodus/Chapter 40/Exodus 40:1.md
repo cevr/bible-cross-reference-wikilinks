@@ -1,0 +1,10 @@
+---
+Links:
+[[Exodus 31:7]]
+[[Exodus 35:10]]
+[[Exodus 39:32]]
+[[Exodus 40:17]]
+[[1 Chronicles 21:29]]
+---
+
+"And the LORD spake unto Moses, saying,"

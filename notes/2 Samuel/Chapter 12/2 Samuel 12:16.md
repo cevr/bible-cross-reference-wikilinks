@@ -1,0 +1,19 @@
+---
+Links:
+[[Joshua 7:6]]
+[[2 Samuel 12:22]]
+[[2 Samuel 13:31]]
+[[1 Kings 21:27]]
+[[Esther 4:16]]
+[[Job 20:12]]
+[[Psalms 50:15]]
+[[Psalms 69:10]]
+[[Isaiah 22:12]]
+[[Isaiah 26:16]]
+[[Daniel 9:3]]
+[[Joel 2:12]]
+[[Jonah 3:9]]
+[[Acts 9:9]]
+---
+
+"David therefore besought God for the child; and David fasted, and went in, and lay all night upon the earth."

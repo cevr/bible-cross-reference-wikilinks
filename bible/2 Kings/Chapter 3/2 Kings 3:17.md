@@ -1,8 +1,0 @@
-[[Exodus 17:6]]
-[[Numbers 20:8]]
-[[1 Kings 18:36]]
-[[Psalms 84:6]]
-[[Psalms 107:35]]
-[[Isaiah 41:17]]
-[[Isaiah 43:19]]
-[[Isaiah 48:21]]

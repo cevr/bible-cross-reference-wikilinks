@@ -1,0 +1,24 @@
+---
+Links:
+[[Genesis 33:20]]
+[[Exodus 3:15]]
+[[Exodus 20:5]]
+[[Psalms 7:7]]
+[[Psalms 7:12]]
+[[Psalms 9:15]]
+[[Psalms 54:3]]
+[[Psalms 55:15]]
+[[Psalms 80:4]]
+[[Psalms 84:8]]
+[[Isaiah 1:10]]
+[[Isaiah 27:11]]
+[[Jeremiah 18:23]]
+[[Ezekiel 18:27]]
+[[Daniel 6:7]]
+[[Amos 9:7]]
+[[Romans 2:28]]
+[[Romans 9:6]]
+[[James 2:13]]
+---
+
+"Thou therefore, O LORD God of hosts, the God of Israel, awake to visit all the heathen: be not merciful to any wicked transgressors. Selah."

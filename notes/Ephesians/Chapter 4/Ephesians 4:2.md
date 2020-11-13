@@ -1,0 +1,30 @@
+---
+Links:
+[[Numbers 12:3]]
+[[Psalms 45:4]]
+[[Psalms 138:6]]
+[[Proverbs 3:34]]
+[[Proverbs 16:19]]
+[[Isaiah 57:15]]
+[[Isaiah 61:1]]
+[[Zephaniah 2:3]]
+[[Zechariah 9:9]]
+[[Matthew 5:3]]
+[[Matthew 11:29]]
+[[Mark 9:19]]
+[[Acts 20:19]]
+[[Romans 15:1]]
+[[1 Corinthians 13:4]]
+[[1 Corinthians 13:7]]
+[[Galatians 5:22]]
+[[Galatians 6:2]]
+[[Ephesians 1:4]]
+[[Colossians 3:12]]
+[[1 Timothy 6:11]]
+[[2 Timothy 2:25]]
+[[James 1:21]]
+[[James 3:15]]
+[[1 Peter 3:15]]
+---
+
+"With all lowliness and meekness, with longsuffering, forbearing one another in love;"

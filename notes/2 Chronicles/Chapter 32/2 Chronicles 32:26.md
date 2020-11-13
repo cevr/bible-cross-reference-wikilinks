@@ -1,0 +1,20 @@
+---
+Links:
+[[Leviticus 26:40]]
+[[1 Kings 21:19]]
+[[1 Kings 21:29]]
+[[2 Kings 20:16]]
+[[2 Kings 22:19]]
+[[2 Chronicles 12:7]]
+[[2 Chronicles 33:12]]
+[[2 Chronicles 33:19]]
+[[2 Chronicles 33:23]]
+[[2 Chronicles 34:27]]
+[[2 Chronicles 34:28]]
+[[Isaiah 39:6]]
+[[Jeremiah 26:18]]
+[[Jeremiah 26:19]]
+[[James 4:10]]
+---
+
+"Notwithstanding Hezekiah humbled himself for the pride of his heart, both he and the inhabitants of Jerusalem, so that the wrath of the LORD came not upon them in the days of Hezekiah."

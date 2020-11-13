@@ -1,0 +1,21 @@
+---
+Links:
+[[Isaiah 5:3]]
+[[Jeremiah 7:16]]
+[[Jeremiah 11:14]]
+[[Jeremiah 14:11]]
+[[Jeremiah 15:1]]
+[[Ezekiel 14:14]]
+[[Ezekiel 14:20]]
+[[Ezekiel 16:2]]
+[[Ezekiel 22:2]]
+[[Ezekiel 23:36]]
+[[Ezekiel 23:45]]
+[[Matthew 23:29]]
+[[Luke 11:47]]
+[[Luke 13:33]]
+[[Acts 7:51]]
+[[1 Corinthians 6:2]]
+---
+
+"Wilt thou judge them, son of man, wilt thou judge them? cause them to know the abominations of their fathers:"

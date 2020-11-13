@@ -1,7 +1,0 @@
-[[Joshua 9:4]]
-[[Joshua 9:13]]
-[[Job 32:19]]
-[[Psalms 119:80]]
-[[Psalms 119:83]]
-[[Matthew 9:17]]
-[[Luke 5:37]]

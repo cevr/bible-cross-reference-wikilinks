@@ -1,0 +1,26 @@
+---
+Links:
+[[Genesis 15:6]]
+[[Exodus 33:11]]
+[[1 Kings 4:5]]
+[[2 Chronicles 20:7]]
+[[Job 16:21]]
+[[Isaiah 41:8]]
+[[Mark 12:10]]
+[[Mark 15:27]]
+[[Luke 4:21]]
+[[John 15:13]]
+[[Acts 1:16]]
+[[Romans 4:3]]
+[[Romans 4:10]]
+[[Romans 4:22]]
+[[Romans 9:17]]
+[[Romans 11:2]]
+[[Galatians 3:6]]
+[[Galatians 3:8]]
+[[Galatians 3:22]]
+[[2 Timothy 3:16]]
+[[1 Peter 2:6]]
+---
+
+"And the scripture was fulfilled which saith, Abraham believed God, and it was imputed unto him for righteousness: and he was called the Friend of God."

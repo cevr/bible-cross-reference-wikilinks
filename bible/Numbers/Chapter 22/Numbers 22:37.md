@@ -1,6 +1,0 @@
-[[Numbers 22:16]]
-[[Numbers 24:11]]
-[[Psalms 75:6]]
-[[Matthew 4:8]]
-[[Luke 4:6]]
-[[John 5:44]]

@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 2:22]]
+[[Genesis 18:6]]
+[[Genesis 18:9]]
+[[Genesis 23:1]]
+[[Genesis 23:2]]
+[[Genesis 25:20]]
+[[Genesis 29:18]]
+[[Genesis 37:35]]
+[[Genesis 38:12]]
+[[Songs of Solomon 8:2]]
+[[Isaiah 54:1]]
+[[2 Corinthians 11:1]]
+[[Ephesians 5:22]]
+[[1 Thessalonians 4:13]]
+[[1 Thessalonians 4:15]]
+---
+
+"And Isaac brought her into his mother Sarah's tent, and took Rebekah, and she became his wife; and he loved her: and Isaac was comforted after his mother's death."

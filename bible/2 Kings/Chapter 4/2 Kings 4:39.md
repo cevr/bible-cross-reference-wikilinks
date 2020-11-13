@@ -1,5 +1,0 @@
-[[Proverbs 19:2]]
-[[Isaiah 5:4]]
-[[Jeremiah 2:21]]
-[[Matthew 15:13]]
-[[Hebrews 12:15]]

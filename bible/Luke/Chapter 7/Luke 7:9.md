@@ -1,6 +1,0 @@
-[[Psalms 147:19]]
-[[Matthew 8:10]]
-[[Matthew 9:33]]
-[[Matthew 15:28]]
-[[Romans 3:1]]
-[[Romans 9:4]]

@@ -1,0 +1,21 @@
+---
+Links:
+[[Exodus 22:20]]
+[[Exodus 22:21]]
+[[Exodus 22:22]]
+[[Leviticus 25:35]]
+[[Numbers 10:32]]
+[[Psalms 10:18]]
+[[Psalms 68:5]]
+[[Psalms 68:6]]
+[[Psalms 103:6]]
+[[Psalms 145:9]]
+[[Psalms 146:9]]
+[[Isaiah 1:17]]
+[[Jeremiah 49:11]]
+[[Hosea 14:3]]
+[[Matthew 5:45]]
+[[Acts 14:17]]
+---
+
+"He doth execute the judgment of the fatherless and widow, and loveth the stranger, in giving him food and raiment."

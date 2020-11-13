@@ -1,0 +1,19 @@
+---
+Links:
+[[Deuteronomy 5:32]]
+[[Deuteronomy 17:20]]
+[[Deuteronomy 25:1]]
+[[Deuteronomy 28:14]]
+[[Joshua 1:7]]
+[[Joshua 23:6]]
+[[2 Samuel 14:19]]
+[[Proverbs 4:27]]
+[[Malachi 2:8]]
+[[Romans 13:1]]
+[[Titus 3:1]]
+[[1 Peter 2:13]]
+[[2 Peter 2:10]]
+[[Jude 1:8]]
+---
+
+"According to the sentence of the law which they shall teach thee, and according to the judgment which they shall tell thee, thou shalt do: thou shalt not decline from the sentence which they shall shew thee, to the right hand, nor to the left."

@@ -1,6 +1,0 @@
-[[Leviticus 3:3]]
-[[Leviticus 3:5]]
-[[Leviticus 3:16]]
-[[Romans 16:18]]
-[[Philippians 3:19]]
-[[Jude 1:12]]

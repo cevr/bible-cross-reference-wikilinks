@@ -1,8 +1,0 @@
-[[Numbers 26:53]]
-[[Numbers 26:54]]
-[[Numbers 26:55]]
-[[Numbers 35:8]]
-[[Joshua 15:1]]
-[[Joshua 16:1]]
-[[Joshua 17:1]]
-[[Joshua 18:11]]

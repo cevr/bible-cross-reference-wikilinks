@@ -1,5 +1,0 @@
-[[Numbers 23:7]]
-[[Numbers 23:18]]
-[[Numbers 24:3]]
-[[Job 27:1]]
-[[Matthew 13:35]]

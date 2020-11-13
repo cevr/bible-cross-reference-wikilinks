@@ -1,6 +1,0 @@
-[[Leviticus 20:10]]
-[[Leviticus 20:17]]
-[[Numbers 9:13]]
-[[Psalms 37:6]]
-[[Ezekiel 18:4]]
-[[Romans 2:8]]

@@ -1,0 +1,16 @@
+---
+Links:
+[[Exodus 3:16]]
+[[Exodus 3:17]]
+[[Psalms 9:13]]
+[[Psalms 22:22]]
+[[Psalms 51:14]]
+[[Psalms 79:11]]
+[[Psalms 79:13]]
+[[Isaiah 51:11]]
+[[Ephesians 2:4]]
+[[Ephesians 3:21]]
+[[1 Peter 2:9]]
+---
+
+"To declare the name of the LORD in Zion, and his praise in Jerusalem;"

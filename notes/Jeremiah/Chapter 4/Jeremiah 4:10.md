@@ -1,0 +1,25 @@
+---
+Links:
+[[Exodus 9:14]]
+[[1 Kings 22:20]]
+[[Isaiah 30:10]]
+[[Isaiah 37:35]]
+[[Isaiah 63:17]]
+[[Jeremiah 1:6]]
+[[Jeremiah 4:18]]
+[[Jeremiah 5:12]]
+[[Jeremiah 6:14]]
+[[Jeremiah 8:11]]
+[[Jeremiah 14:13]]
+[[Jeremiah 23:17]]
+[[Jeremiah 32:17]]
+[[Lamentations 2:21]]
+[[Ezekiel 11:13]]
+[[Ezekiel 14:9]]
+[[Romans 1:24]]
+[[Romans 1:26]]
+[[Romans 1:28]]
+[[2 Thessalonians 2:9]]
+---
+
+"Then said I, Ah, Lord GOD! surely thou hast greatly deceived this people and Jerusalem, saying, Ye shall have peace; whereas the sword reacheth unto the soul."

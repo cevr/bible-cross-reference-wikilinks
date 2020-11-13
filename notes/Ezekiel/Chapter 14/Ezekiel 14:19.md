@@ -1,0 +1,29 @@
+---
+Links:
+[[Numbers 14:12]]
+[[Numbers 16:46]]
+[[Deuteronomy 28:21]]
+[[Deuteronomy 28:59]]
+[[2 Samuel 24:13]]
+[[2 Samuel 24:15]]
+[[1 Kings 8:37]]
+[[2 Chronicles 6:28]]
+[[2 Chronicles 7:13]]
+[[2 Chronicles 20:9]]
+[[Psalms 91:3]]
+[[Psalms 91:6]]
+[[Isaiah 37:36]]
+[[Jeremiah 14:12]]
+[[Jeremiah 21:6]]
+[[Jeremiah 21:9]]
+[[Jeremiah 24:10]]
+[[Ezekiel 5:12]]
+[[Ezekiel 7:8]]
+[[Ezekiel 36:18]]
+[[Ezekiel 38:22]]
+[[Amos 4:10]]
+[[Matthew 24:7]]
+[[Revelation 16:3]]
+---
+
+"Or if I send a pestilence into that land, and pour out my fury upon it in blood, to cut off from it man and beast:"

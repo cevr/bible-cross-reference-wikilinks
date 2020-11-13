@@ -1,0 +1,14 @@
+---
+Links:
+[[Isaiah 48:22]]
+[[Isaiah 57:20]]
+[[Jeremiah 5:31]]
+[[Jeremiah 6:14]]
+[[Jeremiah 8:11]]
+[[Jeremiah 28:1]]
+[[Jeremiah 28:9]]
+[[Jeremiah 29:31]]
+[[Ezekiel 13:10]]
+---
+
+"To wit, the prophets of Israel which prophesy concerning Jerusalem, and which see visions of peace for her, and there is no peace, saith the Lord GOD."

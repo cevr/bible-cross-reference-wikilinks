@@ -1,0 +1,16 @@
+---
+Links:
+[[1 Chronicles 17:19]]
+[[2 Chronicles 33:11]]
+[[Psalms 86:16]]
+[[Psalms 107:14]]
+[[Psalms 119:125]]
+[[Psalms 143:12]]
+[[Isaiah 61:1]]
+[[John 12:26]]
+[[Acts 27:23]]
+[[Romans 6:22]]
+[[James 1:1]]
+---
+
+"O LORD, truly I am thy servant; I am thy servant, and the son of thine handmaid: thou hast loosed my bonds."

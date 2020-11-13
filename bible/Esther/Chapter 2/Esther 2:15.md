@@ -1,7 +1,0 @@
-[[Esther 2:3]]
-[[Esther 2:7]]
-[[Esther 9:29]]
-[[Proverbs 15:33]]
-[[Songs of Solomon 6:9]]
-[[Songs of Solomon 8:10]]
-[[Acts 7:10]]

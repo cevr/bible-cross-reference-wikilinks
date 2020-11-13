@@ -1,0 +1,13 @@
+---
+Links:
+[[Psalms 1:4]]
+[[Psalms 21:9]]
+[[Isaiah 30:24]]
+[[Jeremiah 15:7]]
+[[Micah 4:12]]
+[[Matthew 3:12]]
+[[Matthew 13:30]]
+[[Mark 9:43]]
+---
+
+"Whose fan is in his hand, and he will throughly purge his floor, and will gather the wheat into his garner; but the chaff he will burn with fire unquenchable."

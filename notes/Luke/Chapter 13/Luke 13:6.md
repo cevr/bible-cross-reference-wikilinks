@@ -1,0 +1,16 @@
+---
+Links:
+[[Judges 9:11]]
+[[Psalms 80:8]]
+[[Isaiah 5:1]]
+[[Jeremiah 2:21]]
+[[Matthew 21:19]]
+[[Matthew 21:34]]
+[[Mark 11:12]]
+[[Luke 20:10]]
+[[John 15:16]]
+[[Galatians 5:22]]
+[[Philippians 4:17]]
+---
+
+"He spake also this parable; A certain man had a fig tree planted in his vineyard; and he came and sought fruit thereon, and found none."

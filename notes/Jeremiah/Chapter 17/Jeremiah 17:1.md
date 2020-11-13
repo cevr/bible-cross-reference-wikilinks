@@ -1,0 +1,16 @@
+---
+Links:
+[[Leviticus 4:17]]
+[[Leviticus 4:25]]
+[[Job 19:23]]
+[[Job 19:24]]
+[[Proverbs 3:3]]
+[[Proverbs 7:3]]
+[[Jeremiah 11:13]]
+[[Jeremiah 31:33]]
+[[Hosea 8:11]]
+[[Hosea 12:11]]
+[[2 Corinthians 3:3]]
+---
+
+"The sin of Judah is written with a pen of iron, and with the point of a diamond: it is graven upon the table of their heart, and upon the horns of your altars;"

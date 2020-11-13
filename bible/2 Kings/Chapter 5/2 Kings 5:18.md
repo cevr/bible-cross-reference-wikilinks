@@ -1,8 +1,0 @@
-[[Exodus 20:5]]
-[[Joshua 23:7]]
-[[1 Kings 19:18]]
-[[2 Kings 7:2]]
-[[2 Kings 7:17]]
-[[2 Kings 17:35]]
-[[2 Chronicles 30:18]]
-[[Jeremiah 50:20]]

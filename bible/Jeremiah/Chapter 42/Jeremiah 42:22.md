@@ -1,7 +1,0 @@
-[[Jeremiah 24:10]]
-[[Jeremiah 42:17]]
-[[Jeremiah 43:11]]
-[[Ezekiel 5:3]]
-[[Ezekiel 6:11]]
-[[Ezekiel 6:12]]
-[[Hosea 9:6]]

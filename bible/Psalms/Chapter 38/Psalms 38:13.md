@@ -1,6 +1,0 @@
-[[2 Samuel 16:10]]
-[[Psalms 39:2]]
-[[Psalms 39:9]]
-[[Psalms 119:110]]
-[[Isaiah 53:7]]
-[[1 Peter 2:23]]

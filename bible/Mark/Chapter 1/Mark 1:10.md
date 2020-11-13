@@ -1,5 +1,0 @@
-[[Isaiah 42:1]]
-[[Isaiah 64:1]]
-[[Matthew 3:16]]
-[[Luke 3:22]]
-[[John 1:31]]

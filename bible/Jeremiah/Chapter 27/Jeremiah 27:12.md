@@ -1,8 +1,0 @@
-[[2 Chronicles 36:11]]
-[[Proverbs 1:33]]
-[[Jeremiah 21:9]]
-[[Jeremiah 27:2]]
-[[Jeremiah 27:8]]
-[[Jeremiah 28:1]]
-[[Jeremiah 38:17]]
-[[Ezekiel 17:11]]

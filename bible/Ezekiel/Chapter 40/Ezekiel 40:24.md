@@ -1,6 +1,0 @@
-[[Ezekiel 40:6]]
-[[Ezekiel 40:20]]
-[[Ezekiel 40:28]]
-[[Ezekiel 40:33]]
-[[Ezekiel 40:35]]
-[[Ezekiel 46:9]]

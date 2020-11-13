@@ -1,8 +1,0 @@
-[[Exodus 25:14]]
-[[Deuteronomy 20:2]]
-[[Joshua 3:3]]
-[[Joshua 3:6]]
-[[Joshua 6:8]]
-[[Joshua 6:13]]
-[[Joshua 24:11]]
-[[Acts 9:1]]

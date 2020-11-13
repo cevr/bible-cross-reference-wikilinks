@@ -1,0 +1,23 @@
+---
+Links:
+[[Deuteronomy 4:29]]
+[[2 Kings 13:4]]
+[[1 Chronicles 5:20]]
+[[2 Chronicles 33:12]]
+[[2 Chronicles 33:13]]
+[[Ezra 8:31]]
+[[Nehemiah 9:1]]
+[[Esther 4:16]]
+[[Psalms 66:18]]
+[[Proverbs 3:5]]
+[[Isaiah 19:22]]
+[[Jeremiah 29:12]]
+[[Jeremiah 33:3]]
+[[Jeremiah 50:4]]
+[[Daniel 9:3]]
+[[Matthew 7:7]]
+[[Luke 2:37]]
+[[Acts 10:30]]
+---
+
+"So we fasted and besought our God for this: and he was intreated of us."

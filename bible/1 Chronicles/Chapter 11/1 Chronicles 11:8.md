@@ -1,6 +1,0 @@
-[[Judges 9:6]]
-[[Judges 9:20]]
-[[1 Kings 9:15]]
-[[1 Kings 11:27]]
-[[2 Kings 12:20]]
-[[Nehemiah 4:2]]

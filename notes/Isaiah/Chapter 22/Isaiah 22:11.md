@@ -1,0 +1,19 @@
+---
+Links:
+[[2 Kings 20:20]]
+[[2 Kings 25:4]]
+[[2 Chronicles 6:6]]
+[[2 Chronicles 16:7]]
+[[2 Chronicles 32:3]]
+[[Nehemiah 3:16]]
+[[Isaiah 7:3]]
+[[Isaiah 8:17]]
+[[Isaiah 17:7]]
+[[Isaiah 31:1]]
+[[Isaiah 37:26]]
+[[Jeremiah 33:2]]
+[[Jeremiah 39:4]]
+[[Micah 7:7]]
+---
+
+"Ye made also a ditch between the two walls for the water of the old pool: but ye have not looked unto the maker thereof, neither had respect unto him that fashioned it long ago."

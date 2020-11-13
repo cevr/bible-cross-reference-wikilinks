@@ -1,0 +1,32 @@
+---
+Links:
+[[Ezra 7:27]]
+[[Psalms 105:25]]
+[[Proverbs 19:21]]
+[[Proverbs 21:1]]
+[[Isaiah 45:17]]
+[[Isaiah 46:10]]
+[[Jeremiah 27:6]]
+[[Jeremiah 32:40]]
+[[Ezekiel 38:16]]
+[[Daniel 12:7]]
+[[Luke 22:3]]
+[[Luke 22:22]]
+[[Luke 22:37]]
+[[John 10:35]]
+[[John 12:39]]
+[[John 13:2]]
+[[John 13:18]]
+[[John 19:24]]
+[[John 19:28]]
+[[Acts 4:27]]
+[[2 Corinthians 8:16]]
+[[2 Thessalonians 2:10]]
+[[James 1:13]]
+[[Revelation 6:11]]
+[[Revelation 10:7]]
+[[Revelation 15:1]]
+[[Revelation 17:13]]
+---
+
+"For God hath put in their hearts to fulfil his will, and to agree, and give their kingdom unto the beast, until the words of God shall be fulfilled."

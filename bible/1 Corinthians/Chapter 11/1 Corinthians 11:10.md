@@ -1,5 +1,0 @@
-[[Genesis 20:16]]
-[[Genesis 24:64]]
-[[Ecclesiastes 5:6]]
-[[Matthew 18:10]]
-[[Hebrews 1:14]]

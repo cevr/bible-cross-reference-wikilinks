@@ -1,0 +1,11 @@
+---
+Links:
+[[2 Chronicles 32:25]]
+[[Psalms 66:5]]
+[[Psalms 107:8]]
+[[Psalms 107:15]]
+[[Psalms 107:31]]
+[[Luke 17:18]]
+---
+
+"Oh that men would praise the LORD for his goodness, and for his wonderful works to the children of men!"

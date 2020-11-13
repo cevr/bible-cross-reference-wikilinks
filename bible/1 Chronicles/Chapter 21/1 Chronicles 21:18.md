@@ -1,5 +1,0 @@
-[[2 Samuel 24:18]]
-[[1 Chronicles 21:11]]
-[[1 Chronicles 21:15]]
-[[2 Chronicles 3:1]]
-[[Acts 8:26]]

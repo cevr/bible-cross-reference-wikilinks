@@ -1,6 +1,0 @@
-[[Exodus 24:17]]
-[[2 Chronicles 5:13]]
-[[2 Chronicles 5:14]]
-[[Psalms 26:8]]
-[[Isaiah 6:5]]
-[[Revelation 15:8]]

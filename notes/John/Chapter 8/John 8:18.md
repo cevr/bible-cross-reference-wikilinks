@@ -1,0 +1,20 @@
+---
+Links:
+[[John 5:31]]
+[[John 8:12]]
+[[John 8:25]]
+[[John 8:38]]
+[[John 8:51]]
+[[John 8:58]]
+[[John 10:9]]
+[[John 10:11]]
+[[John 10:14]]
+[[John 10:30]]
+[[John 11:25]]
+[[John 14:6]]
+[[Hebrews 2:4]]
+[[1 John 5:6]]
+[[Revelation 1:17]]
+---
+
+"I am one that bear witness of myself, and the Father that sent me beareth witness of me."

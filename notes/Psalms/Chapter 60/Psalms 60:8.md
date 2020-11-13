@@ -1,0 +1,15 @@
+---
+Links:
+[[Genesis 25:23]]
+[[Genesis 27:40]]
+[[Numbers 24:18]]
+[[2 Samuel 5:17]]
+[[2 Samuel 8:1]]
+[[2 Samuel 8:14]]
+[[2 Samuel 21:15]]
+[[1 Chronicles 18:1]]
+[[1 Chronicles 18:13]]
+[[Psalms 108:9]]
+---
+
+"Moab is my washpot; over Edom will I cast out my shoe: Philistia, triumph thou because of me."

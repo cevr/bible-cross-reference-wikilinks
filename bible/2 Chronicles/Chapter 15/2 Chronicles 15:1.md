@@ -1,6 +1,0 @@
-[[Numbers 24:2]]
-[[Judges 3:10]]
-[[2 Samuel 23:2]]
-[[2 Chronicles 20:14]]
-[[2 Chronicles 24:20]]
-[[2 Peter 1:21]]

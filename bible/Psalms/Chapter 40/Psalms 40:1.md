@@ -1,7 +1,0 @@
-[[Psalms 27:13]]
-[[Psalms 34:15]]
-[[Psalms 37:7]]
-[[Psalms 116:2]]
-[[Psalms 130:2]]
-[[Daniel 9:18]]
-[[James 5:7]]

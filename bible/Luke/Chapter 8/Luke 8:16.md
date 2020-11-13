@@ -1,7 +1,0 @@
-[[Matthew 5:15]]
-[[Mark 4:21]]
-[[Luke 11:33]]
-[[Acts 26:18]]
-[[Philippians 2:15]]
-[[Revelation 1:20]]
-[[Revelation 11:4]]

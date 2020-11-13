@@ -1,7 +1,0 @@
-[[Exodus 34:29]]
-[[Ecclesiastes 8:1]]
-[[Daniel 12:3]]
-[[Matthew 5:16]]
-[[Matthew 13:43]]
-[[John 5:35]]
-[[Philippians 2:15]]

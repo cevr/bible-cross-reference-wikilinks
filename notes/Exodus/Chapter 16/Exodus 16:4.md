@@ -1,0 +1,20 @@
+---
+Links:
+[[Exodus 15:25]]
+[[Deuteronomy 8:2]]
+[[Deuteronomy 8:16]]
+[[Joshua 24:15]]
+[[Nehemiah 9:15]]
+[[Nehemiah 9:20]]
+[[Nehemiah 11:23]]
+[[Psalms 78:24]]
+[[Psalms 105:40]]
+[[Proverbs 30:8]]
+[[Matthew 6:11]]
+[[Matthew 6:32]]
+[[Luke 11:3]]
+[[John 6:31]]
+[[1 Corinthians 10:3]]
+---
+
+"Then said the LORD unto Moses, Behold, I will rain bread from heaven for you; and the people shall go out and gather a certain rate every day, that I may prove them, whether they will walk in my law, or no."

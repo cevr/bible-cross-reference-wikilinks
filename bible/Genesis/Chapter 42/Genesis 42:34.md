@@ -1,7 +1,0 @@
-[[Genesis 20:15]]
-[[Genesis 34:10]]
-[[Genesis 34:21]]
-[[Genesis 42:15]]
-[[Genesis 42:20]]
-[[1 Kings 10:15]]
-[[Ezekiel 17:4]]

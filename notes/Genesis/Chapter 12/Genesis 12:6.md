@@ -1,0 +1,23 @@
+---
+Links:
+[[Genesis 10:15]]
+[[Genesis 10:18]]
+[[Genesis 13:7]]
+[[Genesis 15:18]]
+[[Genesis 33:18]]
+[[Genesis 34:2]]
+[[Genesis 34:30]]
+[[Genesis 35:4]]
+[[Deuteronomy 11:30]]
+[[Joshua 20:7]]
+[[Joshua 24:32]]
+[[Judges 7:1]]
+[[Judges 9:1]]
+[[1 Kings 12:1]]
+[[Hosea 6:9]]
+[[John 4:5]]
+[[Acts 7:16]]
+[[Hebrews 11:9]]
+---
+
+"And Abram passed through the land unto the place of Sichem, unto the plain of Moreh. And the Canaanite was then in the land."

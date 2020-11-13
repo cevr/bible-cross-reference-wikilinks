@@ -1,5 +1,0 @@
-[[Proverbs 5:18]]
-[[Jeremiah 3:4]]
-[[Ezekiel 16:8]]
-[[Ezekiel 16:59]]
-[[Malachi 2:14]]

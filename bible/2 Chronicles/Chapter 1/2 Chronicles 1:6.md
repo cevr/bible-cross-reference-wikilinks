@@ -1,5 +1,0 @@
-[[1 Kings 3:4]]
-[[1 Kings 8:63]]
-[[1 Chronicles 29:21]]
-[[2 Chronicles 8:12]]
-[[Isaiah 40:16]]

@@ -1,6 +1,0 @@
-[[Exodus 28:43]]
-[[Leviticus 10:1]]
-[[Leviticus 16:2]]
-[[Leviticus 22:16]]
-[[Numbers 18:22]]
-[[Numbers 18:32]]

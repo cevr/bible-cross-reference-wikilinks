@@ -1,6 +1,0 @@
-[[Exodus 5:3]]
-[[Ezra 6:10]]
-[[Ezra 7:13]]
-[[Ezra 7:18]]
-[[Psalms 119:4]]
-[[Zechariah 12:3]]

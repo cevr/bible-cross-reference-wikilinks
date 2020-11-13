@@ -1,6 +1,0 @@
-[[1 Kings 3:15]]
-[[2 Chronicles 30:24]]
-[[2 Chronicles 35:7]]
-[[Nehemiah 8:10]]
-[[Ezekiel 45:17]]
-[[1 Peter 4:9]]

@@ -1,0 +1,32 @@
+---
+Links:
+[[Psalms 119:80]]
+[[Proverbs 2:7]]
+[[Proverbs 8:14]]
+[[Micah 3:8]]
+[[Zechariah 4:6]]
+[[Luke 8:35]]
+[[Luke 10:19]]
+[[Luke 15:17]]
+[[Luke 24:49]]
+[[John 14:27]]
+[[Acts 1:8]]
+[[Acts 6:8]]
+[[Acts 9:22]]
+[[Acts 10:38]]
+[[Acts 20:24]]
+[[Acts 21:13]]
+[[Acts 26:11]]
+[[Acts 26:25]]
+[[Romans 5:5]]
+[[Romans 8:15]]
+[[1 Corinthians 2:4]]
+[[2 Corinthians 5:13]]
+[[Galatians 5:22]]
+[[Colossians 1:8]]
+[[Hebrews 2:15]]
+[[1 Peter 1:22]]
+[[1 John 4:18]]
+---
+
+"For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind."

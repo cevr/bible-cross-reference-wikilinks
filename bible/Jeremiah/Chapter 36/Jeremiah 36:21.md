@@ -1,6 +1,0 @@
-[[2 Kings 22:10]]
-[[2 Chronicles 34:18]]
-[[Jeremiah 23:28]]
-[[Jeremiah 26:2]]
-[[Jeremiah 36:15]]
-[[Ezekiel 2:4]]

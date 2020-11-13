@@ -1,7 +1,0 @@
-[[Exodus 15:14]]
-[[1 Kings 10:22]]
-[[1 Kings 22:48]]
-[[Isaiah 2:16]]
-[[Isaiah 13:8]]
-[[Jeremiah 18:17]]
-[[Ezekiel 27:25]]

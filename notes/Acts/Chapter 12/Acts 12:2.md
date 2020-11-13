@@ -1,0 +1,14 @@
+---
+Links:
+[[1 Kings 19:1]]
+[[1 Kings 19:10]]
+[[Jeremiah 26:23]]
+[[Matthew 4:21]]
+[[Matthew 20:23]]
+[[Mark 10:35]]
+[[Mark 10:38]]
+[[Mark 10:39]]
+[[Hebrews 11:37]]
+---
+
+"And he killed James the brother of John with the sword."

@@ -1,0 +1,24 @@
+---
+Links:
+[[Deuteronomy 32:30]]
+[[2 Chronicles 32:8]]
+[[Psalms 9:20]]
+[[Psalms 33:17]]
+[[Psalms 146:3]]
+[[Isaiah 9:17]]
+[[Isaiah 20:4]]
+[[Isaiah 20:6]]
+[[Isaiah 30:5]]
+[[Isaiah 30:7]]
+[[Isaiah 36:6]]
+[[Isaiah 36:9]]
+[[Jeremiah 15:6]]
+[[Jeremiah 37:7]]
+[[Ezekiel 20:33]]
+[[Ezekiel 28:2]]
+[[Ezekiel 28:9]]
+[[Acts 12:22]]
+[[2 Thessalonians 2:4]]
+---
+
+"Now the Egyptians are men, and not God; and their horses flesh, and not spirit. When the LORD shall stretch out his hand, both he that helpeth shall fall, and he that is holpen shall fall down, and they all shall fail together."

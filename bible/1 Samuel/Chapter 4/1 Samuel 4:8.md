@@ -1,5 +1,0 @@
-[[Exodus 7:5]]
-[[Exodus 9:14]]
-[[Exodus 15:14]]
-[[1 Samuel 5:7]]
-[[Psalms 78:43]]

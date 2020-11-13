@@ -1,5 +1,0 @@
-[[Exodus 14:3]]
-[[Exodus 15:9]]
-[[Isaiah 10:10]]
-[[Isaiah 10:11]]
-[[Isaiah 42:8]]

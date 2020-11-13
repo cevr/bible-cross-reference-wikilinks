@@ -1,7 +1,0 @@
-[[Genesis 4:14]]
-[[Genesis 27:45]]
-[[Numbers 35:19]]
-[[Deuteronomy 19:12]]
-[[Deuteronomy 25:6]]
-[[2 Samuel 12:17]]
-[[Matthew 21:38]]

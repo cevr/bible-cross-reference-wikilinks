@@ -1,5 +1,0 @@
-[[Matthew 10:40]]
-[[Luke 9:48]]
-[[Luke 10:10]]
-[[John 13:20]]
-[[1 Corinthians 10:27]]

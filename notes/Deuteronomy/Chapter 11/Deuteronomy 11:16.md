@@ -1,0 +1,31 @@
+---
+Links:
+[[Deuteronomy 4:9]]
+[[Deuteronomy 4:23]]
+[[Deuteronomy 5:7]]
+[[Deuteronomy 8:19]]
+[[Deuteronomy 12:30]]
+[[Deuteronomy 13:3]]
+[[Deuteronomy 17:3]]
+[[Deuteronomy 28:14]]
+[[Deuteronomy 29:17]]
+[[Deuteronomy 29:18]]
+[[Deuteronomy 30:17]]
+[[1 Samuel 12:21]]
+[[Job 31:27]]
+[[Isaiah 44:20]]
+[[Luke 21:8]]
+[[Luke 21:34]]
+[[Luke 21:36]]
+[[Hebrews 2:1]]
+[[Hebrews 3:12]]
+[[Hebrews 4:1]]
+[[Hebrews 12:15]]
+[[James 1:26]]
+[[1 John 5:21]]
+[[Revelation 12:9]]
+[[Revelation 13:14]]
+[[Revelation 20:4]]
+---
+
+"Take heed to yourselves, that your heart be not deceived, and ye turn aside, and serve other gods, and worship them;"

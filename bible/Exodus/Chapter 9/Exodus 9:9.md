@@ -1,5 +1,0 @@
-[[Leviticus 13:18]]
-[[Deuteronomy 28:27]]
-[[Deuteronomy 28:35]]
-[[Job 2:7]]
-[[Revelation 16:2]]

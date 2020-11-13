@@ -1,5 +1,0 @@
-[[Job 36:14]]
-[[Isaiah 1:5]]
-[[Matthew 6:23]]
-[[2 Peter 2:1]]
-[[2 John 1:8]]

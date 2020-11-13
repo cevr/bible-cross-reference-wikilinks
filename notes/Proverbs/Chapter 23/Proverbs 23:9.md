@@ -1,0 +1,22 @@
+---
+Links:
+[[Proverbs 1:7]]
+[[Proverbs 9:7]]
+[[Proverbs 9:8]]
+[[Proverbs 26:4]]
+[[Isaiah 36:21]]
+[[Matthew 7:6]]
+[[Luke 16:14]]
+[[John 8:52]]
+[[John 9:30]]
+[[John 9:40]]
+[[John 10:20]]
+[[Acts 13:45]]
+[[Acts 17:18]]
+[[Acts 17:32]]
+[[Acts 28:25]]
+[[1 Corinthians 1:21]]
+[[1 Corinthians 4:10]]
+---
+
+"Speak not in the ears of a fool: for he will despise the wisdom of thy words."

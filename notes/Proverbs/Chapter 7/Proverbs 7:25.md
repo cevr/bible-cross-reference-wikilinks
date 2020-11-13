@@ -1,0 +1,14 @@
+---
+Links:
+[[Psalms 119:176]]
+[[Proverbs 4:14]]
+[[Proverbs 5:8]]
+[[Proverbs 5:23]]
+[[Proverbs 6:25]]
+[[Proverbs 9:15]]
+[[Proverbs 23:31]]
+[[Isaiah 53:6]]
+[[Matthew 5:28]]
+---
+
+"Let not thine heart decline to her ways, go not astray in her paths."

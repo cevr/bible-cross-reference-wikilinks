@@ -1,0 +1,16 @@
+---
+Links:
+[[Isaiah 13:13]]
+[[Jeremiah 10:19]]
+[[Jeremiah 18:16]]
+[[Jeremiah 30:24]]
+[[Lamentations 2:1]]
+[[Lamentations 2:13]]
+[[Lamentations 4:6]]
+[[Daniel 9:12]]
+[[Matthew 24:21]]
+[[Luke 21:22]]
+[[Luke 23:28]]
+---
+
+"Is it nothing to you, all ye that pass by? behold, and see if there be any sorrow like unto my sorrow, which is done unto me, wherewith the LORD hath afflicted me in the day of his fierce anger."

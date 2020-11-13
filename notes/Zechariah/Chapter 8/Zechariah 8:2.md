@@ -1,0 +1,16 @@
+---
+Links:
+[[1 Chronicles 12:19]]
+[[Psalms 78:58]]
+[[Isaiah 42:13]]
+[[Isaiah 59:17]]
+[[Isaiah 63:4]]
+[[Isaiah 63:15]]
+[[Ezekiel 36:5]]
+[[Joel 2:18]]
+[[Nahum 1:2]]
+[[Nahum 1:6]]
+[[Zechariah 1:14]]
+---
+
+"Thus saith the LORD of hosts; I was jealous for Zion with great jealousy, and I was jealous for her with great fury."

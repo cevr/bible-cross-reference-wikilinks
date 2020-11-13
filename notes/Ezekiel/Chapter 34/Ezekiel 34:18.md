@@ -1,0 +1,19 @@
+---
+Links:
+[[Genesis 30:15]]
+[[Numbers 16:9]]
+[[Numbers 16:13]]
+[[2 Samuel 7:19]]
+[[Isaiah 7:13]]
+[[Isaiah 32:6]]
+[[Ezekiel 16:20]]
+[[Ezekiel 16:47]]
+[[Ezekiel 32:2]]
+[[Ezekiel 34:2]]
+[[Micah 2:2]]
+[[Matthew 15:6]]
+[[Matthew 23:13]]
+[[Luke 11:52]]
+---
+
+"Seemeth it a small thing unto you to have eaten up the good pasture, but ye must tread down with your feet the residue of your pastures? and to have drunk of the deep waters, but ye must foul the residue with your feet?"

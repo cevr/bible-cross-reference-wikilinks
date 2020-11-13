@@ -1,0 +1,30 @@
+---
+Links:
+[[2 Kings 16:9]]
+[[2 Kings 17:6]]
+[[Isaiah 7:8]]
+[[Isaiah 7:16]]
+[[Isaiah 8:4]]
+[[Isaiah 10:9]]
+[[Isaiah 16:14]]
+[[Isaiah 17:4]]
+[[Isaiah 28:1]]
+[[Hosea 1:4]]
+[[Hosea 1:6]]
+[[Hosea 3:4]]
+[[Hosea 5:13]]
+[[Hosea 8:8]]
+[[Hosea 9:11]]
+[[Hosea 9:16]]
+[[Hosea 10:14]]
+[[Hosea 13:7]]
+[[Hosea 13:15]]
+[[Amos 2:6]]
+[[Amos 3:9]]
+[[Amos 5:25]]
+[[Amos 6:7]]
+[[Amos 8:14]]
+[[Micah 1:4]]
+---
+
+"The fortress also shall cease from Ephraim, and the kingdom from Damascus, and the remnant of Syria: they shall be as the glory of the children of Israel, saith the LORD of hosts."

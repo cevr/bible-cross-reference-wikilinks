@@ -1,0 +1,10 @@
+---
+Links:
+[[Zechariah 11:11]]
+[[Mark 1:5]]
+[[John 3:26]]
+[[John 11:48]]
+[[John 12:19]]
+---
+
+"And when they had found him, they said unto him, All men seek for thee."

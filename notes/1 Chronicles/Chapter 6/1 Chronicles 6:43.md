@@ -1,0 +1,13 @@
+---
+Links:
+[[Genesis 46:11]]
+[[Exodus 2:22]]
+[[Exodus 6:16]]
+[[Numbers 3:17]]
+[[1 Chronicles 6:1]]
+[[1 Chronicles 6:16]]
+[[1 Chronicles 6:20]]
+[[1 Chronicles 23:6]]
+---
+
+"The son of Jahath, the son of Gershom, the son of Levi."

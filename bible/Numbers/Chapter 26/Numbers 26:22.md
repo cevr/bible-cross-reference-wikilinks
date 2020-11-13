@@ -1,6 +1,0 @@
-[[Genesis 49:8]]
-[[Numbers 1:26]]
-[[Numbers 2:3]]
-[[1 Chronicles 5:2]]
-[[Psalms 115:14]]
-[[Hebrews 7:14]]

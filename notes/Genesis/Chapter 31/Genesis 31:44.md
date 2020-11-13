@@ -1,0 +1,16 @@
+---
+Links:
+[[Genesis 15:18]]
+[[Genesis 21:22]]
+[[Genesis 26:28]]
+[[Genesis 31:48]]
+[[Genesis 31:52]]
+[[Deuteronomy 31:19]]
+[[Deuteronomy 31:21]]
+[[Deuteronomy 31:26]]
+[[Joshua 22:27]]
+[[Joshua 24:25]]
+[[1 Samuel 20:14]]
+---
+
+"Now therefore come thou, let us make a covenant, I and thou; and let it be for a witness between me and thee."

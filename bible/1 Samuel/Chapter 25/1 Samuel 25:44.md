@@ -1,5 +1,0 @@
-[[1 Samuel 18:20]]
-[[1 Samuel 18:27]]
-[[2 Samuel 3:14]]
-[[2 Samuel 3:15]]
-[[Isaiah 10:30]]

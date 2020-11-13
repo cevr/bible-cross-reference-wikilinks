@@ -1,0 +1,16 @@
+---
+Links:
+[[Exodus 14:13]]
+[[Exodus 14:25]]
+[[1 Kings 20:20]]
+[[2 Kings 7:6]]
+[[2 Kings 7:7]]
+[[2 Chronicles 20:15]]
+[[2 Chronicles 20:17]]
+[[Job 15:21]]
+[[Proverbs 28:1]]
+[[Isaiah 30:7]]
+[[Isaiah 30:15]]
+---
+
+"And they stood every man in his place round about the camp: and all the host ran, and cried, and fled."

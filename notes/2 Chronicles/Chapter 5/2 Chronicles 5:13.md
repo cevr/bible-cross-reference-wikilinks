@@ -1,0 +1,33 @@
+---
+Links:
+[[Exodus 29:43]]
+[[Exodus 40:34]]
+[[1 Kings 8:10]]
+[[1 Chronicles 16:4]]
+[[1 Chronicles 16:34]]
+[[2 Chronicles 7:1]]
+[[2 Chronicles 7:2]]
+[[2 Chronicles 7:3]]
+[[2 Chronicles 7:6]]
+[[2 Chronicles 20:21]]
+[[2 Chronicles 20:22]]
+[[Ezra 3:11]]
+[[Nehemiah 12:27]]
+[[Psalms 22:4]]
+[[Psalms 68:25]]
+[[Psalms 81:2]]
+[[Psalms 95:1]]
+[[Psalms 100:1]]
+[[Psalms 100:5]]
+[[Psalms 136:1]]
+[[Psalms 150:3]]
+[[Psalms 150:5]]
+[[Isaiah 52:8]]
+[[Jeremiah 32:39]]
+[[Jeremiah 33:11]]
+[[Acts 4:32]]
+[[Romans 15:6]]
+[[Revelation 5:8]]
+---
+
+"It came even to pass, as the trumpeters and singers were as one, to make one sound to be heard in praising and thanking the LORD; and when they lifted up their voice with the trumpets and cymbals and instruments of musick, and praised the LORD, saying, For he is good; for his mercy endureth for ever: that then the house was filled with a cloud, even the house of the LORD;"

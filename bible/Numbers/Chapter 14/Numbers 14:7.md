@@ -1,6 +1,0 @@
-[[Numbers 13:27]]
-[[Numbers 13:30]]
-[[Deuteronomy 1:25]]
-[[Deuteronomy 6:10]]
-[[Deuteronomy 8:7]]
-[[Judges 18:9]]

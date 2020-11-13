@@ -1,8 +1,0 @@
-[[Genesis 15:14]]
-[[Exodus 11:2]]
-[[Exodus 12:35]]
-[[Job 27:16]]
-[[Psalms 105:37]]
-[[Proverbs 13:22]]
-[[Isaiah 33:1]]
-[[Ezekiel 39:10]]

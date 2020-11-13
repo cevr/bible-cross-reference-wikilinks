@@ -1,7 +1,0 @@
-[[Exodus 26:31]]
-[[Exodus 26:36]]
-[[Exodus 28:39]]
-[[Exodus 36:37]]
-[[Exodus 39:29]]
-[[Judges 5:30]]
-[[Psalms 45:14]]

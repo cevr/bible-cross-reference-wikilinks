@@ -1,0 +1,24 @@
+---
+Links:
+[[Deuteronomy 12:12]]
+[[Deuteronomy 12:18]]
+[[1 Kings 4:20]]
+[[Nehemiah 8:10]]
+[[Ecclesiastes 2:10]]
+[[Ecclesiastes 3:12]]
+[[Ecclesiastes 3:13]]
+[[Ecclesiastes 3:22]]
+[[Ecclesiastes 5:17]]
+[[Ecclesiastes 5:18]]
+[[Ecclesiastes 6:2]]
+[[Ecclesiastes 8:15]]
+[[Ecclesiastes 9:7]]
+[[Ecclesiastes 11:9]]
+[[Malachi 2:2]]
+[[Luke 12:19]]
+[[Acts 14:17]]
+[[1 Corinthians 15:32]]
+[[1 Timothy 6:17]]
+---
+
+"There is nothing better for a man, than that he should eat and drink, and that he should make his soul enjoy good in his labour. This also I saw, that it was from the hand of God."

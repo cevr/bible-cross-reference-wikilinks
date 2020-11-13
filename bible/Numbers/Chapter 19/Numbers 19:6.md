@@ -1,6 +1,0 @@
-[[Leviticus 14:4]]
-[[Leviticus 14:6]]
-[[Leviticus 14:49]]
-[[Psalms 51:7]]
-[[Isaiah 1:18]]
-[[Hebrews 9:19]]

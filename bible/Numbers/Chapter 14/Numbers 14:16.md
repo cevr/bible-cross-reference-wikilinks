@@ -1,5 +1,0 @@
-[[Exodus 32:12]]
-[[Deuteronomy 9:28]]
-[[Deuteronomy 32:26]]
-[[Joshua 7:7]]
-[[Joshua 7:9]]

@@ -1,0 +1,21 @@
+---
+Links:
+[[2 Kings 25:5]]
+[[2 Kings 25:11]]
+[[Isaiah 26:11]]
+[[Jeremiah 48:44]]
+[[Jeremiah 52:8]]
+[[Ezekiel 5:10]]
+[[Ezekiel 5:12]]
+[[Ezekiel 5:13]]
+[[Ezekiel 6:7]]
+[[Ezekiel 6:10]]
+[[Ezekiel 12:14]]
+[[Ezekiel 13:14]]
+[[Ezekiel 13:23]]
+[[Ezekiel 15:7]]
+[[Amos 9:1]]
+[[Amos 9:9]]
+---
+
+"And all his fugitives with all his bands shall fall by the sword, and they that remain shall be scattered toward all winds: and ye shall know that I the LORD have spoken it."

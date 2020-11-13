@@ -1,6 +1,0 @@
-[[2 Samuel 2:32]]
-[[1 Kings 22:50]]
-[[2 Kings 8:16]]
-[[2 Chronicles 9:31]]
-[[2 Chronicles 12:16]]
-[[2 Chronicles 21:20]]

@@ -1,0 +1,30 @@
+---
+Links:
+[[Leviticus 26:25]]
+[[Deuteronomy 31:17]]
+[[Deuteronomy 31:18]]
+[[Deuteronomy 32:20]]
+[[Deuteronomy 32:30]]
+[[Judges 2:14]]
+[[Judges 3:8]]
+[[2 Chronicles 7:21]]
+[[Ezra 9:7]]
+[[Psalms 10:1]]
+[[Psalms 30:7]]
+[[Psalms 106:41]]
+[[Isaiah 1:15]]
+[[Isaiah 8:17]]
+[[Isaiah 42:24]]
+[[Isaiah 59:2]]
+[[Isaiah 64:7]]
+[[Jeremiah 22:8]]
+[[Jeremiah 33:5]]
+[[Jeremiah 40:2]]
+[[Lamentations 1:8]]
+[[Lamentations 2:15]]
+[[Ezekiel 36:18]]
+[[Ezekiel 36:36]]
+[[Ezekiel 39:29]]
+---
+
+"And the heathen shall know that the house of Israel went into captivity for their iniquity: because they trespassed against me, therefore hid I my face from them, and gave them into the hand of their enemies: so fell they all by the sword."

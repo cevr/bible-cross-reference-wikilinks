@@ -1,7 +1,0 @@
-[[Genesis 32:2]]
-[[Joshua 9:3]]
-[[Joshua 10:2]]
-[[Joshua 10:4]]
-[[Joshua 10:12]]
-[[Joshua 18:25]]
-[[2 Samuel 17:14]]

@@ -1,0 +1,15 @@
+---
+Links:
+[[Nehemiah 2:19]]
+[[Psalms 51:10]]
+[[Psalms 80:3]]
+[[Psalms 80:19]]
+[[Isaiah 30:15]]
+[[Isaiah 64:5]]
+[[Jeremiah 4:14]]
+[[Mark 4:12]]
+[[Luke 1:16]]
+[[2 Timothy 2:25]]
+---
+
+"Turn us again, O God of hosts, and cause thy face to shine; and we shall be saved."

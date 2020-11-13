@@ -1,8 +1,0 @@
-[[1 Samuel 4:13]]
-[[2 Samuel 13:34]]
-[[2 Samuel 18:4]]
-[[2 Samuel 19:8]]
-[[2 Kings 9:17]]
-[[Isaiah 21:6]]
-[[Isaiah 21:11]]
-[[Ezekiel 33:2]]

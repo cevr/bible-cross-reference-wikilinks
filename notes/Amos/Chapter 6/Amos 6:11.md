@@ -1,0 +1,24 @@
+---
+Links:
+[[2 Kings 25:9]]
+[[Psalms 105:16]]
+[[Psalms 105:31]]
+[[Psalms 105:34]]
+[[Ecclesiastes 10:18]]
+[[Isaiah 10:5]]
+[[Isaiah 13:3]]
+[[Isaiah 46:10]]
+[[Isaiah 55:11]]
+[[Ezekiel 29:18]]
+[[Hosea 13:16]]
+[[Amos 3:6]]
+[[Amos 3:15]]
+[[Amos 6:8]]
+[[Amos 9:1]]
+[[Amos 9:9]]
+[[Nahum 1:14]]
+[[Zechariah 14:2]]
+[[Luke 19:44]]
+---
+
+"For, behold, the LORD commandeth, and he will smite the great house with breaches, and the little house with clefts."

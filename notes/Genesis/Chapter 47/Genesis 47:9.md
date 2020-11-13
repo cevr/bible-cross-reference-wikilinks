@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 5:27]]
+[[Genesis 11:11]]
+[[Genesis 11:24]]
+[[Genesis 25:7]]
+[[Genesis 35:28]]
+[[Genesis 47:28]]
+[[Genesis 50:26]]
+[[Exodus 6:4]]
+[[Exodus 7:7]]
+[[Deuteronomy 34:7]]
+[[Joshua 24:29]]
+[[2 Samuel 19:32]]
+[[1 Chronicles 29:15]]
+[[Job 8:8]]
+[[Job 14:1]]
+[[Job 42:16]]
+[[Psalms 39:5]]
+[[Psalms 39:12]]
+[[Psalms 39:13]]
+[[Psalms 89:47]]
+[[Psalms 90:3]]
+[[Psalms 119:19]]
+[[Psalms 119:54]]
+[[2 Corinthians 5:6]]
+[[Hebrews 11:9]]
+[[Hebrews 13:14]]
+[[James 4:14]]
+[[1 Peter 2:11]]
+---
+
+"And Jacob said unto Pharaoh, The days of the years of my pilgrimage are an hundred and thirty years: few and evil have the days of the years of my life been, and have not attained unto the days of the years of the life of my fathers in the days of their pilgrimage."

@@ -1,0 +1,23 @@
+---
+Links:
+[[Jeremiah 3:10]]
+[[Jeremiah 24:7]]
+[[Matthew 7:21]]
+[[Matthew 12:50]]
+[[Romans 6:17]]
+[[Galatians 1:10]]
+[[Ephesians 5:17]]
+[[Philippians 2:12]]
+[[Colossians 1:9]]
+[[Colossians 3:22]]
+[[Colossians 4:12]]
+[[1 Thessalonians 2:4]]
+[[1 Thessalonians 4:3]]
+[[Hebrews 10:36]]
+[[Hebrews 13:21]]
+[[1 Peter 2:15]]
+[[1 Peter 4:2]]
+[[1 John 2:17]]
+---
+
+"Not with eyeservice, as menpleasers; but as the servants of Christ, doing the will of God from the heart;"

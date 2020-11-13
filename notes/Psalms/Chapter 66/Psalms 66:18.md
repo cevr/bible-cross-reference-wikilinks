@@ -1,0 +1,15 @@
+---
+Links:
+[[Job 27:8]]
+[[Job 35:13]]
+[[Job 36:21]]
+[[Proverbs 15:8]]
+[[Proverbs 15:29]]
+[[Proverbs 21:13]]
+[[Proverbs 28:9]]
+[[Isaiah 1:15]]
+[[John 9:31]]
+[[James 4:3]]
+---
+
+"If I regard iniquity in my heart, the Lord will not hear me:"

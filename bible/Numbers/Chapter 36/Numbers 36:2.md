@@ -1,8 +1,0 @@
-[[Numbers 26:55]]
-[[Numbers 27:1]]
-[[Numbers 27:7]]
-[[Numbers 33:54]]
-[[Joshua 13:6]]
-[[Joshua 14:1]]
-[[Joshua 17:3]]
-[[Job 42:15]]

@@ -1,0 +1,23 @@
+---
+Links:
+[[Deuteronomy 21:23]]
+[[Psalms 109:20]]
+[[Matthew 16:16]]
+[[Matthew 22:43]]
+[[Mark 9:39]]
+[[John 13:13]]
+[[John 15:26]]
+[[John 16:14]]
+[[Acts 8:37]]
+[[Romans 9:3]]
+[[Romans 10:9]]
+[[1 Corinthians 8:6]]
+[[1 Corinthians 16:22]]
+[[2 Corinthians 3:5]]
+[[2 Corinthians 11:4]]
+[[Galatians 3:13]]
+[[1 John 4:2]]
+[[Revelation 1:10]]
+---
+
+"Wherefore I give you to understand, that no man speaking by the Spirit of God calleth Jesus accursed: and that no man can say that Jesus is the Lord, but by the Holy Ghost."

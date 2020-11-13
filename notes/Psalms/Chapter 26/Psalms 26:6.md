@@ -1,0 +1,18 @@
+---
+Links:
+[[Exodus 30:19]]
+[[Deuteronomy 21:6]]
+[[Psalms 24:4]]
+[[Psalms 43:4]]
+[[Psalms 73:13]]
+[[Isaiah 1:16]]
+[[Malachi 2:11]]
+[[Matthew 5:23]]
+[[John 13:9]]
+[[1 Corinthians 11:28]]
+[[1 Timothy 2:8]]
+[[Titus 3:5]]
+[[Hebrews 10:19]]
+---
+
+"I will wash mine hands in innocency: so will I compass thine altar, O LORD:"

@@ -1,6 +1,0 @@
-[[1 Samuel 12:3]]
-[[2 Kings 9:14]]
-[[2 Kings 9:24]]
-[[2 Kings 12:21]]
-[[Isaiah 5:3]]
-[[Hosea 1:4]]

@@ -1,0 +1,20 @@
+---
+Links:
+[[Job 4:14]]
+[[Job 37:1]]
+[[Psalms 45:11]]
+[[Songs of Solomon 7:10]]
+[[Ezekiel 2:1]]
+[[Daniel 8:16]]
+[[Daniel 9:22]]
+[[Daniel 9:23]]
+[[Daniel 10:3]]
+[[Daniel 10:19]]
+[[Mark 16:8]]
+[[John 13:23]]
+[[John 21:20]]
+[[Acts 9:6]]
+[[Acts 26:16]]
+---
+
+"And he said unto me, O Daniel, a man greatly beloved, understand the words that I speak unto thee, and stand upright: for unto thee am I now sent. And when he had spoken this word unto me, I stood trembling."

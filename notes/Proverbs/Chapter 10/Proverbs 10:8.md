@@ -1,0 +1,19 @@
+---
+Links:
+[[Psalms 119:34]]
+[[Proverbs 1:5]]
+[[Proverbs 9:9]]
+[[Proverbs 10:10]]
+[[Proverbs 12:1]]
+[[Proverbs 12:13]]
+[[Proverbs 13:3]]
+[[Proverbs 14:8]]
+[[Proverbs 14:23]]
+[[Proverbs 18:6]]
+[[Proverbs 18:7]]
+[[Ecclesiastes 10:12]]
+[[Matthew 7:24]]
+[[James 3:13]]
+---
+
+"The wise in heart will receive commandments: but a prating fool shall fall."

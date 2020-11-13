@@ -1,0 +1,19 @@
+---
+Links:
+[[Leviticus 21:5]]
+[[Deuteronomy 14:1]]
+[[Isaiah 15:2]]
+[[Isaiah 16:9]]
+[[Isaiah 22:4]]
+[[Isaiah 22:12]]
+[[Jeremiah 16:6]]
+[[Jeremiah 47:5]]
+[[Jeremiah 48:37]]
+[[Ezekiel 7:18]]
+[[Joel 1:13]]
+[[Amos 8:10]]
+[[Micah 1:8]]
+[[Micah 1:16]]
+---
+
+"And they shall make themselves utterly bald for thee, and gird them with sackcloth, and they shall weep for thee with bitterness of heart and bitter wailing."

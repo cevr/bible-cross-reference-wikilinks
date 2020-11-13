@@ -1,5 +1,0 @@
-[[1 Kings 12:14]]
-[[Luke 15:18]]
-[[1 Thessalonians 4:8]]
-[[1 Thessalonians 5:12]]
-[[Hebrews 13:7]]

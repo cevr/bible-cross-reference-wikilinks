@@ -1,7 +1,0 @@
-[[1 Kings 18:27]]
-[[Psalms 27:1]]
-[[Psalms 32:7]]
-[[Psalms 127:1]]
-[[Ecclesiastes 8:16]]
-[[Isaiah 27:3]]
-[[Revelation 7:15]]

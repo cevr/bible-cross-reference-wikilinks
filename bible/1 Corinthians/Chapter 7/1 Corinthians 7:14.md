@@ -1,8 +1,0 @@
-[[Ezra 9:1]]
-[[Isaiah 52:1]]
-[[Malachi 2:15]]
-[[Acts 10:23]]
-[[Romans 11:16]]
-[[1 Corinthians 6:15]]
-[[1 Timothy 4:5]]
-[[Titus 1:15]]

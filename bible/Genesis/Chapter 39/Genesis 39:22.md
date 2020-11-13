@@ -1,8 +1,0 @@
-[[Genesis 39:4]]
-[[Genesis 39:6]]
-[[Genesis 39:9]]
-[[Genesis 40:3]]
-[[Genesis 40:4]]
-[[1 Samuel 2:30]]
-[[Psalms 37:3]]
-[[Psalms 37:11]]

@@ -1,8 +1,0 @@
-[[Genesis 4:5]]
-[[Job 29:16]]
-[[Proverbs 6:34]]
-[[Proverbs 18:17]]
-[[Proverbs 29:12]]
-[[Songs of Solomon 8:7]]
-[[Acts 25:16]]
-[[2 Thessalonians 2:11]]

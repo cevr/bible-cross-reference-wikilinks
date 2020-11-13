@@ -1,8 +1,0 @@
-[[Numbers 13:22]]
-[[Numbers 13:33]]
-[[Joshua 14:15]]
-[[Joshua 15:13]]
-[[Judges 1:20]]
-[[Psalms 33:16]]
-[[Ecclesiastes 9:11]]
-[[Jeremiah 9:23]]

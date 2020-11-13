@@ -1,6 +1,0 @@
-[[Joshua 22:29]]
-[[1 Samuel 12:23]]
-[[Psalms 119:106]]
-[[Romans 3:6]]
-[[Romans 6:2]]
-[[Hebrews 10:38]]

@@ -1,0 +1,31 @@
+---
+Links:
+[[Leviticus 1:2]]
+[[Leviticus 1:10]]
+[[Leviticus 7:16]]
+[[Leviticus 17:10]]
+[[Leviticus 17:13]]
+[[Leviticus 23:38]]
+[[Numbers 15:3]]
+[[Numbers 15:14]]
+[[Deuteronomy 12:6]]
+[[Deuteronomy 12:17]]
+[[Deuteronomy 16:10]]
+[[2 Chronicles 31:14]]
+[[Psalms 22:25]]
+[[Psalms 56:12]]
+[[Psalms 61:5]]
+[[Psalms 61:8]]
+[[Psalms 65:1]]
+[[Psalms 66:13]]
+[[Psalms 116:14]]
+[[Psalms 116:18]]
+[[Ecclesiastes 5:4]]
+[[Amos 4:5]]
+[[Jonah 1:16]]
+[[Jonah 2:9]]
+[[Nahum 1:15]]
+[[Acts 18:18]]
+---
+
+"Speak unto Aaron, and to his sons, and unto all the children of Israel, and say unto them, Whatsoever he be of the house of Israel, or of the strangers in Israel, that will offer his oblation for all his vows, and for all his freewill offerings, which they will offer unto the LORD for a burnt offering;"

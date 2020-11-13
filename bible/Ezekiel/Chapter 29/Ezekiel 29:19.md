@@ -1,7 +1,0 @@
-[[Jeremiah 43:10]]
-[[Jeremiah 43:12]]
-[[Ezekiel 29:8]]
-[[Ezekiel 30:4]]
-[[Ezekiel 30:10]]
-[[Ezekiel 30:24]]
-[[Ezekiel 32:11]]

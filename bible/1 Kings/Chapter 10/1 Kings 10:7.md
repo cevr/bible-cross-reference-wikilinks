@@ -1,7 +1,0 @@
-[[Psalms 48:9]]
-[[Isaiah 64:4]]
-[[Zechariah 9:17]]
-[[Mark 16:11]]
-[[John 20:25]]
-[[1 Corinthians 2:9]]
-[[1 John 3:2]]

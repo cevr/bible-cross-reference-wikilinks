@@ -1,6 +1,0 @@
-[[2 Samuel 8:11]]
-[[1 Kings 7:39]]
-[[1 Kings 7:51]]
-[[1 Chronicles 22:14]]
-[[1 Chronicles 26:26]]
-[[1 Chronicles 26:27]]

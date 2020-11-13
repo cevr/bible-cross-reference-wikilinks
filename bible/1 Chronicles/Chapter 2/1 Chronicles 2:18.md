@@ -1,5 +1,0 @@
-[[1 Chronicles 2:9]]
-[[1 Chronicles 2:24]]
-[[1 Chronicles 2:42]]
-[[1 Chronicles 2:46]]
-[[1 Chronicles 4:1]]

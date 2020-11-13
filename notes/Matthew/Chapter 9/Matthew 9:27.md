@@ -1,0 +1,27 @@
+---
+Links:
+[[Matthew 1:1]]
+[[Matthew 11:5]]
+[[Matthew 12:22]]
+[[Matthew 15:22]]
+[[Matthew 17:15]]
+[[Matthew 20:30]]
+[[Matthew 21:9]]
+[[Matthew 21:15]]
+[[Matthew 22:41]]
+[[Mark 8:22]]
+[[Mark 9:22]]
+[[Mark 10:46]]
+[[Mark 11:10]]
+[[Mark 12:35]]
+[[Luke 7:21]]
+[[Luke 17:13]]
+[[Luke 18:38]]
+[[Luke 20:41]]
+[[John 7:42]]
+[[John 9:1]]
+[[Romans 1:3]]
+[[Romans 9:5]]
+---
+
+"And when Jesus departed thence, two blind men followed him, crying, and saying, Thou Son of David, have mercy on us."

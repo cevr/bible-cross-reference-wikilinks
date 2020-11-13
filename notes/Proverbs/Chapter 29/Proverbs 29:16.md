@@ -1,0 +1,15 @@
+---
+Links:
+[[Psalms 37:34]]
+[[Psalms 37:36]]
+[[Psalms 58:10]]
+[[Psalms 91:8]]
+[[Psalms 92:9]]
+[[Psalms 92:11]]
+[[Psalms 112:8]]
+[[Proverbs 29:2]]
+[[Revelation 15:4]]
+[[Revelation 18:20]]
+---
+
+"When the wicked are multiplied, transgression increaseth: but the righteous shall see their fall."

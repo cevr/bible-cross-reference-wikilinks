@@ -1,6 +1,0 @@
-[[Genesis 43:14]]
-[[Job 17:11]]
-[[Psalms 39:6]]
-[[1 Corinthians 15:19]]
-[[2 Corinthians 1:8]]
-[[1 Thessalonians 3:3]]

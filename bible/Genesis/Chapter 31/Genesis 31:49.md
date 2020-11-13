@@ -1,6 +1,0 @@
-[[Judges 10:17]]
-[[Judges 11:11]]
-[[Judges 11:29]]
-[[1 Samuel 7:5]]
-[[1 Kings 15:22]]
-[[Hosea 5:1]]

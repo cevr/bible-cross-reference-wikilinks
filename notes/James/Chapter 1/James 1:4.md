@@ -1,0 +1,30 @@
+---
+Links:
+[[Job 17:9]]
+[[Psalms 37:7]]
+[[Psalms 40:1]]
+[[Proverbs 4:8]]
+[[Habakkuk 2:3]]
+[[Matthew 5:48]]
+[[Matthew 10:22]]
+[[Matthew 19:20]]
+[[Mark 10:21]]
+[[Luke 8:15]]
+[[Luke 18:22]]
+[[Luke 21:19]]
+[[John 17:23]]
+[[1 Corinthians 2:6]]
+[[Galatians 6:9]]
+[[Philippians 3:12]]
+[[Colossians 4:12]]
+[[2 Timothy 3:17]]
+[[Hebrews 13:21]]
+[[James 1:5]]
+[[James 3:2]]
+[[James 5:7]]
+[[1 Peter 5:10]]
+[[2 Peter 1:9]]
+[[1 John 4:17]]
+---
+
+"But let patience have her perfect work, that ye may be perfect and entire, wanting nothing."

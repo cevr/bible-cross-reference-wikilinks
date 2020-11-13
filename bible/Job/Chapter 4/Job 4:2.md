@@ -1,7 +1,0 @@
-[[Job 32:18]]
-[[Job 32:20]]
-[[Jeremiah 6:11]]
-[[Jeremiah 20:9]]
-[[Acts 4:20]]
-[[2 Corinthians 2:4]]
-[[2 Corinthians 7:8]]

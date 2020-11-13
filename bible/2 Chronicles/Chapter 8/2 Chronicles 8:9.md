@@ -1,5 +1,0 @@
-[[Exodus 19:5]]
-[[Leviticus 25:39]]
-[[1 Samuel 8:11]]
-[[Galatians 4:26]]
-[[Galatians 4:31]]

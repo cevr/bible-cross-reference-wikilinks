@@ -1,6 +1,0 @@
-[[Numbers 21:28]]
-[[Numbers 23:13]]
-[[Numbers 25:2]]
-[[Deuteronomy 12:2]]
-[[2 Chronicles 11:15]]
-[[Jeremiah 48:35]]

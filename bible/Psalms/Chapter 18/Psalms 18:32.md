@@ -1,8 +1,0 @@
-[[1 Samuel 19:8]]
-[[2 Samuel 22:33]]
-[[Psalms 28:7]]
-[[Psalms 91:2]]
-[[Psalms 93:1]]
-[[Isaiah 44:8]]
-[[Isaiah 45:5]]
-[[2 Corinthians 3:5]]

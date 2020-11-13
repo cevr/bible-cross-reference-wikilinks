@@ -1,0 +1,25 @@
+---
+Links:
+[[Genesis 27:26]]
+[[Genesis 29:11]]
+[[Genesis 45:15]]
+[[Psalms 2:12]]
+[[Psalms 36:7]]
+[[Psalms 63:3]]
+[[Songs of Solomon 1:4]]
+[[Songs of Solomon 2:4]]
+[[Songs of Solomon 4:10]]
+[[Songs of Solomon 5:16]]
+[[Songs of Solomon 7:6]]
+[[Songs of Solomon 7:9]]
+[[Songs of Solomon 7:12]]
+[[Songs of Solomon 8:1]]
+[[Isaiah 25:6]]
+[[Isaiah 55:1]]
+[[Matthew 26:26]]
+[[Luke 15:20]]
+[[Acts 21:7]]
+[[1 Peter 5:14]]
+---
+
+"undefined"

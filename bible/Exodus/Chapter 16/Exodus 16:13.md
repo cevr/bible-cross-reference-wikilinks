@@ -1,5 +1,0 @@
-[[Numbers 11:9]]
-[[Numbers 11:31]]
-[[Psalms 78:27]]
-[[Psalms 78:28]]
-[[Psalms 105:40]]

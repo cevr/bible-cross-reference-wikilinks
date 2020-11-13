@@ -1,5 +1,0 @@
-[[Matthew 5:20]]
-[[Matthew 10:12]]
-[[Luke 6:32]]
-[[Luke 10:4]]
-[[1 Peter 2:20]]

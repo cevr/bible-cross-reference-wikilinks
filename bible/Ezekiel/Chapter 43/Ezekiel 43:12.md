@@ -1,6 +1,0 @@
-[[Psalms 93:5]]
-[[Ezekiel 40:2]]
-[[Ezekiel 42:20]]
-[[Joel 3:17]]
-[[Zechariah 14:20]]
-[[Revelation 21:27]]

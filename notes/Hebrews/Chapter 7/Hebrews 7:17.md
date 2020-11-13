@@ -1,0 +1,11 @@
+---
+Links:
+[[Psalms 110:4]]
+[[Hebrews 5:6]]
+[[Hebrews 5:10]]
+[[Hebrews 6:20]]
+[[Hebrews 7:15]]
+[[Hebrews 7:21]]
+---
+
+"For he testifieth, Thou art a priest for ever after the order of Melchisedec."

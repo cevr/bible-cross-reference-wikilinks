@@ -1,0 +1,31 @@
+---
+Links:
+[[Matthew 23:14]]
+[[Acts 11:2]]
+[[Acts 15:1]]
+[[Acts 15:24]]
+[[Acts 20:29]]
+[[Romans 16:17]]
+[[2 Corinthians 11:12]]
+[[Galatians 1:6]]
+[[Galatians 2:4]]
+[[Galatians 3:1]]
+[[Galatians 4:17]]
+[[Galatians 5:1]]
+[[Ephesians 4:14]]
+[[Philippians 3:2]]
+[[2 Thessalonians 2:10]]
+[[1 Timothy 1:4]]
+[[1 Timothy 1:6]]
+[[1 Timothy 6:3]]
+[[2 Timothy 3:13]]
+[[2 Timothy 4:4]]
+[[James 1:26]]
+[[2 Peter 2:1]]
+[[1 John 2:18]]
+[[1 John 4:1]]
+[[Revelation 2:6]]
+[[Revelation 2:14]]
+---
+
+"For there are many unruly and vain talkers and deceivers, specially they of the circumcision:"

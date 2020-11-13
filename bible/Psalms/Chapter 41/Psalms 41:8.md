@@ -1,7 +1,0 @@
-[[Job 2:7]]
-[[Psalms 3:2]]
-[[Psalms 38:3]]
-[[Psalms 71:11]]
-[[Matthew 27:41]]
-[[Matthew 27:63]]
-[[Luke 13:16]]

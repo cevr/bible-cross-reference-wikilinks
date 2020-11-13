@@ -1,0 +1,16 @@
+---
+Links:
+[[Isaiah 59:16]]
+[[Jeremiah 2:11]]
+[[Matthew 4:23]]
+[[Matthew 8:10]]
+[[Matthew 9:35]]
+[[Mark 1:39]]
+[[Luke 4:31]]
+[[Luke 4:44]]
+[[Luke 13:22]]
+[[John 9:30]]
+[[Acts 10:38]]
+---
+
+"And he marvelled because of their unbelief. And he went round about the villages, teaching."

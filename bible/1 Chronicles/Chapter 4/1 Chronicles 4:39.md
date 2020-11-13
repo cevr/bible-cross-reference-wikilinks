@@ -1,5 +1,0 @@
-[[Joshua 12:13]]
-[[Joshua 15:58]]
-[[1 Chronicles 4:4]]
-[[1 Chronicles 4:18]]
-[[1 Chronicles 12:7]]

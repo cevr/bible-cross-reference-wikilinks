@@ -1,0 +1,28 @@
+---
+Links:
+[[Genesis 42:21]]
+[[Judges 1:7]]
+[[Judges 5:27]]
+[[Job 22:6]]
+[[Psalms 18:25]]
+[[Psalms 85:10]]
+[[Proverbs 21:13]]
+[[Isaiah 27:11]]
+[[Jeremiah 9:24]]
+[[Ezekiel 33:11]]
+[[Micah 7:18]]
+[[Matthew 5:7]]
+[[Matthew 6:15]]
+[[Matthew 7:1]]
+[[Matthew 18:28]]
+[[Matthew 25:41]]
+[[Luke 6:37]]
+[[Luke 16:25]]
+[[Ephesians 1:6]]
+[[Ephesians 2:4]]
+[[James 5:4]]
+[[1 John 4:8]]
+[[1 John 4:18]]
+---
+
+"For he shall have judgment without mercy, that hath shewed no mercy; and mercy rejoiceth against judgment."

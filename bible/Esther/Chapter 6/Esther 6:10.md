@@ -1,5 +1,0 @@
-[[2 Kings 10:10]]
-[[Psalms 31:24]]
-[[Daniel 4:37]]
-[[Luke 14:11]]
-[[Revelation 18:7]]

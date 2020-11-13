@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 13:1]]
+[[Isaiah 7:2]]
+[[Isaiah 8:12]]
+[[Isaiah 26:3]]
+[[Jeremiah 23:25]]
+[[Micah 2:11]]
+[[Matthew 24:4]]
+[[Matthew 24:24]]
+[[Mark 13:7]]
+[[Luke 21:9]]
+[[Luke 21:19]]
+[[John 14:1]]
+[[John 14:27]]
+[[Acts 20:23]]
+[[1 Corinthians 1:8]]
+[[Ephesians 5:6]]
+[[1 Thessalonians 3:3]]
+[[1 Thessalonians 4:15]]
+[[1 Thessalonians 5:2]]
+[[2 Thessalonians 2:15]]
+[[2 Thessalonians 3:17]]
+[[2 Peter 2:1]]
+[[2 Peter 3:4]]
+[[1 John 4:1]]
+[[Revelation 19:20]]
+---
+
+"That ye be not soon shaken in mind, or be troubled, neither by spirit, nor by word, nor by letter as from us, as that the day of Christ is at hand."

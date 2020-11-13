@@ -1,7 +1,0 @@
-[[Genesis 21:9]]
-[[Genesis 25:12]]
-[[1 Chronicles 5:18]]
-[[1 Chronicles 5:19]]
-[[1 Chronicles 27:31]]
-[[Psalms 83:6]]
-[[Psalms 83:7]]

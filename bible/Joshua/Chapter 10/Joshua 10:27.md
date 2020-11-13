@@ -1,6 +1,0 @@
-[[Deuteronomy 21:22]]
-[[Deuteronomy 21:23]]
-[[Joshua 4:9]]
-[[Joshua 7:26]]
-[[Joshua 8:29]]
-[[2 Samuel 18:17]]

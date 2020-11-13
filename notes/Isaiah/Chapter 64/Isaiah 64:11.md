@@ -1,0 +1,23 @@
+---
+Links:
+[[1 Kings 8:14]]
+[[1 Kings 8:56]]
+[[2 Kings 25:9]]
+[[2 Chronicles 6:4]]
+[[2 Chronicles 7:3]]
+[[2 Chronicles 7:6]]
+[[2 Chronicles 29:25]]
+[[2 Chronicles 36:19]]
+[[Psalms 74:5]]
+[[Jeremiah 52:13]]
+[[Lamentations 1:7]]
+[[Lamentations 1:10]]
+[[Lamentations 2:7]]
+[[Ezekiel 7:20]]
+[[Ezekiel 24:21]]
+[[Ezekiel 24:25]]
+[[Zechariah 1:12]]
+[[Matthew 24:2]]
+---
+
+"Our holy and our beautiful house, where our fathers praised thee, is burned up with fire: and all our pleasant things are laid waste."

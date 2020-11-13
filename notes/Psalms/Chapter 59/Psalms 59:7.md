@@ -1,0 +1,21 @@
+---
+Links:
+[[Job 22:12]]
+[[Psalms 10:11]]
+[[Psalms 10:13]]
+[[Psalms 55:21]]
+[[Psalms 57:4]]
+[[Psalms 64:3]]
+[[Psalms 73:11]]
+[[Psalms 94:4]]
+[[Psalms 94:7]]
+[[Psalms 109:2]]
+[[Proverbs 12:18]]
+[[Proverbs 15:2]]
+[[Proverbs 15:28]]
+[[Jeremiah 33:24]]
+[[Lamentations 3:62]]
+[[Matthew 12:34]]
+---
+
+"Behold, they belch out with their mouth: swords are in their lips: for who, say they, doth hear?"

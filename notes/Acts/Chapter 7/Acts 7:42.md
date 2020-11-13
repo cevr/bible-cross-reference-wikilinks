@@ -1,0 +1,28 @@
+---
+Links:
+[[Deuteronomy 4:19]]
+[[Deuteronomy 17:3]]
+[[Joshua 24:20]]
+[[2 Kings 17:16]]
+[[2 Kings 21:3]]
+[[Job 31:26]]
+[[Psalms 81:11]]
+[[Psalms 95:10]]
+[[Isaiah 43:23]]
+[[Isaiah 63:10]]
+[[Isaiah 66:4]]
+[[Jeremiah 19:13]]
+[[Ezekiel 8:16]]
+[[Ezekiel 14:7]]
+[[Ezekiel 20:25]]
+[[Ezekiel 20:39]]
+[[Hosea 4:17]]
+[[Amos 5:25]]
+[[Acts 7:36]]
+[[Romans 1:24]]
+[[2 Thessalonians 2:10]]
+[[Hebrews 3:9]]
+[[Hebrews 3:15]]
+---
+
+"Then God turned, and gave them up to worship the host of heaven; as it is written in the book of the prophets, O ye house of Israel, have ye offered to me slain beasts and sacrifices by the space of forty years in the wilderness?"

@@ -1,8 +1,0 @@
-[[Joshua 15:9]]
-[[Joshua 15:60]]
-[[1 Samuel 7:1]]
-[[1 Chronicles 2:19]]
-[[1 Chronicles 2:53]]
-[[1 Chronicles 4:1]]
-[[1 Chronicles 4:4]]
-[[1 Chronicles 13:5]]

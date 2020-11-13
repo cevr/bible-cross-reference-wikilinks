@@ -1,5 +1,0 @@
-[[Genesis 18:2]]
-[[Ruth 2:10]]
-[[2 Samuel 1:2]]
-[[2 Samuel 9:8]]
-[[1 Chronicles 21:20]]

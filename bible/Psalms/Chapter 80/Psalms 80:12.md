@@ -1,6 +1,0 @@
-[[1 Kings 5:1]]
-[[Psalms 89:40]]
-[[Isaiah 5:5]]
-[[Isaiah 18:5]]
-[[Nahum 2:2]]
-[[Luke 20:16]]

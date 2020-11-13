@@ -1,0 +1,20 @@
+---
+Links:
+[[Songs of Solomon 3:3]]
+[[Isaiah 64:5]]
+[[Matthew 14:33]]
+[[Matthew 28:17]]
+[[Mark 16:9]]
+[[Luke 1:28]]
+[[Luke 7:38]]
+[[Luke 24:52]]
+[[John 12:3]]
+[[John 20:14]]
+[[John 20:19]]
+[[John 20:28]]
+[[2 Corinthians 13:11]]
+[[Revelation 3:9]]
+[[Revelation 5:11]]
+---
+
+"And as they went to tell his disciples, behold, Jesus met them, saying, All hail. And they came and held him by the feet, and worshipped him."

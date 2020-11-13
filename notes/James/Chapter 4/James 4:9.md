@@ -1,0 +1,28 @@
+---
+Links:
+[[Job 30:31]]
+[[Psalms 119:67]]
+[[Psalms 119:71]]
+[[Psalms 119:136]]
+[[Psalms 126:5]]
+[[Proverbs 14:13]]
+[[Ecclesiastes 2:2]]
+[[Ecclesiastes 7:2]]
+[[Isaiah 22:12]]
+[[Jeremiah 31:9]]
+[[Jeremiah 31:13]]
+[[Jeremiah 31:18]]
+[[Lamentations 5:15]]
+[[Ezekiel 7:16]]
+[[Ezekiel 16:63]]
+[[Zechariah 12:10]]
+[[Matthew 5:4]]
+[[Luke 6:21]]
+[[Luke 6:25]]
+[[Luke 16:25]]
+[[2 Corinthians 7:10]]
+[[James 5:1]]
+[[Revelation 18:7]]
+---
+
+"Be afflicted, and mourn, and weep: let your laughter be turned to mourning, and your joy to heaviness."

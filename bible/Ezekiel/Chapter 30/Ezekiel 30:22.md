@@ -1,7 +1,0 @@
-[[2 Kings 24:7]]
-[[Psalms 37:17]]
-[[Jeremiah 37:7]]
-[[Jeremiah 46:1]]
-[[Jeremiah 46:21]]
-[[Ezekiel 29:3]]
-[[Ezekiel 34:16]]

@@ -1,6 +1,0 @@
-[[Exodus 21:33]]
-[[Exodus 22:9]]
-[[Exodus 22:12]]
-[[Judges 15:4]]
-[[Judges 15:5]]
-[[2 Samuel 14:30]]

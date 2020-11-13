@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 27:18]]
+[[Leviticus 6:5]]
+[[1 Samuel 3:4]]
+[[Job 22:27]]
+[[Psalms 12:2]]
+[[Psalms 34:15]]
+[[Psalms 37:4]]
+[[Psalms 50:15]]
+[[Psalms 66:18]]
+[[Psalms 91:15]]
+[[Psalms 118:5]]
+[[Psalms 145:18]]
+[[Proverbs 6:13]]
+[[Isaiah 1:15]]
+[[Isaiah 30:19]]
+[[Isaiah 57:4]]
+[[Isaiah 58:6]]
+[[Isaiah 59:3]]
+[[Isaiah 59:13]]
+[[Isaiah 65:24]]
+[[Jeremiah 29:12]]
+[[Lamentations 3:57]]
+[[Ezekiel 13:8]]
+[[Zechariah 10:2]]
+[[Matthew 7:7]]
+[[1 John 3:21]]
+---
+
+"Then shalt thou call, and the LORD shall answer; thou shalt cry, and he shall say, Here I am. If thou take away from the midst of thee the yoke, the putting forth of the finger, and speaking vanity;"

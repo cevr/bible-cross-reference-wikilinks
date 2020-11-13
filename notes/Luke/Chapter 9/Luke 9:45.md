@@ -1,0 +1,19 @@
+---
+Links:
+[[Matthew 16:22]]
+[[Mark 8:16]]
+[[Mark 8:32]]
+[[Mark 9:10]]
+[[Mark 9:32]]
+[[Luke 2:50]]
+[[Luke 9:46]]
+[[Luke 18:34]]
+[[John 4:33]]
+[[John 12:16]]
+[[John 12:34]]
+[[John 14:5]]
+[[John 16:17]]
+[[2 Corinthians 3:14]]
+---
+
+"But they understood not this saying, and it was hid from them, that they perceived it not: and they feared to ask him of that saying."

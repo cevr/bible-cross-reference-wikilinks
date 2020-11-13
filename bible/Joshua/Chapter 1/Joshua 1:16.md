@@ -1,8 +1,0 @@
-[[Numbers 32:25]]
-[[Numbers 32:31]]
-[[Deuteronomy 5:27]]
-[[Deuteronomy 34:9]]
-[[Ezra 10:4]]
-[[Romans 13:1]]
-[[Titus 3:1]]
-[[1 Peter 2:13]]

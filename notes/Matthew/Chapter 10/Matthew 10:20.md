@@ -1,0 +1,21 @@
+---
+Links:
+[[2 Samuel 23:2]]
+[[Matthew 6:32]]
+[[Mark 12:36]]
+[[Luke 11:13]]
+[[Luke 12:12]]
+[[Luke 12:30]]
+[[Luke 21:15]]
+[[Acts 2:4]]
+[[Acts 4:8]]
+[[Acts 6:10]]
+[[Acts 7:55]]
+[[Acts 13:9]]
+[[Acts 28:25]]
+[[2 Corinthians 13:3]]
+[[1 Peter 1:12]]
+[[2 Peter 1:21]]
+---
+
+"For it is not ye that speak, but the Spirit of your Father which speaketh in you."

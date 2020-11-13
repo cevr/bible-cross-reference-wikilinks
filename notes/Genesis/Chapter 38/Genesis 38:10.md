@@ -1,0 +1,18 @@
+---
+Links:
+[[Genesis 46:12]]
+[[Numbers 11:1]]
+[[Numbers 22:34]]
+[[Numbers 26:19]]
+[[1 Samuel 2:25]]
+[[2 Samuel 11:27]]
+[[1 Kings 17:20]]
+[[1 Chronicles 2:3]]
+[[1 Chronicles 21:7]]
+[[Proverbs 14:32]]
+[[Proverbs 24:18]]
+[[Jeremiah 44:4]]
+[[Haggai 1:13]]
+---
+
+"And the thing which he did displeased the LORD: wherefore he slew him also."

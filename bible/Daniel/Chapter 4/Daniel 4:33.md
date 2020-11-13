@@ -1,7 +1,0 @@
-[[Job 20:5]]
-[[Isaiah 30:14]]
-[[Daniel 4:25]]
-[[Daniel 4:32]]
-[[Daniel 5:5]]
-[[Daniel 5:21]]
-[[1 Thessalonians 5:2]]

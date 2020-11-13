@@ -1,0 +1,23 @@
+---
+Links:
+[[Psalms 119:19]]
+[[Psalms 119:32]]
+[[Psalms 119:71]]
+[[Psalms 119:94]]
+[[Psalms 119:133]]
+[[Psalms 119:148]]
+[[Psalms 119:162]]
+[[Proverbs 2:4]]
+[[Proverbs 4:12]]
+[[Proverbs 18:1]]
+[[Ecclesiastes 1:13]]
+[[Luke 4:18]]
+[[John 5:39]]
+[[John 8:30]]
+[[Ephesians 5:17]]
+[[James 1:25]]
+[[James 2:12]]
+[[2 Peter 2:19]]
+---
+
+"And I will walk at liberty: for I seek thy precepts."

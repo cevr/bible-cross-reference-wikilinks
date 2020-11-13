@@ -1,8 +1,0 @@
-[[Isaiah 6:6]]
-[[Ezekiel 1:17]]
-[[Ezekiel 8:3]]
-[[Ezekiel 10:2]]
-[[Ezekiel 10:7]]
-[[Ezekiel 10:11]]
-[[Ezekiel 10:18]]
-[[Ezekiel 10:21]]

@@ -1,5 +1,0 @@
-[[Exodus 18:19]]
-[[2 Corinthians 2:14]]
-[[Ephesians 3:12]]
-[[Philippians 1:6]]
-[[1 Thessalonians 1:8]]

@@ -1,0 +1,17 @@
+---
+Links:
+[[1 Samuel 2:9]]
+[[Psalms 17:5]]
+[[Psalms 37:23]]
+[[Psalms 37:24]]
+[[Psalms 38:16]]
+[[Psalms 73:2]]
+[[Psalms 119:116]]
+[[Psalms 121:3]]
+[[Isaiah 41:10]]
+[[Luke 22:32]]
+[[John 12:5]]
+[[1 Peter 1:5]]
+---
+
+"When I said, My foot slippeth; thy mercy, O LORD, held me up."

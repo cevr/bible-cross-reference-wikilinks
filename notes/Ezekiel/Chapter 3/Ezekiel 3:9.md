@@ -1,0 +1,16 @@
+---
+Links:
+[[Isaiah 41:10]]
+[[Isaiah 41:14]]
+[[Isaiah 50:7]]
+[[Jeremiah 1:8]]
+[[Jeremiah 1:17]]
+[[Jeremiah 17:18]]
+[[Ezekiel 2:6]]
+[[Micah 3:8]]
+[[Zechariah 7:12]]
+[[1 Timothy 2:3]]
+[[2 Timothy 2:6]]
+---
+
+"As an adamant harder than flint have I made thy forehead: fear them not, neither be dismayed at their looks, though they be a rebellious house."

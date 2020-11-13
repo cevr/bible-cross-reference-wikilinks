@@ -1,8 +1,0 @@
-[[Ruth 1:11]]
-[[Ruth 4:14]]
-[[1 Samuel 2:5]]
-[[2 Samuel 13:20]]
-[[Psalms 113:9]]
-[[Isaiah 49:21]]
-[[Isaiah 54:1]]
-[[1 Timothy 5:5]]

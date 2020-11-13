@@ -1,6 +1,0 @@
-[[2 Samuel 10:13]]
-[[1 Kings 20:13]]
-[[1 Kings 20:19]]
-[[1 Kings 20:28]]
-[[2 Chronicles 13:5]]
-[[Jeremiah 46:15]]

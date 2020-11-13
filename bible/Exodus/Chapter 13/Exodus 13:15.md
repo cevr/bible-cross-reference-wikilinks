@@ -1,5 +1,0 @@
-[[Exodus 3:19]]
-[[Exodus 4:23]]
-[[Exodus 12:29]]
-[[Exodus 34:20]]
-[[Numbers 18:15]]

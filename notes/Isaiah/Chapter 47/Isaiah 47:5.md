@@ -1,0 +1,27 @@
+---
+Links:
+[[1 Samuel 2:9]]
+[[Psalms 31:17]]
+[[Psalms 46:10]]
+[[Isaiah 13:10]]
+[[Isaiah 13:19]]
+[[Isaiah 14:4]]
+[[Isaiah 14:23]]
+[[Isaiah 47:1]]
+[[Isaiah 47:7]]
+[[Jeremiah 8:14]]
+[[Jeremiah 25:10]]
+[[Lamentations 1:1]]
+[[Daniel 2:37]]
+[[Habakkuk 2:20]]
+[[Zechariah 2:13]]
+[[Matthew 22:12]]
+[[Jude 1:13]]
+[[Revelation 17:3]]
+[[Revelation 17:18]]
+[[Revelation 18:7]]
+[[Revelation 18:16]]
+[[Revelation 18:21]]
+---
+
+"Sit thou silent, and get thee into darkness, O daughter of the Chaldeans: for thou shalt no more be called, The lady of kingdoms."

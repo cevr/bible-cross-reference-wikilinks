@@ -1,0 +1,24 @@
+---
+Links:
+[[Genesis 6:3]]
+[[Numbers 16:22]]
+[[2 Samuel 24:16]]
+[[Job 12:10]]
+[[Job 34:14]]
+[[Psalms 78:38]]
+[[Psalms 85:5]]
+[[Psalms 103:9]]
+[[Ecclesiastes 12:7]]
+[[Isaiah 27:8]]
+[[Isaiah 30:18]]
+[[Isaiah 42:5]]
+[[Isaiah 64:8]]
+[[Jeremiah 10:24]]
+[[Jeremiah 38:16]]
+[[Ezekiel 18:4]]
+[[Micah 7:18]]
+[[Zechariah 12:1]]
+[[Hebrews 12:9]]
+---
+
+"For I will not contend for ever, neither will I be always wroth: for the spirit should fail before me, and the souls which I have made."

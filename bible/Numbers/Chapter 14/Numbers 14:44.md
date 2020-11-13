@@ -1,5 +1,0 @@
-[[Numbers 10:33]]
-[[Numbers 15:30]]
-[[Numbers 31:6]]
-[[Deuteronomy 1:43]]
-[[1 Samuel 4:3]]

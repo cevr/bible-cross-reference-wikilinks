@@ -1,5 +1,0 @@
-[[Proverbs 1:8]]
-[[Proverbs 6:20]]
-[[Proverbs 30:1]]
-[[2 Timothy 1:5]]
-[[2 Timothy 3:15]]

@@ -1,6 +1,0 @@
-[[Genesis 32:22]]
-[[Numbers 21:24]]
-[[Deuteronomy 2:37]]
-[[Deuteronomy 3:16]]
-[[Proverbs 19:5]]
-[[Proverbs 19:9]]

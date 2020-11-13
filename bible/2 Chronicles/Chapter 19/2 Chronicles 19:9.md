@@ -1,6 +1,0 @@
-[[Deuteronomy 1:16]]
-[[2 Samuel 23:3]]
-[[2 Chronicles 16:9]]
-[[2 Chronicles 19:7]]
-[[Isaiah 11:3]]
-[[Isaiah 32:1]]

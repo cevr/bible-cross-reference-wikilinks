@@ -1,7 +1,0 @@
-[[Exodus 12:43]]
-[[1 Chronicles 16:10]]
-[[2 Chronicles 2:16]]
-[[2 Chronicles 30:11]]
-[[2 Chronicles 30:18]]
-[[Psalms 92:4]]
-[[Psalms 104:34]]

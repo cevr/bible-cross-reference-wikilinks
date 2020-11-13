@@ -1,7 +1,0 @@
-[[Deuteronomy 12:8]]
-[[Hosea 6:6]]
-[[Matthew 12:7]]
-[[Romans 2:26]]
-[[1 Corinthians 7:19]]
-[[Galatians 5:6]]
-[[Galatians 6:15]]

@@ -1,5 +1,0 @@
-[[Leviticus 11:46]]
-[[Leviticus 13:59]]
-[[Leviticus 14:54]]
-[[Leviticus 15:32]]
-[[Numbers 5:29]]

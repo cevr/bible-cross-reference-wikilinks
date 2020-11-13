@@ -1,5 +1,0 @@
-[[Jeremiah 26:11]]
-[[Jeremiah 50:38]]
-[[John 16:2]]
-[[Acts 26:9]]
-[[Philippians 3:6]]

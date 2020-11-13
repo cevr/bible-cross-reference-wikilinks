@@ -1,6 +1,0 @@
-[[Isaiah 3:25]]
-[[Jeremiah 4:16]]
-[[Jeremiah 5:6]]
-[[Jeremiah 6:4]]
-[[Jeremiah 6:26]]
-[[Luke 21:35]]

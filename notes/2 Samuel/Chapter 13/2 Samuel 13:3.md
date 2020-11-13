@@ -1,0 +1,23 @@
+---
+Links:
+[[Genesis 3:1]]
+[[Genesis 38:1]]
+[[Genesis 38:20]]
+[[Judges 14:20]]
+[[1 Samuel 16:9]]
+[[2 Samuel 13:32]]
+[[2 Samuel 14:2]]
+[[2 Samuel 14:19]]
+[[2 Samuel 21:21]]
+[[1 Chronicles 2:13]]
+[[1 Chronicles 27:32]]
+[[Esther 5:10]]
+[[Esther 5:14]]
+[[Esther 6:13]]
+[[Proverbs 19:6]]
+[[Jeremiah 4:22]]
+[[1 Corinthians 3:19]]
+[[James 3:15]]
+---
+
+"But Amnon had a friend, whose name was Jonadab, the son of Shimeah David's brother: and Jonadab was a very subtil man."

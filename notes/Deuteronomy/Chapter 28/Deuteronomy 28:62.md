@@ -1,0 +1,23 @@
+---
+Links:
+[[Leviticus 26:22]]
+[[Deuteronomy 1:10]]
+[[Deuteronomy 1:11]]
+[[Deuteronomy 4:27]]
+[[Deuteronomy 10:22]]
+[[2 Kings 13:7]]
+[[2 Kings 24:14]]
+[[Nehemiah 7:4]]
+[[Nehemiah 9:23]]
+[[Isaiah 1:9]]
+[[Isaiah 6:11]]
+[[Isaiah 6:13]]
+[[Isaiah 24:6]]
+[[Jeremiah 42:2]]
+[[Jeremiah 52:28]]
+[[Amos 5:3]]
+[[Mark 13:20]]
+[[Romans 9:27]]
+---
+
+"And ye shall be left few in number, whereas ye were as the stars of heaven for multitude; because thou wouldest not obey the voice of the LORD thy God."

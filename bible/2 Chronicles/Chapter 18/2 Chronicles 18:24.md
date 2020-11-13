@@ -1,6 +1,0 @@
-[[1 Kings 20:30]]
-[[Isaiah 26:11]]
-[[Isaiah 26:20]]
-[[Jeremiah 28:16]]
-[[Jeremiah 29:21]]
-[[Jeremiah 29:32]]

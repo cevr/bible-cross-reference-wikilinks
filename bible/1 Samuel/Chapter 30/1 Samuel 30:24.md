@@ -1,5 +1,0 @@
-[[Numbers 31:27]]
-[[Joshua 22:8]]
-[[1 Samuel 22:2]]
-[[1 Samuel 25:13]]
-[[Psalms 68:12]]

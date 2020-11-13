@@ -1,7 +1,0 @@
-[[Isaiah 33:19]]
-[[Jonah 3:5]]
-[[Matthew 11:20]]
-[[Matthew 12:41]]
-[[Luke 11:30]]
-[[Acts 27:28]]
-[[Romans 9:30]]

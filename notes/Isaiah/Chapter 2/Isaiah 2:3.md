@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 6:1]]
+[[Deuteronomy 33:19]]
+[[Esther 9:27]]
+[[Psalms 25:8]]
+[[Psalms 102:23]]
+[[Psalms 110:2]]
+[[Isaiah 1:26]]
+[[Isaiah 11:10]]
+[[Isaiah 19:23]]
+[[Isaiah 44:5]]
+[[Isaiah 51:4]]
+[[Jeremiah 12:16]]
+[[Jeremiah 31:6]]
+[[Jeremiah 50:4]]
+[[Zechariah 8:20]]
+[[Zechariah 8:21]]
+[[Matthew 7:24]]
+[[Luke 11:28]]
+[[Luke 24:47]]
+[[John 7:17]]
+[[Acts 1:8]]
+[[Acts 10:33]]
+[[Acts 13:46]]
+[[Romans 10:18]]
+[[James 1:25]]
+---
+
+"And many people shall go and say, Come ye, and let us go up to the mountain of the LORD, to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths: for out of Zion shall go forth the law, and the word of the LORD from Jerusalem."

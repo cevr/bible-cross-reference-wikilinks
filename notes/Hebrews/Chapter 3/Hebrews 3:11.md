@@ -1,0 +1,17 @@
+---
+Links:
+[[Numbers 14:20]]
+[[Numbers 14:25]]
+[[Numbers 14:27]]
+[[Numbers 14:35]]
+[[Numbers 32:10]]
+[[Deuteronomy 1:34]]
+[[Deuteronomy 2:14]]
+[[Psalms 95:11]]
+[[Hebrews 3:18]]
+[[Hebrews 4:3]]
+[[Hebrews 4:5]]
+[[Hebrews 4:9]]
+---
+
+"So I sware in my wrath, They shall not enter into my rest.)"

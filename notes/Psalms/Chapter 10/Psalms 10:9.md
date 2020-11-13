@@ -1,0 +1,33 @@
+---
+Links:
+[[Job 5:15]]
+[[Job 38:40]]
+[[Psalms 12:5]]
+[[Psalms 17:12]]
+[[Psalms 35:10]]
+[[Psalms 37:14]]
+[[Psalms 59:3]]
+[[Psalms 109:31]]
+[[Psalms 140:5]]
+[[Proverbs 14:31]]
+[[Proverbs 22:16]]
+[[Proverbs 28:15]]
+[[Isaiah 3:15]]
+[[Isaiah 32:7]]
+[[Jeremiah 5:26]]
+[[Lamentations 3:10]]
+[[Ezekiel 19:3]]
+[[Ezekiel 22:29]]
+[[Amos 2:6]]
+[[Amos 3:4]]
+[[Amos 5:11]]
+[[Micah 7:2]]
+[[Nahum 2:11]]
+[[Habakkuk 1:15]]
+[[Habakkuk 3:14]]
+[[Zechariah 11:3]]
+[[John 10:12]]
+[[Acts 23:21]]
+---
+
+"He lieth in wait secretly as a lion in his den: he lieth in wait to catch the poor: he doth catch the poor, when he draweth him into his net."

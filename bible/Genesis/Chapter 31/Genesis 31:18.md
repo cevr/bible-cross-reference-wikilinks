@@ -1,6 +1,0 @@
-[[Genesis 27:1]]
-[[Genesis 27:41]]
-[[Genesis 28:21]]
-[[Genesis 32:6]]
-[[Genesis 35:27]]
-[[Ecclesiastes 3:6]]

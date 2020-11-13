@@ -1,8 +1,0 @@
-[[Jeremiah 25:22]]
-[[Jeremiah 25:26]]
-[[Ezekiel 28:21]]
-[[Ezekiel 28:23]]
-[[Ezekiel 32:24]]
-[[Ezekiel 38:6]]
-[[Ezekiel 38:15]]
-[[Ezekiel 39:2]]

@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 7:6]]
+[[Deuteronomy 12:7]]
+[[1 Samuel 12:22]]
+[[Job 35:10]]
+[[Psalms 47:6]]
+[[Psalms 95:6]]
+[[Psalms 100:1]]
+[[Psalms 135:3]]
+[[Isaiah 43:15]]
+[[Isaiah 52:7]]
+[[Isaiah 54:5]]
+[[Isaiah 62:11]]
+[[Joel 2:23]]
+[[Habakkuk 1:12]]
+[[Zephaniah 3:14]]
+[[Zephaniah 3:15]]
+[[Zechariah 9:9]]
+[[Matthew 21:5]]
+[[Matthew 25:34]]
+[[Luke 19:27]]
+[[Luke 19:38]]
+[[John 19:15]]
+[[John 19:19]]
+[[Philippians 3:3]]
+[[Revelation 19:6]]
+---
+
+"Let Israel rejoice in him that made him: let the children of Zion be joyful in their King."

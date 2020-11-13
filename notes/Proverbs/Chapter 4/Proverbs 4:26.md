@@ -1,0 +1,23 @@
+---
+Links:
+[[Psalms 37:23]]
+[[Psalms 40:2]]
+[[Psalms 119:5]]
+[[Psalms 119:59]]
+[[Proverbs 5:6]]
+[[Proverbs 5:21]]
+[[Proverbs 15:21]]
+[[Proverbs 21:29]]
+[[Proverbs 23:19]]
+[[Ezekiel 18:28]]
+[[Haggai 1:5]]
+[[Haggai 1:7]]
+[[Ephesians 5:15]]
+[[Ephesians 5:17]]
+[[1 Thessalonians 3:13]]
+[[2 Thessalonians 3:3]]
+[[Hebrews 12:13]]
+[[1 Peter 5:10]]
+---
+
+"Ponder the path of thy feet, and let all thy ways be established."

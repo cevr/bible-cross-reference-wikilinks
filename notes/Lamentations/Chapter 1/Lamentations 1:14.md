@@ -1,0 +1,23 @@
+---
+Links:
+[[Deuteronomy 28:48]]
+[[Proverbs 5:22]]
+[[Isaiah 14:25]]
+[[Isaiah 47:6]]
+[[Jeremiah 25:9]]
+[[Jeremiah 27:8]]
+[[Jeremiah 27:12]]
+[[Jeremiah 28:14]]
+[[Jeremiah 32:5]]
+[[Jeremiah 34:20]]
+[[Jeremiah 37:17]]
+[[Jeremiah 39:1]]
+[[Ezekiel 11:9]]
+[[Ezekiel 21:31]]
+[[Ezekiel 23:28]]
+[[Ezekiel 25:4]]
+[[Ezekiel 25:7]]
+[[Hosea 5:14]]
+---
+
+"The yoke of my transgressions is bound by his hand: they are wreathed, and come up upon my neck: he hath made my strength to fall, the Lord hath delivered me into their hands, from whom I am not able to rise up."

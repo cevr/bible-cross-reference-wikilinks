@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 3:19]]
+[[Genesis 24:2]]
+[[Genesis 24:49]]
+[[Genesis 47:9]]
+[[Genesis 48:21]]
+[[Genesis 50:5]]
+[[Genesis 50:12]]
+[[Genesis 50:24]]
+[[Deuteronomy 31:14]]
+[[Deuteronomy 31:16]]
+[[Joshua 2:14]]
+[[Joshua 23:14]]
+[[2 Samuel 7:12]]
+[[2 Samuel 14:14]]
+[[1 Kings 2:1]]
+[[Job 7:1]]
+[[Job 14:14]]
+[[Job 30:23]]
+[[Psalms 6:5]]
+[[Psalms 49:7]]
+[[Psalms 49:9]]
+[[Psalms 89:48]]
+[[Acts 7:15]]
+[[Hebrews 9:27]]
+[[Hebrews 11:22]]
+---
+
+"And the time drew nigh that Israel must die: and he called his son Joseph, and said unto him, If now I have found grace in thy sight, put, I pray thee, thy hand under my thigh, and deal kindly and truly with me; bury me not, I pray thee, in Egypt:"

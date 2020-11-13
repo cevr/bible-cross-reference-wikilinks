@@ -1,0 +1,15 @@
+---
+Links:
+[[Exodus 29:13]]
+[[Leviticus 3:9]]
+[[Leviticus 7:3]]
+[[Leviticus 7:32]]
+[[Leviticus 8:25]]
+[[Leviticus 9:19]]
+[[Leviticus 9:21]]
+[[Leviticus 10:14]]
+[[Numbers 18:18]]
+[[1 Samuel 9:24]]
+---
+
+"Also thou shalt take of the ram the fat and the rump, and the fat that covereth the inwards, and the caul above the liver, and the two kidneys, and the fat that is upon them, and the right shoulder; for it is a ram of consecration:"

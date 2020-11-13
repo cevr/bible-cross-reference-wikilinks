@@ -1,0 +1,17 @@
+---
+Links:
+[[Exodus 12:26]]
+[[Exodus 13:14]]
+[[Deuteronomy 4:10]]
+[[Deuteronomy 6:7]]
+[[Joshua 4:21]]
+[[Esther 9:28]]
+[[Job 8:10]]
+[[Psalms 44:1]]
+[[Psalms 71:18]]
+[[Psalms 78:3]]
+[[Psalms 78:4]]
+[[Isaiah 38:19]]
+---
+
+"One generation shall praise thy works to another, and shall declare thy mighty acts."

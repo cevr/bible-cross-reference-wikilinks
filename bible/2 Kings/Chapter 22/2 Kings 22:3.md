@@ -1,5 +1,0 @@
-[[2 Kings 23:23]]
-[[2 Chronicles 34:3]]
-[[Jeremiah 36:10]]
-[[Jeremiah 36:11]]
-[[Jeremiah 36:12]]

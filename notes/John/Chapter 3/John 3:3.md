@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 29:4]]
+[[Jeremiah 5:21]]
+[[Matthew 5:18]]
+[[Matthew 13:11]]
+[[Matthew 16:17]]
+[[John 1:5]]
+[[John 1:13]]
+[[John 1:51]]
+[[John 3:5]]
+[[John 12:40]]
+[[2 Corinthians 1:19]]
+[[2 Corinthians 4:4]]
+[[2 Corinthians 5:17]]
+[[Galatians 6:15]]
+[[Ephesians 2:1]]
+[[Titus 3:5]]
+[[James 1:17]]
+[[James 3:17]]
+[[1 Peter 1:3]]
+[[1 Peter 1:23]]
+[[1 John 2:29]]
+[[1 John 3:9]]
+[[1 John 5:1]]
+[[1 John 5:18]]
+[[Revelation 3:14]]
+---
+
+"Jesus answered and said unto him, Verily, verily, I say unto thee, Except a man be born again, he cannot see the kingdom of God."

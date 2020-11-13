@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 3:6]]
+[[Genesis 6:2]]
+[[Genesis 39:7]]
+[[2 Samuel 11:2]]
+[[2 Kings 24:1]]
+[[Job 31:1]]
+[[Psalms 119:37]]
+[[Proverbs 6:25]]
+[[Proverbs 23:33]]
+[[Isaiah 57:9]]
+[[Ezekiel 16:17]]
+[[Ezekiel 16:29]]
+[[Ezekiel 23:40]]
+[[Matthew 5:28]]
+[[2 Peter 2:14]]
+---
+
+"And as soon as she saw them with her eyes, she doted upon them, and sent messengers unto them into Chaldea."

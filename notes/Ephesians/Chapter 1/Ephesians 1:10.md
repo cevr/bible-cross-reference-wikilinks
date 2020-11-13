@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 49:10]]
+[[Isaiah 2:2]]
+[[Daniel 2:44]]
+[[Daniel 9:24]]
+[[Amos 9:11]]
+[[Micah 4:1]]
+[[Malachi 3:1]]
+[[Matthew 25:32]]
+[[Mark 1:15]]
+[[1 Corinthians 3:22]]
+[[1 Corinthians 10:11]]
+[[1 Corinthians 11:3]]
+[[Galatians 4:4]]
+[[Ephesians 1:22]]
+[[Ephesians 2:15]]
+[[Ephesians 3:15]]
+[[Philippians 2:9]]
+[[Colossians 1:16]]
+[[Colossians 1:20]]
+[[Colossians 3:11]]
+[[Hebrews 1:2]]
+[[Hebrews 9:10]]
+[[Hebrews 11:40]]
+[[Hebrews 12:22]]
+[[1 Peter 1:20]]
+[[Revelation 5:9]]
+[[Revelation 7:4]]
+[[Revelation 19:4]]
+---
+
+"That in the dispensation of the fulness of times he might gather together in one all things in Christ, both which are in heaven, and which are on earth; even in him:"

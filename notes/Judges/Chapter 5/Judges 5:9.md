@@ -1,0 +1,15 @@
+---
+Links:
+[[Judges 5:2]]
+[[1 Chronicles 29:9]]
+[[2 Chronicles 17:16]]
+[[2 Chronicles 31:8]]
+[[Psalms 103:2]]
+[[Psalms 110:3]]
+[[2 Corinthians 8:3]]
+[[2 Corinthians 8:12]]
+[[2 Corinthians 8:17]]
+[[2 Corinthians 9:5]]
+---
+
+"My heart is toward the governors of Israel, that offered themselves willingly among the people. Bless ye the LORD."

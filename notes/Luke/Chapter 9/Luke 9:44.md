@@ -1,0 +1,31 @@
+---
+Links:
+[[2 Samuel 24:14]]
+[[Isaiah 32:9]]
+[[Matthew 16:21]]
+[[Matthew 17:22]]
+[[Matthew 20:18]]
+[[Matthew 21:38]]
+[[Matthew 26:2]]
+[[Mark 8:31]]
+[[Mark 9:31]]
+[[Luke 1:66]]
+[[Luke 2:19]]
+[[Luke 2:51]]
+[[Luke 9:22]]
+[[Luke 18:31]]
+[[Luke 24:6]]
+[[Luke 24:44]]
+[[John 2:19]]
+[[John 16:4]]
+[[John 16:31]]
+[[John 19:11]]
+[[Acts 2:23]]
+[[Acts 3:13]]
+[[Acts 4:27]]
+[[1 Thessalonians 3:3]]
+[[Hebrews 2:1]]
+[[Hebrews 12:2]]
+---
+
+"Let these sayings sink down into your ears: for the Son of man shall be delivered into the hands of men."

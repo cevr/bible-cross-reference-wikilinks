@@ -1,0 +1,31 @@
+---
+Links:
+[[2 Kings 21:16]]
+[[2 Kings 24:4]]
+[[Isaiah 1:15]]
+[[Isaiah 59:3]]
+[[Isaiah 59:7]]
+[[Jeremiah 2:34]]
+[[Jeremiah 7:6]]
+[[Jeremiah 22:17]]
+[[Jeremiah 27:2]]
+[[Jeremiah 40:1]]
+[[Lamentations 3:7]]
+[[Ezekiel 8:16]]
+[[Ezekiel 8:17]]
+[[Ezekiel 9:9]]
+[[Ezekiel 11:6]]
+[[Ezekiel 12:19]]
+[[Ezekiel 19:3]]
+[[Ezekiel 22:3]]
+[[Ezekiel 22:9]]
+[[Ezekiel 22:13]]
+[[Ezekiel 22:27]]
+[[Hosea 4:2]]
+[[Micah 2:2]]
+[[Micah 7:2]]
+[[Nahum 3:10]]
+[[Zephaniah 3:3]]
+---
+
+"Make a chain: for the land is full of bloody crimes, and the city is full of violence."

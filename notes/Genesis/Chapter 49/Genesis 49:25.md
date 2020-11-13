@@ -1,0 +1,23 @@
+---
+Links:
+[[Genesis 17:1]]
+[[Genesis 27:28]]
+[[Genesis 28:13]]
+[[Genesis 28:21]]
+[[Genesis 35:3]]
+[[Genesis 35:11]]
+[[Genesis 43:23]]
+[[Deuteronomy 8:17]]
+[[Deuteronomy 28:2]]
+[[Deuteronomy 33:1]]
+[[Deuteronomy 33:13]]
+[[Psalms 84:11]]
+[[Psalms 85:12]]
+[[Matthew 6:33]]
+[[1 Corinthians 3:21]]
+[[Ephesians 1:3]]
+[[Philippians 4:19]]
+[[1 Timothy 4:8]]
+---
+
+"Even by the God of thy father, who shall help thee; and by the Almighty, who shall bless thee with blessings of heaven above, blessings of the deep that lieth under, blessings of the breasts, and of the womb:"

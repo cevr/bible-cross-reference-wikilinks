@@ -1,0 +1,22 @@
+---
+Links:
+[[Exodus 6:6]]
+[[Exodus 19:5]]
+[[Exodus 33:13]]
+[[Deuteronomy 4:20]]
+[[Deuteronomy 4:34]]
+[[Deuteronomy 9:12]]
+[[Deuteronomy 9:26]]
+[[Deuteronomy 32:9]]
+[[1 Kings 8:15]]
+[[1 Kings 8:51]]
+[[Nehemiah 1:10]]
+[[Psalms 95:7]]
+[[Psalms 100:3]]
+[[Psalms 106:40]]
+[[Isaiah 11:11]]
+[[Isaiah 63:19]]
+[[Isaiah 64:8]]
+---
+
+"Yet they are thy people and thine inheritance, which thou broughtest out by thy mighty power and by thy stretched out arm."

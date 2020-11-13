@@ -1,0 +1,33 @@
+---
+Links:
+[[Deuteronomy 32:2]]
+[[2 Samuel 23:4]]
+[[2 Kings 19:30]]
+[[Job 29:19]]
+[[Psalms 72:6]]
+[[Psalms 72:16]]
+[[Psalms 92:13]]
+[[Proverbs 19:12]]
+[[Songs of Solomon 2:1]]
+[[Songs of Solomon 2:16]]
+[[Songs of Solomon 4:5]]
+[[Isaiah 12:1]]
+[[Isaiah 18:4]]
+[[Isaiah 26:19]]
+[[Isaiah 27:6]]
+[[Isaiah 35:2]]
+[[Isaiah 44:3]]
+[[Isaiah 57:18]]
+[[Isaiah 57:19]]
+[[Jeremiah 3:22]]
+[[Jeremiah 32:41]]
+[[Ezekiel 17:22]]
+[[Hosea 6:3]]
+[[Micah 5:7]]
+[[Micah 7:18]]
+[[Matthew 6:28]]
+[[Luke 12:27]]
+[[Ephesians 3:17]]
+---
+
+"I will be as the dew unto Israel: he shall grow as the lily, and cast forth his roots as Lebanon."

@@ -1,0 +1,18 @@
+---
+Links:
+[[Ruth 1:16]]
+[[Ruth 2:12]]
+[[Songs of Solomon 1:4]]
+[[Songs of Solomon 1:8]]
+[[Songs of Solomon 2:2]]
+[[Songs of Solomon 5:6]]
+[[Songs of Solomon 5:9]]
+[[Songs of Solomon 6:4]]
+[[Songs of Solomon 6:9]]
+[[Isaiah 2:5]]
+[[Jeremiah 14:8]]
+[[Zechariah 8:21]]
+[[Acts 5:11]]
+---
+
+"undefined"

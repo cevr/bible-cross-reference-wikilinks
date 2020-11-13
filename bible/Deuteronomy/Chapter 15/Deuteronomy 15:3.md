@@ -1,7 +1,0 @@
-[[Exodus 22:25]]
-[[Deuteronomy 23:20]]
-[[Deuteronomy 23:21]]
-[[Matthew 17:25]]
-[[John 8:35]]
-[[1 Corinthians 6:6]]
-[[Galatians 6:10]]

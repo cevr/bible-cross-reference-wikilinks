@@ -1,0 +1,28 @@
+---
+Links:
+[[Genesis 38:7]]
+[[Genesis 38:10]]
+[[Numbers 15:30]]
+[[Deuteronomy 1:17]]
+[[Deuteronomy 2:30]]
+[[Deuteronomy 17:8]]
+[[Deuteronomy 25:1]]
+[[Joshua 11:20]]
+[[1 Samuel 3:14]]
+[[1 Kings 8:31]]
+[[1 Kings 8:32]]
+[[2 Chronicles 10:15]]
+[[2 Chronicles 25:16]]
+[[Job 9:33]]
+[[Psalms 51:4]]
+[[Psalms 51:16]]
+[[Proverbs 13:1]]
+[[Proverbs 15:10]]
+[[Ecclesiastes 3:3]]
+[[John 12:39]]
+[[1 Timothy 2:5]]
+[[Hebrews 7:25]]
+[[Hebrews 10:26]]
+---
+
+"If one man sin against another, the judge shall judge him: but if a man sin against the LORD, who shall intreat for him? Notwithstanding they hearkened not unto the voice of their father, because the LORD would slay them."

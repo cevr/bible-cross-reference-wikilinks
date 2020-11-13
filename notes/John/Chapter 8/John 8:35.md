@@ -1,0 +1,17 @@
+---
+Links:
+[[Genesis 21:10]]
+[[Ezekiel 46:17]]
+[[Matthew 21:41]]
+[[Luke 15:31]]
+[[John 14:19]]
+[[Romans 8:15]]
+[[Romans 8:29]]
+[[Galatians 4:4]]
+[[Galatians 4:30]]
+[[Colossians 3:3]]
+[[Hebrews 3:5]]
+[[1 Peter 1:2]]
+---
+
+"And the servant abideth not in the house for ever: but the Son abideth ever."

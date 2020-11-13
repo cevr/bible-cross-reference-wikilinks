@@ -1,0 +1,19 @@
+---
+Links:
+[[Genesis 14:15]]
+[[Deuteronomy 33:1]]
+[[Judges 16:2]]
+[[1 Kings 11:24]]
+[[1 Kings 13:1]]
+[[1 Kings 15:18]]
+[[1 Kings 20:1]]
+[[1 Kings 20:34]]
+[[2 Kings 1:9]]
+[[2 Kings 2:15]]
+[[2 Kings 6:12]]
+[[2 Kings 6:24]]
+[[Isaiah 7:8]]
+[[Acts 17:6]]
+---
+
+"And Elisha came to Damascus; and Ben-hadad the king of Syria was sick; and it was told him, saying, The man of God is come hither."

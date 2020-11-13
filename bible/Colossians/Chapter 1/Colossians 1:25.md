@@ -1,8 +1,0 @@
-[[Romans 15:15]]
-[[1 Corinthians 9:17]]
-[[Galatians 2:7]]
-[[Ephesians 3:2]]
-[[Colossians 1:23]]
-[[1 Thessalonians 3:2]]
-[[1 Timothy 4:6]]
-[[2 Timothy 4:2]]

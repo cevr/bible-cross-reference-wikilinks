@@ -1,5 +1,0 @@
-[[Exodus 1:22]]
-[[Exodus 7:17]]
-[[Exodus 7:19]]
-[[Exodus 7:20]]
-[[Matthew 7:2]]

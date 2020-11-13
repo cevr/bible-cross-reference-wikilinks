@@ -1,6 +1,0 @@
-[[Genesis 48:20]]
-[[Ruth 4:11]]
-[[Isaiah 65:15]]
-[[Daniel 3:6]]
-[[Daniel 3:21]]
-[[1 Corinthians 16:22]]

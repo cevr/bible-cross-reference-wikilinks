@@ -1,0 +1,14 @@
+---
+Links:
+[[Leviticus 19:13]]
+[[Deuteronomy 24:12]]
+[[Proverbs 27:1]]
+[[Ecclesiastes 9:10]]
+[[Ecclesiastes 11:6]]
+[[Songs of Solomon 5:3]]
+[[2 Corinthians 8:11]]
+[[2 Corinthians 9:3]]
+[[1 Timothy 6:18]]
+---
+
+"Say not unto thy neighbour, Go, and come again, and to morrow I will give; when thou hast it by thee."

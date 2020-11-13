@@ -1,7 +1,0 @@
-[[Judges 5:6]]
-[[2 Chronicles 15:5]]
-[[Ezekiel 29:11]]
-[[Ezekiel 33:28]]
-[[Ezekiel 35:3]]
-[[Ezekiel 35:9]]
-[[Malachi 1:3]]

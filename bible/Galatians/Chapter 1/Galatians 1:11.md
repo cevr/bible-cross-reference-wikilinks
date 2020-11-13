@@ -1,6 +1,0 @@
-[[Romans 2:16]]
-[[1 Corinthians 2:9]]
-[[1 Corinthians 11:23]]
-[[1 Corinthians 15:1]]
-[[Galatians 1:1]]
-[[Ephesians 3:3]]

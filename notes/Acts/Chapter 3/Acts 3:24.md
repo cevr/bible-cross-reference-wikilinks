@@ -1,0 +1,15 @@
+---
+Links:
+[[1 Samuel 2:18]]
+[[1 Samuel 3:1]]
+[[1 Samuel 3:20]]
+[[Psalms 99:6]]
+[[Jeremiah 15:1]]
+[[Luke 24:27]]
+[[Acts 3:19]]
+[[Acts 3:21]]
+[[Acts 13:20]]
+[[Romans 3:21]]
+---
+
+"Yea, and all the prophets from Samuel and those that follow after, as many as have spoken, have likewise foretold of these days."

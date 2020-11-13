@@ -1,0 +1,17 @@
+---
+Links:
+[[Exodus 29:37]]
+[[Leviticus 4:12]]
+[[Leviticus 4:21]]
+[[Leviticus 6:20]]
+[[Leviticus 6:22]]
+[[Leviticus 7:6]]
+[[Leviticus 14:40]]
+[[Leviticus 16:23]]
+[[Leviticus 16:27]]
+[[Leviticus 24:9]]
+[[Ezekiel 44:19]]
+[[Hebrews 13:11]]
+---
+
+"And he shall put off his garments, and put on other garments, and carry forth the ashes without the camp unto a clean place."

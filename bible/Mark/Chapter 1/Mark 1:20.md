@@ -1,8 +1,0 @@
-[[Deuteronomy 33:9]]
-[[1 Kings 19:20]]
-[[Matthew 4:21]]
-[[Matthew 8:21]]
-[[Matthew 10:37]]
-[[Mark 10:29]]
-[[Luke 14:26]]
-[[2 Corinthians 5:16]]

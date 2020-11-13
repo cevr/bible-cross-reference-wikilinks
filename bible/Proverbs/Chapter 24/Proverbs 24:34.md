@@ -1,5 +1,0 @@
-[[Proverbs 6:10]]
-[[Proverbs 10:4]]
-[[Proverbs 13:4]]
-[[Proverbs 18:9]]
-[[Proverbs 28:19]]

@@ -1,6 +1,0 @@
-[[Job 24:15]]
-[[Proverbs 9:17]]
-[[Jeremiah 23:24]]
-[[Malachi 3:5]]
-[[Ephesians 5:3]]
-[[Ephesians 5:12]]

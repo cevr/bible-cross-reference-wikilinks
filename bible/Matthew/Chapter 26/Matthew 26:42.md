@@ -1,8 +1,0 @@
-[[Psalms 22:1]]
-[[Psalms 69:1]]
-[[Psalms 69:17]]
-[[Psalms 88:1]]
-[[Matthew 26:39]]
-[[Mark 14:39]]
-[[Hebrews 4:15]]
-[[Hebrews 5:7]]

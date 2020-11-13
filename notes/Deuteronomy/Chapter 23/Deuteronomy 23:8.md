@@ -1,0 +1,18 @@
+---
+Links:
+[[Genesis 25:25]]
+[[Genesis 25:26]]
+[[Exodus 20:5]]
+[[Exodus 22:20]]
+[[Leviticus 19:34]]
+[[Deuteronomy 10:19]]
+[[Deuteronomy 23:1]]
+[[1 Samuel 30:11]]
+[[1 Kings 3:1]]
+[[Ezra 9:1]]
+[[Obadiah 1:10]]
+[[Romans 3:29]]
+[[Ephesians 2:12]]
+---
+
+"The children that are begotten of them shall enter into the congregation of the LORD in their third generation."

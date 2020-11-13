@@ -1,6 +1,0 @@
-[[1 Kings 1:20]]
-[[Matthew 22:43]]
-[[Mark 12:36]]
-[[Acts 2:25]]
-[[Hebrews 3:7]]
-[[2 Peter 1:21]]

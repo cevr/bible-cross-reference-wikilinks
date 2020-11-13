@@ -1,6 +1,0 @@
-[[Exodus 40:20]]
-[[1 Kings 8:9]]
-[[1 Kings 8:21]]
-[[2 Chronicles 5:7]]
-[[2 Chronicles 5:10]]
-[[Hebrews 9:4]]

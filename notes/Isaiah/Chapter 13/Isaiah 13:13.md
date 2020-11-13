@@ -1,0 +1,26 @@
+---
+Links:
+[[Job 9:6]]
+[[Psalms 110:5]]
+[[Isaiah 21:1]]
+[[Isaiah 34:4]]
+[[Isaiah 47:1]]
+[[Isaiah 51:6]]
+[[Jeremiah 4:23]]
+[[Jeremiah 4:24]]
+[[Jeremiah 51:1]]
+[[Lamentations 1:12]]
+[[Joel 3:16]]
+[[Nahum 1:4]]
+[[Nahum 1:6]]
+[[Haggai 2:6]]
+[[Haggai 2:21]]
+[[Matthew 24:29]]
+[[Matthew 24:35]]
+[[Hebrews 12:26]]
+[[2 Peter 3:10]]
+[[Revelation 6:13]]
+[[Revelation 20:11]]
+---
+
+"Therefore I will shake the heavens, and the earth shall remove out of her place, in the wrath of the LORD of hosts, and in the day of his fierce anger."

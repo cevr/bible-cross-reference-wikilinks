@@ -1,0 +1,13 @@
+---
+Links:
+[[Matthew 16:20]]
+[[Matthew 20:15]]
+[[Matthew 26:63]]
+[[Mark 14:61]]
+[[Luke 13:30]]
+[[John 8:24]]
+[[John 9:35]]
+[[Romans 10:20]]
+---
+
+"Jesus saith unto her, I that speak unto thee am he."

@@ -1,0 +1,16 @@
+---
+Links:
+[[2 Chronicles 31:8]]
+[[Ezra 7:27]]
+[[Nehemiah 2:12]]
+[[Jeremiah 31:31]]
+[[Jeremiah 32:40]]
+[[2 Corinthians 2:13]]
+[[2 Corinthians 7:7]]
+[[2 Corinthians 7:12]]
+[[Philippians 2:20]]
+[[Colossians 3:17]]
+[[Revelation 17:17]]
+---
+
+"But thanks be to God, which put the same earnest care into the heart of Titus for you."

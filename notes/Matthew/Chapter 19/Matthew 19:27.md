@@ -1,0 +1,20 @@
+---
+Links:
+[[Deuteronomy 33:9]]
+[[Matthew 4:20]]
+[[Matthew 9:9]]
+[[Matthew 20:10]]
+[[Mark 1:17]]
+[[Mark 2:14]]
+[[Mark 10:28]]
+[[Luke 5:11]]
+[[Luke 5:27]]
+[[Luke 14:33]]
+[[Luke 15:29]]
+[[Luke 18:28]]
+[[1 Corinthians 1:29]]
+[[1 Corinthians 4:7]]
+[[Philippians 3:8]]
+---
+
+"Then answered Peter and said unto him, Behold, we have forsaken all, and followed thee; what shall we have therefore?"

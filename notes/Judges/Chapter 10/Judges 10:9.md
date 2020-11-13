@@ -1,0 +1,16 @@
+---
+Links:
+[[Deuteronomy 28:65]]
+[[Judges 2:15]]
+[[Judges 3:12]]
+[[Judges 3:13]]
+[[Judges 6:2]]
+[[Judges 6:3]]
+[[1 Samuel 13:6]]
+[[1 Samuel 28:15]]
+[[2 Chronicles 14:9]]
+[[2 Chronicles 15:5]]
+[[2 Chronicles 20:1]]
+---
+
+"Moreover the children of Ammon passed over Jordan to fight also against Judah, and against Benjamin, and against the house of Ephraim; so that Israel was sore distressed."

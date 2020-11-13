@@ -1,6 +1,0 @@
-[[Joshua 8:26]]
-[[Joshua 10:28]]
-[[Joshua 10:32]]
-[[Joshua 10:37]]
-[[Joshua 10:42]]
-[[Joshua 11:12]]

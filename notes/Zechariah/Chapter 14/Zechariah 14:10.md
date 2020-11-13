@@ -1,0 +1,31 @@
+---
+Links:
+[[Joshua 15:32]]
+[[Joshua 21:17]]
+[[Judges 20:45]]
+[[Judges 20:47]]
+[[Judges 21:13]]
+[[1 Kings 15:22]]
+[[1 Chronicles 4:32]]
+[[1 Chronicles 6:77]]
+[[2 Chronicles 25:23]]
+[[2 Chronicles 26:9]]
+[[Nehemiah 3:1]]
+[[Nehemiah 12:39]]
+[[Isaiah 2:2]]
+[[Isaiah 10:29]]
+[[Isaiah 40:3]]
+[[Jeremiah 30:18]]
+[[Jeremiah 31:38]]
+[[Jeremiah 37:13]]
+[[Jeremiah 38:7]]
+[[Amos 9:11]]
+[[Micah 4:1]]
+[[Zechariah 2:4]]
+[[Zechariah 4:6]]
+[[Zechariah 8:3]]
+[[Zechariah 12:6]]
+[[Luke 3:4]]
+---
+
+"All the land shall be turned as a plain from Geba to Rimmon south of Jerusalem: and it shall be lifted up, and inhabited in her place, from Benjamin's gate unto the place of the first gate, unto the corner gate, and from the tower of Hananeel unto the king's winepresses."

@@ -1,0 +1,26 @@
+---
+Links:
+[[Deuteronomy 33:27]]
+[[Psalms 9:7]]
+[[Psalms 10:16]]
+[[Psalms 29:10]]
+[[Psalms 45:6]]
+[[Psalms 90:2]]
+[[Psalms 102:12]]
+[[Psalms 102:25]]
+[[Psalms 145:13]]
+[[Psalms 146:10]]
+[[Daniel 2:44]]
+[[Daniel 7:14]]
+[[Daniel 7:27]]
+[[Habakkuk 1:12]]
+[[1 Timothy 1:17]]
+[[1 Timothy 6:15]]
+[[Hebrews 1:8]]
+[[Hebrews 13:8]]
+[[Revelation 1:4]]
+[[Revelation 1:8]]
+[[Revelation 1:17]]
+---
+
+"Thou, O LORD, remainest for ever; thy throne from generation to generation."

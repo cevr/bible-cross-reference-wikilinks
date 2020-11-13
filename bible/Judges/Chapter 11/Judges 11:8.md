@@ -1,7 +1,0 @@
-[[Exodus 8:8]]
-[[Exodus 8:28]]
-[[Exodus 9:28]]
-[[Exodus 10:17]]
-[[Judges 10:18]]
-[[1 Kings 13:6]]
-[[Luke 17:3]]

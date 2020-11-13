@@ -1,5 +1,0 @@
-[[Leviticus 21:7]]
-[[Deuteronomy 23:17]]
-[[Deuteronomy 23:18]]
-[[Hosea 4:12]]
-[[1 Corinthians 6:15]]

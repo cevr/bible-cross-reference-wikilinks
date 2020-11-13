@@ -1,8 +1,0 @@
-[[1 Samuel 2:35]]
-[[Isaiah 9:6]]
-[[John 12:34]]
-[[Romans 6:9]]
-[[Hebrews 7:8]]
-[[Hebrews 7:28]]
-[[Hebrews 13:8]]
-[[Revelation 1:18]]

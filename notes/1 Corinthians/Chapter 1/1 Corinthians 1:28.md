@@ -1,0 +1,21 @@
+---
+Links:
+[[Deuteronomy 28:63]]
+[[Job 34:19]]
+[[Job 34:24]]
+[[Psalms 32:10]]
+[[Psalms 37:35]]
+[[Isaiah 2:11]]
+[[Isaiah 2:17]]
+[[Isaiah 17:13]]
+[[Isaiah 37:36]]
+[[Isaiah 41:12]]
+[[Daniel 2:34]]
+[[Daniel 2:44]]
+[[Romans 4:17]]
+[[1 Corinthians 2:6]]
+[[2 Corinthians 12:11]]
+[[Revelation 18:17]]
+---
+
+"And base things of the world, and things which are despised, hath God chosen, yea, and things which are not, to bring to nought things that are:"

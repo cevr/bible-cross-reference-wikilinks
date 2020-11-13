@@ -1,6 +1,0 @@
-[[Deuteronomy 4:8]]
-[[Deuteronomy 4:44]]
-[[Deuteronomy 4:46]]
-[[Deuteronomy 17:18]]
-[[Deuteronomy 31:9]]
-[[Deuteronomy 32:46]]

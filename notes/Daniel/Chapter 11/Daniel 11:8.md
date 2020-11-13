@@ -1,0 +1,21 @@
+---
+Links:
+[[Genesis 31:30]]
+[[Exodus 12:12]]
+[[Numbers 33:4]]
+[[Deuteronomy 12:3]]
+[[Judges 18:24]]
+[[2 Samuel 5:21]]
+[[Isaiah 2:16]]
+[[Isaiah 37:19]]
+[[Isaiah 46:1]]
+[[Jeremiah 43:12]]
+[[Jeremiah 46:25]]
+[[Daniel 1:2]]
+[[Daniel 10:3]]
+[[Hosea 8:6]]
+[[Hosea 10:5]]
+[[Hosea 13:15]]
+---
+
+"And shall also carry captives into Egypt their gods, with their princes, and with their precious vessels of silver and of gold; and he shall continue more years than the king of the north."

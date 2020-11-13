@@ -1,0 +1,24 @@
+---
+Links:
+[[Psalms 50:14]]
+[[Psalms 50:23]]
+[[Romans 8:28]]
+[[1 Corinthians 3:21]]
+[[2 Corinthians 1:4]]
+[[2 Corinthians 1:11]]
+[[2 Corinthians 8:19]]
+[[2 Corinthians 9:11]]
+[[Galatians 1:24]]
+[[Ephesians 3:20]]
+[[Colossians 1:24]]
+[[Colossians 3:16]]
+[[2 Timothy 2:10]]
+[[Hebrews 13:15]]
+[[1 Peter 2:9]]
+[[1 Peter 4:11]]
+[[Revelation 4:8]]
+[[Revelation 5:8]]
+[[Revelation 19:4]]
+---
+
+"For all things are for your sakes, that the abundant grace might through the thanksgiving of many redound to the glory of God."

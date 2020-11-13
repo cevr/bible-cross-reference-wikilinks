@@ -1,6 +1,0 @@
-[[Exodus 23:11]]
-[[Leviticus 25:20]]
-[[2 Kings 19:29]]
-[[Acts 2:44]]
-[[Acts 4:32]]
-[[Acts 4:34]]

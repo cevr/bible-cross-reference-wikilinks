@@ -1,8 +1,0 @@
-[[Psalms 51:9]]
-[[Matthew 22:18]]
-[[Matthew 23:13]]
-[[Luke 4:23]]
-[[Luke 6:42]]
-[[Luke 12:56]]
-[[Luke 13:15]]
-[[Acts 19:15]]

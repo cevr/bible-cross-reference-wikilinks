@@ -1,7 +1,0 @@
-[[Joshua 15:8]]
-[[Judges 1:8]]
-[[Judges 1:21]]
-[[2 Samuel 5:6]]
-[[1 Chronicles 8:28]]
-[[1 Chronicles 11:4]]
-[[Romans 7:14]]

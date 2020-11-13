@@ -1,0 +1,21 @@
+---
+Links:
+[[Genesis 25:23]]
+[[Genesis 27:29]]
+[[Genesis 32:6]]
+[[2 Samuel 8:14]]
+[[1 Kings 11:15]]
+[[2 Kings 8:20]]
+[[2 Kings 14:7]]
+[[2 Kings 14:10]]
+[[1 Chronicles 18:11]]
+[[2 Chronicles 21:8]]
+[[2 Chronicles 21:10]]
+[[2 Chronicles 25:11]]
+[[2 Chronicles 28:17]]
+[[Psalms 60:8]]
+[[Obadiah 1:17]]
+[[Matthew 10:34]]
+---
+
+"And by thy sword shalt thou live, and shalt serve thy brother; and it shall come to pass when thou shalt have the dominion, that thou shalt break his yoke from off thy neck."

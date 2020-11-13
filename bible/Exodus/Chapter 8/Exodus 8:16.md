@@ -1,5 +1,0 @@
-[[Exodus 4:23]]
-[[Exodus 5:1]]
-[[Exodus 8:5]]
-[[Exodus 8:17]]
-[[Psalms 105:31]]

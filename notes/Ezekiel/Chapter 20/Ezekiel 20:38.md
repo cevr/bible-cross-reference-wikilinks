@@ -1,0 +1,31 @@
+---
+Links:
+[[Numbers 14:28]]
+[[Psalms 9:16]]
+[[Psalms 95:11]]
+[[Jeremiah 29:32]]
+[[Jeremiah 44:14]]
+[[Ezekiel 6:7]]
+[[Ezekiel 11:21]]
+[[Ezekiel 13:9]]
+[[Ezekiel 15:7]]
+[[Ezekiel 23:49]]
+[[Ezekiel 34:17]]
+[[Ezekiel 34:20]]
+[[Ezekiel 34:22]]
+[[Amos 9:9]]
+[[Amos 9:10]]
+[[Zechariah 13:8]]
+[[Malachi 3:3]]
+[[Malachi 4:1]]
+[[Matthew 3:9]]
+[[Matthew 3:12]]
+[[Matthew 25:32]]
+[[Romans 9:27]]
+[[1 Corinthians 10:5]]
+[[Hebrews 4:3]]
+[[Hebrews 4:6]]
+[[Jude 1:5]]
+---
+
+"And I will purge out from among you the rebels, and them that transgress against me: I will bring them forth out of the country where they sojourn, and they shall not enter into the land of Israel: and ye shall know that I am the LORD."

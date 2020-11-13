@@ -1,0 +1,31 @@
+---
+Links:
+[[2 Kings 15:29]]
+[[2 Kings 17:16]]
+[[Isaiah 3:8]]
+[[Isaiah 14:21]]
+[[Isaiah 24:20]]
+[[Isaiah 37:22]]
+[[Isaiah 43:17]]
+[[Isaiah 51:17]]
+[[Jeremiah 2:27]]
+[[Jeremiah 4:20]]
+[[Jeremiah 9:9]]
+[[Jeremiah 9:21]]
+[[Jeremiah 14:17]]
+[[Jeremiah 18:13]]
+[[Jeremiah 30:12]]
+[[Jeremiah 31:4]]
+[[Jeremiah 50:32]]
+[[Jeremiah 51:64]]
+[[Lamentations 1:16]]
+[[Lamentations 2:13]]
+[[Ezekiel 16:36]]
+[[Hosea 6:2]]
+[[Hosea 14:1]]
+[[Amos 7:2]]
+[[Amos 8:14]]
+[[Amos 9:11]]
+---
+
+"The virgin of Israel is fallen; she shall no more rise: she is forsaken upon her land; there is none to raise her up."

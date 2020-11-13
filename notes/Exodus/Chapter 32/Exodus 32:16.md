@@ -1,0 +1,15 @@
+---
+Links:
+[[Exodus 31:18]]
+[[Exodus 34:1]]
+[[Exodus 34:4]]
+[[Deuteronomy 9:9]]
+[[Deuteronomy 9:15]]
+[[Deuteronomy 10:1]]
+[[Job 19:24]]
+[[2 Corinthians 3:3]]
+[[2 Corinthians 3:7]]
+[[Hebrews 8:10]]
+---
+
+"And the tables were the work of God, and the writing was the writing of God, graven upon the tables."

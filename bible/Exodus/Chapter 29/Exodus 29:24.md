@@ -1,6 +1,0 @@
-[[Exodus 29:26]]
-[[Leviticus 7:30]]
-[[Leviticus 8:27]]
-[[Leviticus 9:21]]
-[[Leviticus 10:14]]
-[[Leviticus 23:11]]

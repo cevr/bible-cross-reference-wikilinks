@@ -1,0 +1,24 @@
+---
+Links:
+[[Psalms 10:14]]
+[[Psalms 17:6]]
+[[Psalms 25:16]]
+[[Psalms 31:2]]
+[[Psalms 34:6]]
+[[Psalms 40:17]]
+[[Psalms 72:12]]
+[[Psalms 102:1]]
+[[Psalms 102:17]]
+[[Psalms 119:22]]
+[[Psalms 140:12]]
+[[Psalms 142:1]]
+[[Isaiah 37:17]]
+[[Isaiah 66:2]]
+[[Daniel 9:18]]
+[[Matthew 5:3]]
+[[Luke 4:18]]
+[[James 1:9]]
+[[James 2:5]]
+---
+
+"Bow down thine ear, O LORD, hear me: for I am poor and needy."

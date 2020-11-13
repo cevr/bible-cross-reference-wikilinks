@@ -1,0 +1,20 @@
+---
+Links:
+[[Exodus 3:6]]
+[[Deuteronomy 7:6]]
+[[Deuteronomy 7:7]]
+[[Psalms 105:42]]
+[[Psalms 105:43]]
+[[Psalms 106:5]]
+[[Psalms 135:4]]
+[[Psalms 136:22]]
+[[Isaiah 41:8]]
+[[Isaiah 41:14]]
+[[Isaiah 44:1]]
+[[Isaiah 45:4]]
+[[John 15:16]]
+[[Romans 9:4]]
+[[1 Peter 2:9]]
+---
+
+"O ye seed of Abraham his servant, ye children of Jacob his chosen."

@@ -1,0 +1,15 @@
+---
+Links:
+[[Genesis 32:30]]
+[[Genesis 32:31]]
+[[Genesis 43:23]]
+[[Judges 19:20]]
+[[Psalms 85:8]]
+[[Daniel 10:19]]
+[[John 14:27]]
+[[John 20:19]]
+[[John 20:26]]
+[[Romans 1:7]]
+---
+
+"And the LORD said unto him, Peace be unto thee; fear not: thou shalt not die."

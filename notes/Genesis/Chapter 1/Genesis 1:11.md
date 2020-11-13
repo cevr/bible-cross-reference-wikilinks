@@ -1,0 +1,23 @@
+---
+Links:
+[[Genesis 1:29]]
+[[Genesis 2:5]]
+[[Genesis 2:9]]
+[[Genesis 2:16]]
+[[Job 28:5]]
+[[Psalms 1:3]]
+[[Psalms 65:9]]
+[[Psalms 104:14]]
+[[Psalms 147:8]]
+[[Isaiah 61:11]]
+[[Jeremiah 17:8]]
+[[Matthew 3:10]]
+[[Matthew 6:30]]
+[[Matthew 7:16]]
+[[Mark 4:28]]
+[[Luke 6:43]]
+[[Hebrews 6:7]]
+[[James 3:12]]
+---
+
+"And God said, Let the earth bring forth grass, the herb yielding seed, and the fruit tree yielding fruit after his kind, whose seed is in itself, upon the earth: and it was so."

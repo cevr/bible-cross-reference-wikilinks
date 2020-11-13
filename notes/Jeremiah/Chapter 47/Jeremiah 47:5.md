@@ -1,0 +1,25 @@
+---
+Links:
+[[Leviticus 19:28]]
+[[Leviticus 21:5]]
+[[Deuteronomy 14:1]]
+[[Judges 1:18]]
+[[1 Kings 18:28]]
+[[Isaiah 15:2]]
+[[Jeremiah 16:1]]
+[[Jeremiah 16:6]]
+[[Jeremiah 25:20]]
+[[Jeremiah 41:5]]
+[[Jeremiah 47:1]]
+[[Jeremiah 47:4]]
+[[Jeremiah 48:37]]
+[[Ezekiel 7:18]]
+[[Ezekiel 25:16]]
+[[Amos 1:6]]
+[[Micah 1:16]]
+[[Zephaniah 2:4]]
+[[Zechariah 9:5]]
+[[Mark 5:5]]
+---
+
+"Baldness is come upon Gaza; Ashkelon is cut off with the remnant of their valley: how long wilt thou cut thyself?"

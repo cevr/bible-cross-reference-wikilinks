@@ -1,0 +1,23 @@
+---
+Links:
+[[1 Samuel 21:1]]
+[[1 Samuel 21:2]]
+[[1 Samuel 22:19]]
+[[2 Chronicles 32:1]]
+[[2 Chronicles 32:2]]
+[[Nehemiah 11:32]]
+[[Isaiah 1:8]]
+[[Isaiah 2:2]]
+[[Isaiah 8:8]]
+[[Isaiah 10:24]]
+[[Isaiah 11:15]]
+[[Isaiah 13:2]]
+[[Isaiah 19:16]]
+[[Isaiah 29:2]]
+[[Isaiah 37:22]]
+[[Jeremiah 6:23]]
+[[Micah 1:9]]
+[[Zechariah 2:9]]
+---
+
+"As yet shall he remain at Nob that day: he shall shake his hand against the mount of the daughter of Zion, the hill of Jerusalem."

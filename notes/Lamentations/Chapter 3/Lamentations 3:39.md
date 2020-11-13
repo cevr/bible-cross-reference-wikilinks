@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 4:5]]
+[[Genesis 4:13]]
+[[Leviticus 26:41]]
+[[Leviticus 26:43]]
+[[Numbers 11:11]]
+[[Numbers 16:41]]
+[[Numbers 17:12]]
+[[Joshua 7:6]]
+[[2 Samuel 6:7]]
+[[2 Kings 3:13]]
+[[2 Kings 6:32]]
+[[2 Kings 6:33]]
+[[Ezra 9:13]]
+[[Job 11:6]]
+[[Job 15:13]]
+[[Proverbs 19:3]]
+[[Isaiah 38:17]]
+[[Isaiah 51:20]]
+[[Jeremiah 10:19]]
+[[Jeremiah 30:15]]
+[[Lamentations 3:22]]
+[[Jonah 2:3]]
+[[Jonah 4:8]]
+[[Micah 7:9]]
+[[Hebrews 12:5]]
+[[Revelation 16:9]]
+---
+
+"Wherefore doth a living man complain, a man for the punishment of his sins?"

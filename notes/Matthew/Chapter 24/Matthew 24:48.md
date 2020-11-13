@@ -1,0 +1,21 @@
+---
+Links:
+[[Deuteronomy 9:4]]
+[[Deuteronomy 15:9]]
+[[2 Kings 5:26]]
+[[Ecclesiastes 8:11]]
+[[Isaiah 32:6]]
+[[Ezekiel 12:22]]
+[[Ezekiel 12:27]]
+[[Matthew 18:32]]
+[[Matthew 25:26]]
+[[Mark 7:21]]
+[[Luke 12:45]]
+[[Luke 19:22]]
+[[John 13:2]]
+[[Acts 5:3]]
+[[Acts 8:22]]
+[[2 Peter 3:3]]
+---
+
+"But and if that evil servant shall say in his heart, My lord delayeth his coming;"

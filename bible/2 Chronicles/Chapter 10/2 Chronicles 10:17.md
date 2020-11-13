@@ -1,5 +1,0 @@
-[[1 Kings 11:36]]
-[[1 Kings 12:17]]
-[[2 Chronicles 11:1]]
-[[2 Chronicles 11:3]]
-[[2 Chronicles 11:12]]

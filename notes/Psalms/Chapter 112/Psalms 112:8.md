@@ -1,0 +1,16 @@
+---
+Links:
+[[Psalms 27:14]]
+[[Psalms 31:24]]
+[[Psalms 37:34]]
+[[Psalms 49:6]]
+[[Psalms 59:10]]
+[[Psalms 91:8]]
+[[Psalms 92:11]]
+[[Psalms 118:6]]
+[[Psalms 118:7]]
+[[Proverbs 3:33]]
+[[Hebrews 13:9]]
+---
+
+"His heart is established, he shall not be afraid, until he see his desire upon his enemies."

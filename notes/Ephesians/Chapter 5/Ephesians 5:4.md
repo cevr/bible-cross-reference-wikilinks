@@ -1,0 +1,33 @@
+---
+Links:
+[[Psalms 33:1]]
+[[Psalms 92:1]]
+[[Psalms 107:21]]
+[[Proverbs 12:23]]
+[[Proverbs 15:2]]
+[[Ecclesiastes 10:13]]
+[[Daniel 6:10]]
+[[Matthew 12:34]]
+[[Mark 7:22]]
+[[John 6:23]]
+[[Romans 1:28]]
+[[2 Corinthians 1:11]]
+[[2 Corinthians 9:15]]
+[[Ephesians 1:16]]
+[[Ephesians 4:29]]
+[[Ephesians 5:19]]
+[[Philippians 4:6]]
+[[Colossians 3:8]]
+[[Colossians 3:15]]
+[[1 Thessalonians 3:9]]
+[[1 Thessalonians 5:18]]
+[[Philemon 1:8]]
+[[Hebrews 13:15]]
+[[James 3:4]]
+[[2 Peter 2:7]]
+[[2 Peter 2:18]]
+[[Jude 1:10]]
+[[Jude 1:13]]
+---
+
+"Neither filthiness, nor foolish talking, nor jesting, which are not convenient: but rather giving of thanks."

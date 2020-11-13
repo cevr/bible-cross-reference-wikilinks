@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 17:1]]
+[[Deuteronomy 28:1]]
+[[2 Samuel 22:22]]
+[[1 Kings 3:3]]
+[[1 Kings 3:14]]
+[[1 Kings 8:25]]
+[[1 Kings 11:4]]
+[[1 Kings 11:6]]
+[[1 Kings 11:38]]
+[[1 Kings 14:8]]
+[[1 Kings 15:5]]
+[[2 Chronicles 7:17]]
+[[2 Chronicles 17:4]]
+[[Job 23:11]]
+[[Psalms 15:2]]
+[[Psalms 26:1]]
+[[Psalms 26:11]]
+[[Psalms 78:72]]
+[[Proverbs 10:9]]
+[[Proverbs 20:7]]
+[[Proverbs 28:18]]
+[[Ezekiel 18:9]]
+[[Zechariah 3:7]]
+[[Luke 1:6]]
+[[1 Thessalonians 4:1]]
+---
+
+"And if thou wilt walk before me, as David thy father walked, in integrity of heart, and in uprightness, to do according to all that I have commanded thee, and wilt keep my statutes and my judgments:"

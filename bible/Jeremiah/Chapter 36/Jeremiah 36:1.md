@@ -1,5 +1,0 @@
-[[2 Kings 24:1]]
-[[2 Chronicles 36:5]]
-[[Jeremiah 25:1]]
-[[Jeremiah 35:1]]
-[[Jeremiah 45:1]]

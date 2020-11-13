@@ -1,0 +1,33 @@
+---
+Links:
+[[Numbers 24:14]]
+[[Deuteronomy 4:30]]
+[[Deuteronomy 31:12]]
+[[Deuteronomy 31:28]]
+[[Deuteronomy 33:1]]
+[[Psalms 25:14]]
+[[Psalms 105:15]]
+[[Isaiah 2:2]]
+[[Isaiah 22:14]]
+[[Isaiah 39:6]]
+[[Isaiah 48:14]]
+[[Isaiah 53:1]]
+[[Jeremiah 23:20]]
+[[Daniel 2:28]]
+[[Daniel 2:47]]
+[[Daniel 10:1]]
+[[Daniel 10:14]]
+[[Amos 3:7]]
+[[Micah 4:1]]
+[[Luke 2:26]]
+[[Acts 2:17]]
+[[Romans 1:17]]
+[[1 Timothy 4:1]]
+[[2 Timothy 3:1]]
+[[Hebrews 1:2]]
+[[Hebrews 10:24]]
+[[Hebrews 13:1]]
+[[Revelation 4:1]]
+---
+
+"And Jacob called unto his sons, and said, Gather yourselves together, that I may tell you that which shall befall you in the last days."

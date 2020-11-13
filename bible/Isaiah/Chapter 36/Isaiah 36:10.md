@@ -1,6 +1,0 @@
-[[1 Kings 13:18]]
-[[2 Kings 18:25]]
-[[2 Chronicles 35:21]]
-[[Isaiah 10:5]]
-[[Isaiah 37:28]]
-[[Amos 3:6]]

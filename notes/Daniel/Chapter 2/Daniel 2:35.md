@@ -1,0 +1,30 @@
+---
+Links:
+[[Job 6:17]]
+[[Psalms 1:4]]
+[[Psalms 22:27]]
+[[Psalms 37:10]]
+[[Psalms 37:36]]
+[[Psalms 46:9]]
+[[Psalms 66:4]]
+[[Psalms 67:1]]
+[[Psalms 72:16]]
+[[Psalms 80:9]]
+[[Psalms 86:9]]
+[[Psalms 103:16]]
+[[Isaiah 2:2]]
+[[Isaiah 11:9]]
+[[Isaiah 17:13]]
+[[Isaiah 41:15]]
+[[Hosea 13:3]]
+[[Micah 4:1]]
+[[Micah 4:13]]
+[[Zechariah 14:8]]
+[[1 Corinthians 15:25]]
+[[Revelation 11:15]]
+[[Revelation 12:8]]
+[[Revelation 20:2]]
+[[Revelation 20:11]]
+---
+
+"Then was the iron, the clay, the brass, the silver, and the gold, broken to pieces together, and became like the chaff of the summer threshingfloors; and the wind carried them away, that no place was found for them: and the stone that smote the image became a great mountain, and filled the whole earth."

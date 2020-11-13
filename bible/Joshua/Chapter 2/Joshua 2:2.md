@@ -1,5 +1,0 @@
-[[Judges 18:2]]
-[[Psalms 127:1]]
-[[Proverbs 21:30]]
-[[Isaiah 43:13]]
-[[Daniel 4:35]]

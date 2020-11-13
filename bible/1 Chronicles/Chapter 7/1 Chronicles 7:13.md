@@ -1,5 +1,0 @@
-[[Genesis 30:3]]
-[[Genesis 35:22]]
-[[Genesis 46:24]]
-[[Numbers 26:48]]
-[[Numbers 26:49]]

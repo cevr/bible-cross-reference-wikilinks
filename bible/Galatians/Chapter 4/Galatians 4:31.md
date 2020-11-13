@@ -1,6 +1,0 @@
-[[John 1:12]]
-[[John 8:36]]
-[[Galatians 5:1]]
-[[Galatians 5:13]]
-[[Hebrews 2:14]]
-[[1 John 3:1]]

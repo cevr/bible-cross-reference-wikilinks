@@ -1,0 +1,14 @@
+---
+Links:
+[[Deuteronomy 4:26]]
+[[Deuteronomy 28:48]]
+[[Deuteronomy 28:68]]
+[[Isaiah 27:13]]
+[[Jeremiah 22:12]]
+[[Jeremiah 42:17]]
+[[Jeremiah 42:22]]
+[[Jeremiah 44:12]]
+[[Jeremiah 44:27]]
+---
+
+"And ye shall perish among the heathen, and the land of your enemies shall eat you up."

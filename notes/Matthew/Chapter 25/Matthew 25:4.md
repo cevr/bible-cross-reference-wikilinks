@@ -1,0 +1,15 @@
+---
+Links:
+[[Psalms 45:7]]
+[[Zechariah 4:2]]
+[[John 1:15]]
+[[John 3:34]]
+[[Romans 8:9]]
+[[2 Corinthians 1:22]]
+[[Galatians 5:22]]
+[[1 John 2:20]]
+[[1 John 2:27]]
+[[Jude 1:19]]
+---
+
+"But the wise took oil in their vessels with their lamps."

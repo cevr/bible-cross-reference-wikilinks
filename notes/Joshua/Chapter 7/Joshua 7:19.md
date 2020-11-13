@@ -1,0 +1,31 @@
+---
+Links:
+[[Numbers 5:6]]
+[[Numbers 5:7]]
+[[1 Samuel 6:5]]
+[[1 Samuel 14:43]]
+[[2 Kings 20:15]]
+[[2 Chronicles 30:22]]
+[[2 Chronicles 33:12]]
+[[Ezra 10:10]]
+[[Ezra 10:11]]
+[[Psalms 32:5]]
+[[Psalms 51:3]]
+[[Proverbs 28:13]]
+[[Isaiah 13:12]]
+[[Jeremiah 3:12]]
+[[Jeremiah 13:16]]
+[[Daniel 9:4]]
+[[Jonah 1:8]]
+[[Luke 17:18]]
+[[John 9:24]]
+[[Romans 10:10]]
+[[2 Timothy 2:25]]
+[[Titus 2:2]]
+[[James 1:20]]
+[[1 Peter 3:8]]
+[[1 John 1:8]]
+[[Revelation 16:9]]
+---
+
+"And Joshua said unto Achan, My son, give, I pray thee, glory to the LORD God of Israel, and make confession unto him; and tell me now what thou hast done; hide it not from me."

@@ -1,5 +1,0 @@
-[[2 Samuel 20:24]]
-[[1 Kings 5:13]]
-[[1 Kings 9:15]]
-[[1 Kings 12:18]]
-[[2 Chronicles 8:8]]

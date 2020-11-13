@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 3:15]]
+[[Ezra 1:1]]
+[[Psalms 7:6]]
+[[Psalms 44:26]]
+[[Psalms 51:18]]
+[[Psalms 69:35]]
+[[Psalms 75:2]]
+[[Psalms 90:2]]
+[[Psalms 92:9]]
+[[Psalms 135:13]]
+[[Isaiah 14:32]]
+[[Isaiah 40:2]]
+[[Isaiah 60:1]]
+[[Isaiah 60:10]]
+[[Jeremiah 31:10]]
+[[Jeremiah 31:23]]
+[[Daniel 9:2]]
+[[Daniel 12:9]]
+[[Daniel 12:12]]
+[[Zechariah 1:12]]
+[[Zechariah 2:10]]
+[[Acts 1:7]]
+[[Galatians 4:4]]
+[[2 Peter 3:8]]
+[[2 Peter 3:12]]
+[[Revelation 11:15]]
+---
+
+"Thou shalt arise, and have mercy upon Zion: for the time to favour her, yea, the set time, is come."

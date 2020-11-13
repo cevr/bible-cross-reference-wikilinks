@@ -1,0 +1,28 @@
+---
+Links:
+[[Deuteronomy 30:1]]
+[[2 Kings 20:3]]
+[[1 Chronicles 28:9]]
+[[2 Chronicles 15:2]]
+[[2 Chronicles 20:3]]
+[[2 Chronicles 20:4]]
+[[2 Chronicles 34:3]]
+[[Psalms 14:2]]
+[[Psalms 22:26]]
+[[Psalms 27:8]]
+[[Psalms 69:32]]
+[[Psalms 69:33]]
+[[Psalms 105:3]]
+[[Psalms 105:4]]
+[[Isaiah 55:3]]
+[[Isaiah 55:6]]
+[[Jeremiah 29:12]]
+[[Jeremiah 38:20]]
+[[Lamentations 3:25]]
+[[Hosea 10:12]]
+[[Amos 5:6]]
+[[Zephaniah 2:3]]
+[[Matthew 7:8]]
+---
+
+"For thus saith the LORD unto the house of Israel, Seek ye me, and ye shall live:"

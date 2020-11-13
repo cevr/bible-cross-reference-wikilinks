@@ -1,0 +1,27 @@
+---
+Links:
+[[Exodus 3:14]]
+[[Exodus 6:2]]
+[[Exodus 20:2]]
+[[Exodus 34:5]]
+[[Leviticus 26:14]]
+[[Deuteronomy 6:13]]
+[[Deuteronomy 28:15]]
+[[Nehemiah 9:5]]
+[[Psalms 50:7]]
+[[Psalms 72:19]]
+[[Psalms 83:18]]
+[[Psalms 111:9]]
+[[Isaiah 41:10]]
+[[Isaiah 42:8]]
+[[Jeremiah 5:12]]
+[[Jeremiah 5:22]]
+[[Jeremiah 7:9]]
+[[Jeremiah 7:26]]
+[[Malachi 1:14]]
+[[Matthew 10:28]]
+[[Hebrews 10:30]]
+[[Hebrews 12:28]]
+---
+
+"If thou wilt not observe to do all the words of this law that are written in this book, that thou mayest fear this glorious and fearful name, THE LORD THY GOD;"

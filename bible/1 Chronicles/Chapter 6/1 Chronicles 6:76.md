@@ -1,5 +1,0 @@
-[[Joshua 12:22]]
-[[Joshua 19:37]]
-[[Joshua 20:7]]
-[[Joshua 21:32]]
-[[Judges 4:6]]

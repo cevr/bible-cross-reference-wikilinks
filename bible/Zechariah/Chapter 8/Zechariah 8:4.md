@@ -1,8 +1,0 @@
-[[Exodus 21:19]]
-[[1 Samuel 2:31]]
-[[Job 5:26]]
-[[Job 42:17]]
-[[Isaiah 65:20]]
-[[Lamentations 2:20]]
-[[Lamentations 5:11]]
-[[Hebrews 12:22]]

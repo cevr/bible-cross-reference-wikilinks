@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 49:10]]
+[[Psalms 22:27]]
+[[Psalms 72:8]]
+[[Psalms 92:12]]
+[[Isaiah 2:2]]
+[[Isaiah 11:6]]
+[[Isaiah 27:6]]
+[[Isaiah 49:18]]
+[[Isaiah 60:4]]
+[[Ezekiel 20:40]]
+[[Ezekiel 31:6]]
+[[Daniel 4:8]]
+[[Daniel 4:9]]
+[[Daniel 4:10]]
+[[Daniel 4:21]]
+[[Hosea 14:7]]
+[[Micah 4:1]]
+[[Matthew 13:32]]
+[[Matthew 13:47]]
+[[Luke 14:21]]
+[[John 12:24]]
+[[John 15:5]]
+[[Acts 10:11]]
+[[Galatians 3:28]]
+[[Colossians 3:11]]
+[[Revelation 11:15]]
+---
+
+"In the mountain of the height of Israel will I plant it: and it shall bring forth boughs, and bear fruit, and be a goodly cedar: and under it shall dwell all fowl of every wing; in the shadow of the branches thereof shall they dwell."

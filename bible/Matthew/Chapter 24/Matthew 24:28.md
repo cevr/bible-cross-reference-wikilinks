@@ -1,5 +1,0 @@
-[[Deuteronomy 28:49]]
-[[Job 39:27]]
-[[Jeremiah 16:16]]
-[[Amos 9:1]]
-[[Luke 17:37]]

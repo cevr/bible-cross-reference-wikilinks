@@ -1,0 +1,30 @@
+---
+Links:
+[[Exodus 23:14]]
+[[Exodus 32:5]]
+[[Leviticus 23:4]]
+[[Leviticus 23:21]]
+[[Leviticus 23:37]]
+[[Leviticus 23:44]]
+[[Numbers 10:2]]
+[[Numbers 10:10]]
+[[Numbers 29:39]]
+[[2 Kings 10:20]]
+[[2 Chronicles 2:3]]
+[[2 Chronicles 30:5]]
+[[Ezra 3:5]]
+[[Psalms 81:3]]
+[[Isaiah 1:13]]
+[[Isaiah 33:20]]
+[[Lamentations 1:4]]
+[[Ezekiel 44:24]]
+[[Hosea 2:11]]
+[[Joel 1:14]]
+[[Joel 2:15]]
+[[Jonah 3:5]]
+[[Nahum 1:15]]
+[[John 5:1]]
+[[Colossians 2:1]]
+---
+
+"Speak unto the children of Israel, and say unto them, Concerning the feasts of the LORD, which ye shall proclaim to be holy convocations, even these are my feasts."

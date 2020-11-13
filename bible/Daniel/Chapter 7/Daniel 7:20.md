@@ -1,5 +1,0 @@
-[[Daniel 7:8]]
-[[Daniel 7:11]]
-[[Daniel 7:23]]
-[[Daniel 8:9]]
-[[Daniel 11:36]]

@@ -1,0 +1,17 @@
+---
+Links:
+[[Numbers 21:19]]
+[[Numbers 21:26]]
+[[Numbers 21:30]]
+[[Numbers 22:41]]
+[[Numbers 32:38]]
+[[Joshua 14:3]]
+[[Joshua 18:7]]
+[[Judges 11:26]]
+[[1 Chronicles 5:8]]
+[[Jeremiah 48:21]]
+[[Jeremiah 48:23]]
+[[Ezekiel 25:9]]
+---
+
+"Heshbon, and all her cities that are in the plain; Dibon, and Bamoth-baal, and Beth-baal-meon,"

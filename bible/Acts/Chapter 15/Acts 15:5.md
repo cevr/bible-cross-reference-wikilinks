@@ -1,7 +1,0 @@
-[[Acts 15:1]]
-[[Acts 15:24]]
-[[Acts 21:20]]
-[[Acts 24:5]]
-[[Acts 26:5]]
-[[Galatians 5:1]]
-[[Philippians 3:5]]

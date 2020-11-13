@@ -1,5 +1,0 @@
-[[Esther 2:3]]
-[[Esther 2:21]]
-[[Esther 3:2]]
-[[Esther 3:3]]
-[[Esther 5:13]]

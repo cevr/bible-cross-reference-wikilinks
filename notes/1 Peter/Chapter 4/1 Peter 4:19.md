@@ -1,0 +1,31 @@
+---
+Links:
+[[Esther 4:16]]
+[[Psalms 31:5]]
+[[Psalms 37:5]]
+[[Psalms 138:8]]
+[[Psalms 146:5]]
+[[Isaiah 40:27]]
+[[Isaiah 43:7]]
+[[Isaiah 43:21]]
+[[Isaiah 51:12]]
+[[Isaiah 54:16]]
+[[Jeremiah 26:11]]
+[[Daniel 3:16]]
+[[Daniel 6:10]]
+[[Daniel 6:22]]
+[[Luke 23:46]]
+[[Acts 7:59]]
+[[Acts 21:11]]
+[[Romans 2:7]]
+[[Colossians 1:16]]
+[[2 Timothy 1:12]]
+[[Hebrews 1:2]]
+[[1 Peter 2:15]]
+[[1 Peter 3:17]]
+[[1 Peter 4:12]]
+[[Revelation 4:10]]
+[[Revelation 5:9]]
+---
+
+"Wherefore let them that suffer according to the will of God commit the keeping of their souls to him in well doing, as unto a faithful Creator."

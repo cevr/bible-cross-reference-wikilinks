@@ -1,0 +1,15 @@
+---
+Links:
+[[Numbers 29:11]]
+[[John 8:31]]
+[[Acts 13:43]]
+[[Romans 2:7]]
+[[Galatians 2:5]]
+[[Galatians 6:9]]
+[[2 Thessalonians 3:13]]
+[[Hebrews 3:14]]
+[[Hebrews 10:39]]
+[[Hebrews 13:15]]
+---
+
+"And one kid of the goats for a sin offering; beside the continual burnt offering, his meat offering, and his drink offering."

@@ -1,5 +1,0 @@
-[[Isaiah 60:21]]
-[[Isaiah 65:17]]
-[[Isaiah 66:22]]
-[[Revelation 21:1]]
-[[Revelation 21:27]]

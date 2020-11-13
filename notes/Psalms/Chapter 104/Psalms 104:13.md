@@ -1,0 +1,18 @@
+---
+Links:
+[[Deuteronomy 11:11]]
+[[Job 38:25]]
+[[Job 38:37]]
+[[Psalms 65:9]]
+[[Psalms 65:10]]
+[[Psalms 65:11]]
+[[Psalms 104:3]]
+[[Psalms 147:8]]
+[[Jeremiah 10:13]]
+[[Jeremiah 14:22]]
+[[Amos 9:6]]
+[[Matthew 5:45]]
+[[Acts 14:17]]
+---
+
+"He watereth the hills from his chambers: the earth is satisfied with the fruit of thy works."

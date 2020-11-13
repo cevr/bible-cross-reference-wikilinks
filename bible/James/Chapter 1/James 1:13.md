@@ -1,6 +1,0 @@
-[[Genesis 3:12]]
-[[Isaiah 63:17]]
-[[Habakkuk 2:12]]
-[[Romans 9:19]]
-[[James 1:2]]
-[[James 1:12]]

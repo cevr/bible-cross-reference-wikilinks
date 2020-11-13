@@ -1,7 +1,0 @@
-[[Numbers 21:17]]
-[[Psalms 80:8]]
-[[Psalms 80:9]]
-[[Isaiah 5:1]]
-[[Jeremiah 2:21]]
-[[Matthew 21:33]]
-[[Luke 20:9]]

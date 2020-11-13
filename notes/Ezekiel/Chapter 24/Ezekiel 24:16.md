@@ -1,0 +1,20 @@
+---
+Links:
+[[Leviticus 10:2]]
+[[Leviticus 21:4]]
+[[Job 36:18]]
+[[Proverbs 5:19]]
+[[Songs of Solomon 7:10]]
+[[Jeremiah 9:1]]
+[[Jeremiah 9:18]]
+[[Jeremiah 13:17]]
+[[Jeremiah 16:5]]
+[[Jeremiah 22:10]]
+[[Jeremiah 22:18]]
+[[Lamentations 2:18]]
+[[Ezekiel 24:18]]
+[[Ezekiel 24:21]]
+[[1 Thessalonians 4:13]]
+---
+
+"Son of man, behold, I take away from thee the desire of thine eyes with a stroke: yet neither shalt thou mourn nor weep, neither shall thy tears run down."

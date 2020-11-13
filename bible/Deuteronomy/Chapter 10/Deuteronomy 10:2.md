@@ -1,7 +1,0 @@
-[[Exodus 25:16]]
-[[Exodus 32:19]]
-[[Exodus 40:20]]
-[[Deuteronomy 4:13]]
-[[Deuteronomy 10:5]]
-[[1 Kings 8:9]]
-[[Hebrews 9:4]]

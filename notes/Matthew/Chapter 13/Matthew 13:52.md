@@ -1,0 +1,33 @@
+---
+Links:
+[[Ezra 7:6]]
+[[Ezra 7:10]]
+[[Ezra 7:21]]
+[[Proverbs 10:20]]
+[[Proverbs 11:30]]
+[[Proverbs 15:7]]
+[[Proverbs 16:20]]
+[[Proverbs 18:4]]
+[[Proverbs 22:17]]
+[[Ecclesiastes 12:9]]
+[[Songs of Solomon 7:13]]
+[[Matthew 12:35]]
+[[Matthew 23:34]]
+[[Luke 11:49]]
+[[John 13:34]]
+[[2 Corinthians 3:4]]
+[[2 Corinthians 4:5]]
+[[2 Corinthians 6:10]]
+[[Ephesians 3:4]]
+[[Ephesians 3:8]]
+[[Colossians 1:7]]
+[[Colossians 3:16]]
+[[1 Timothy 3:6]]
+[[1 Timothy 3:15]]
+[[2 Timothy 3:16]]
+[[Titus 1:9]]
+[[Titus 2:6]]
+[[1 John 2:7]]
+---
+
+"Then said he unto them, Therefore every scribe which is instructed unto the kingdom of heaven is like unto a man that is an householder, which bringeth forth out of his treasure things new and old."

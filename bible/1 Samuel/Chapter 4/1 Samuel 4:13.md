@@ -1,7 +1,0 @@
-[[Joshua 7:9]]
-[[1 Samuel 1:9]]
-[[1 Samuel 4:18]]
-[[Nehemiah 1:3]]
-[[Psalms 26:8]]
-[[Psalms 79:1]]
-[[Psalms 137:4]]

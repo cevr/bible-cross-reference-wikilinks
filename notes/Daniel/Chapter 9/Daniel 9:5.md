@@ -1,0 +1,32 @@
+---
+Links:
+[[1 Kings 8:47]]
+[[2 Kings 18:12]]
+[[2 Kings 21:15]]
+[[2 Chronicles 6:37]]
+[[Ezra 9:6]]
+[[Nehemiah 1:6]]
+[[Nehemiah 9:33]]
+[[Psalms 18:21]]
+[[Psalms 106:6]]
+[[Psalms 119:102]]
+[[Isaiah 53:6]]
+[[Isaiah 59:13]]
+[[Isaiah 64:4]]
+[[Isaiah 64:5]]
+[[Jeremiah 3:25]]
+[[Jeremiah 14:7]]
+[[Jeremiah 14:20]]
+[[Jeremiah 30:14]]
+[[Lamentations 1:20]]
+[[Lamentations 3:42]]
+[[Ezekiel 5:6]]
+[[Ezekiel 6:9]]
+[[Daniel 9:11]]
+[[Daniel 9:15]]
+[[Hosea 1:2]]
+[[Malachi 3:7]]
+[[Hebrews 3:12]]
+---
+
+"We have sinned, and have committed iniquity, and have done wickedly, and have rebelled, even by departing from thy precepts and from thy judgments:"

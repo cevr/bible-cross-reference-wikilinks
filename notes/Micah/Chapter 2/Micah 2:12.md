@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 36:33]]
+[[1 Chronicles 1:44]]
+[[Isaiah 11:11]]
+[[Isaiah 27:12]]
+[[Isaiah 34:6]]
+[[Jeremiah 3:18]]
+[[Jeremiah 23:3]]
+[[Jeremiah 31:7]]
+[[Ezekiel 34:11]]
+[[Ezekiel 34:13]]
+[[Ezekiel 34:22]]
+[[Ezekiel 34:31]]
+[[Ezekiel 36:37]]
+[[Ezekiel 37:21]]
+[[Hosea 1:11]]
+[[Amos 1:12]]
+[[Micah 4:6]]
+[[Micah 4:7]]
+[[Micah 5:7]]
+[[Micah 7:14]]
+[[Micah 7:18]]
+[[Zephaniah 3:20]]
+[[Zechariah 8:22]]
+[[Zechariah 9:14]]
+[[Zechariah 10:6]]
+[[Zechariah 10:8]]
+---
+
+"I will surely assemble, O Jacob, all of thee; I will surely gather the remnant of Israel; I will put them together as the sheep of Bozrah, as the flock in the midst of their fold: they shall make great noise by reason of the multitude of men."

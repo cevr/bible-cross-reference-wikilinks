@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 9:5]]
+[[Exodus 21:23]]
+[[Isaiah 14:2]]
+[[Isaiah 26:21]]
+[[Isaiah 33:1]]
+[[Jeremiah 15:2]]
+[[Jeremiah 43:11]]
+[[Lamentations 3:26]]
+[[Habakkuk 2:3]]
+[[Matthew 7:2]]
+[[Matthew 26:52]]
+[[Luke 18:1]]
+[[Luke 21:19]]
+[[Colossians 1:11]]
+[[Hebrews 6:12]]
+[[Hebrews 10:36]]
+[[Hebrews 12:3]]
+[[James 1:2]]
+[[James 5:7]]
+[[Revelation 1:9]]
+[[Revelation 2:2]]
+[[Revelation 2:19]]
+[[Revelation 3:3]]
+[[Revelation 3:10]]
+[[Revelation 14:12]]
+[[Revelation 16:6]]
+---
+
+"He that leadeth into captivity shall go into captivity: he that killeth with the sword must be killed with the sword. Here is the patience and the faith of the saints."

@@ -1,8 +1,0 @@
-[[Genesis 28:18]]
-[[Genesis 35:4]]
-[[Genesis 35:8]]
-[[Exodus 24:4]]
-[[Deuteronomy 31:24]]
-[[Joshua 4:3]]
-[[Joshua 4:20]]
-[[Judges 9:6]]

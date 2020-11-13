@@ -1,5 +1,0 @@
-[[Deuteronomy 14:9]]
-[[Acts 20:21]]
-[[Galatians 5:6]]
-[[James 2:18]]
-[[1 John 5:2]]

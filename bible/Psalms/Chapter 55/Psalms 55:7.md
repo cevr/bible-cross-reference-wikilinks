@@ -1,7 +1,0 @@
-[[1 Samuel 27:1]]
-[[2 Samuel 15:14]]
-[[2 Samuel 17:21]]
-[[Proverbs 6:4]]
-[[Jeremiah 9:1]]
-[[Jeremiah 9:2]]
-[[Jeremiah 37:12]]

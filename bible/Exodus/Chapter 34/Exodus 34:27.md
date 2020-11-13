@@ -1,6 +1,0 @@
-[[Exodus 17:14]]
-[[Exodus 24:4]]
-[[Exodus 24:7]]
-[[Exodus 34:10]]
-[[Deuteronomy 4:13]]
-[[Deuteronomy 31:9]]

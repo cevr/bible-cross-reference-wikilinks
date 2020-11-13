@@ -1,0 +1,14 @@
+---
+Links:
+[[Genesis 24:2]]
+[[Genesis 47:29]]
+[[1 Kings 1:50]]
+[[1 Kings 2:24]]
+[[1 Chronicles 2:3]]
+[[1 Chronicles 22:17]]
+[[1 Chronicles 28:21]]
+[[2 Chronicles 30:8]]
+[[Ezekiel 17:18]]
+---
+
+"And all the princes, and the mighty men, and all the sons likewise of king David, submitted themselves unto Solomon the king."

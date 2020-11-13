@@ -1,0 +1,27 @@
+---
+Links:
+[[Matthew 16:18]]
+[[Acts 4:36]]
+[[Acts 15:7]]
+[[Acts 15:13]]
+[[Acts 15:22]]
+[[Romans 1:5]]
+[[Romans 12:3]]
+[[Romans 12:5]]
+[[Romans 15:15]]
+[[1 Corinthians 15:10]]
+[[2 Corinthians 8:4]]
+[[Galatians 2:2]]
+[[Galatians 2:6]]
+[[Galatians 2:11]]
+[[Ephesians 2:20]]
+[[Ephesians 3:8]]
+[[Colossians 1:29]]
+[[1 Timothy 3:15]]
+[[1 Peter 4:10]]
+[[1 John 1:3]]
+[[Revelation 3:12]]
+[[Revelation 21:14]]
+---
+
+"And when James, Cephas, and John, who seemed to be pillars, perceived the grace that was given unto me, they gave to me and Barnabas the right hands of fellowship; that we should go unto the heathen, and they unto the circumcision."

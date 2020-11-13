@@ -1,0 +1,30 @@
+---
+Links:
+[[1 Samuel 1:15]]
+[[2 Chronicles 24:22]]
+[[Psalms 7:9]]
+[[Psalms 11:5]]
+[[Psalms 17:3]]
+[[Psalms 26:2]]
+[[Psalms 54:7]]
+[[Psalms 59:10]]
+[[Psalms 62:8]]
+[[Psalms 86:4]]
+[[Psalms 109:6]]
+[[Psalms 139:23]]
+[[Isaiah 37:14]]
+[[Isaiah 38:14]]
+[[Jeremiah 11:20]]
+[[Jeremiah 12:8]]
+[[Jeremiah 17:10]]
+[[Jeremiah 17:18]]
+[[Jeremiah 18:19]]
+[[1 Peter 2:23]]
+[[1 Peter 4:19]]
+[[Revelation 2:23]]
+[[Revelation 6:10]]
+[[Revelation 18:20]]
+[[Revelation 19:2]]
+---
+
+"But, O LORD of hosts, that triest the righteous, and seest the reins and the heart, let me see thy vengeance on them: for unto thee have I opened my cause."

@@ -1,0 +1,18 @@
+---
+Links:
+[[1 Chronicles 29:1]]
+[[Job 17:9]]
+[[Psalms 1:3]]
+[[Psalms 71:18]]
+[[Proverbs 4:18]]
+[[Isaiah 46:4]]
+[[Jeremiah 17:8]]
+[[Ezekiel 47:12]]
+[[Matthew 3:10]]
+[[John 15:2]]
+[[Galatians 5:22]]
+[[Philippians 1:11]]
+[[Jude 1:12]]
+---
+
+"They shall still bring forth fruit in old age; they shall be fat and flourishing;"

@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 14:19]]
+[[Genesis 14:22]]
+[[Exodus 9:29]]
+[[Exodus 19:5]]
+[[1 Kings 8:27]]
+[[2 Chronicles 6:18]]
+[[Nehemiah 9:6]]
+[[Psalms 24:1]]
+[[Psalms 50:12]]
+[[Psalms 115:16]]
+[[Psalms 148:4]]
+[[Isaiah 66:1]]
+[[Jeremiah 27:5]]
+[[1 Corinthians 10:26]]
+[[1 Corinthians 10:28]]
+---
+
+"Behold, the heaven and the heaven of heavens is the LORD'S thy God, the earth also, with all that therein is."

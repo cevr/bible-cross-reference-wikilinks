@@ -1,5 +1,0 @@
-[[2 Samuel 1:15]]
-[[2 Samuel 4:10]]
-[[2 Samuel 14:19]]
-[[2 Samuel 14:20]]
-[[Hebrews 4:13]]

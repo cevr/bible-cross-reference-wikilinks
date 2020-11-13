@@ -1,0 +1,30 @@
+---
+Links:
+[[Numbers 11:11]]
+[[Isaiah 53:11]]
+[[Luke 22:44]]
+[[Romans 8:29]]
+[[Romans 13:14]]
+[[1 Corinthians 4:14]]
+[[Ephesians 4:13]]
+[[Ephesians 4:24]]
+[[Philippians 1:8]]
+[[Philippians 2:5]]
+[[Philippians 2:17]]
+[[Colossians 1:27]]
+[[Colossians 2:1]]
+[[Colossians 3:10]]
+[[Colossians 4:12]]
+[[1 Timothy 1:2]]
+[[Titus 1:4]]
+[[Philemon 1:10]]
+[[Philemon 1:19]]
+[[Hebrews 5:7]]
+[[James 1:18]]
+[[1 John 2:1]]
+[[1 John 2:12]]
+[[1 John 5:21]]
+[[Revelation 12:1]]
+---
+
+"My little children, of whom I travail in birth again until Christ be formed in you,"

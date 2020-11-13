@@ -1,0 +1,29 @@
+---
+Links:
+[[Psalms 78:38]]
+[[Isaiah 1:4]]
+[[Isaiah 28:13]]
+[[Jeremiah 1:16]]
+[[Jeremiah 2:13]]
+[[Jeremiah 2:17]]
+[[Jeremiah 2:19]]
+[[Jeremiah 6:11]]
+[[Jeremiah 6:19]]
+[[Jeremiah 7:24]]
+[[Jeremiah 8:5]]
+[[Jeremiah 13:14]]
+[[Jeremiah 20:9]]
+[[Jeremiah 44:22]]
+[[Ezekiel 12:26]]
+[[Ezekiel 14:9]]
+[[Ezekiel 25:7]]
+[[Hosea 4:16]]
+[[Hosea 11:7]]
+[[Hosea 13:14]]
+[[Amos 7:3]]
+[[Amos 7:8]]
+[[Zephaniah 1:4]]
+[[Zechariah 7:11]]
+---
+
+"Thou hast forsaken me, saith the LORD, thou art gone backward: therefore will I stretch out my hand against thee, and destroy thee; I am weary with repenting."

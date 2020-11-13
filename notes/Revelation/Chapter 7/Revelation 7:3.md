@@ -1,0 +1,30 @@
+---
+Links:
+[[Exodus 9:4]]
+[[Exodus 12:13]]
+[[Exodus 12:23]]
+[[Isaiah 6:13]]
+[[Isaiah 26:20]]
+[[Isaiah 27:8]]
+[[Isaiah 54:17]]
+[[Isaiah 65:8]]
+[[Ezekiel 9:4]]
+[[Daniel 3:17]]
+[[Daniel 3:26]]
+[[Daniel 6:16]]
+[[Zephaniah 2:3]]
+[[Malachi 3:18]]
+[[Matthew 24:22]]
+[[Matthew 24:31]]
+[[John 12:26]]
+[[Romans 6:22]]
+[[Revelation 6:6]]
+[[Revelation 9:4]]
+[[Revelation 13:16]]
+[[Revelation 14:1]]
+[[Revelation 19:2]]
+[[Revelation 20:4]]
+[[Revelation 22:4]]
+---
+
+"Saying, Hurt not the earth, neither the sea, nor the trees, till we have sealed the servants of our God in their foreheads."

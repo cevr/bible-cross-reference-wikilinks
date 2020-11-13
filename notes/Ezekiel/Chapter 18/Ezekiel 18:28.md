@@ -1,0 +1,20 @@
+---
+Links:
+[[Deuteronomy 32:29]]
+[[1 Samuel 7:3]]
+[[Psalms 119:1]]
+[[Psalms 119:6]]
+[[Psalms 119:59]]
+[[Jeremiah 31:18]]
+[[Ezekiel 12:3]]
+[[Ezekiel 18:14]]
+[[Ezekiel 18:21]]
+[[Ezekiel 18:31]]
+[[Ezekiel 33:12]]
+[[Luke 15:17]]
+[[Colossians 3:5]]
+[[Titus 2:14]]
+[[James 2:10]]
+---
+
+"Because he considereth, and turneth away from all his transgressions that he hath committed, he shall surely live, he shall not die."

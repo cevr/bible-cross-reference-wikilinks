@@ -1,8 +1,0 @@
-[[Isaiah 11:11]]
-[[Isaiah 43:5]]
-[[Isaiah 43:18]]
-[[Jeremiah 16:14]]
-[[Jeremiah 23:3]]
-[[Jeremiah 31:31]]
-[[Joel 3:5]]
-[[Micah 7:15]]

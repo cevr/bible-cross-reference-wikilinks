@@ -1,0 +1,18 @@
+---
+Links:
+[[Proverbs 6:9]]
+[[Proverbs 6:11]]
+[[Proverbs 10:4]]
+[[Proverbs 12:11]]
+[[Proverbs 13:4]]
+[[Proverbs 19:15]]
+[[Proverbs 24:30]]
+[[Jonah 1:6]]
+[[Romans 12:11]]
+[[Romans 13:11]]
+[[1 Corinthians 15:34]]
+[[Ephesians 5:14]]
+[[2 Thessalonians 3:10]]
+---
+
+"Love not sleep, lest thou come to poverty; open thine eyes, and thou shalt be satisfied with bread."

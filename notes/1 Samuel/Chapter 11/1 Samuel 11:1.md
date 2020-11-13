@@ -1,0 +1,24 @@
+---
+Links:
+[[Genesis 26:28]]
+[[Exodus 23:32]]
+[[Deuteronomy 23:3]]
+[[Judges 10:7]]
+[[Judges 11:4]]
+[[Judges 11:8]]
+[[Judges 21:8]]
+[[Judges 21:10]]
+[[1 Samuel 12:12]]
+[[1 Samuel 31:11]]
+[[2 Samuel 2:5]]
+[[2 Samuel 10:1]]
+[[2 Samuel 10:2]]
+[[1 Kings 20:34]]
+[[1 Chronicles 10:11]]
+[[1 Chronicles 10:12]]
+[[Job 41:4]]
+[[Isaiah 36:16]]
+[[Ezekiel 17:13]]
+---
+
+"Then Nahash the Ammonite came up, and encamped against Jabesh-gilead: and all the men of Jabesh said unto Nahash, Make a covenant with us, and we will serve thee."

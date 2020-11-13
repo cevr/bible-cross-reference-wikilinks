@@ -1,5 +1,0 @@
-[[1 Samuel 19:6]]
-[[Job 31:31]]
-[[Psalms 37:12]]
-[[Proverbs 27:3]]
-[[Romans 3:15]]

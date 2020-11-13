@@ -1,6 +1,0 @@
-[[Genesis 20:12]]
-[[Exodus 30:33]]
-[[Leviticus 18:9]]
-[[Deuteronomy 27:22]]
-[[2 Samuel 13:12]]
-[[Ezekiel 22:11]]

@@ -1,7 +1,0 @@
-[[1 Samuel 8:5]]
-[[1 Samuel 8:7]]
-[[1 Samuel 8:19]]
-[[1 Samuel 10:1]]
-[[1 Samuel 10:24]]
-[[1 Samuel 11:14]]
-[[Hosea 13:11]]

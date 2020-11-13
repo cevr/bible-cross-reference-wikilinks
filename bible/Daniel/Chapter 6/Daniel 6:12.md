@@ -1,6 +1,0 @@
-[[Esther 1:19]]
-[[Daniel 3:8]]
-[[Daniel 6:8]]
-[[Acts 16:19]]
-[[Acts 16:24]]
-[[Acts 24:2]]

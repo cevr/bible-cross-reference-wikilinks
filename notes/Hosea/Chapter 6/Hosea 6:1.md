@@ -1,0 +1,31 @@
+---
+Links:
+[[Leviticus 14:48]]
+[[Deuteronomy 32:39]]
+[[1 Samuel 2:6]]
+[[2 Chronicles 30:6]]
+[[Job 5:18]]
+[[Job 22:23]]
+[[Job 34:29]]
+[[Psalms 30:7]]
+[[Ecclesiastes 3:3]]
+[[Isaiah 2:3]]
+[[Isaiah 30:22]]
+[[Isaiah 30:26]]
+[[Isaiah 55:7]]
+[[Jeremiah 3:22]]
+[[Jeremiah 30:12]]
+[[Jeremiah 30:17]]
+[[Jeremiah 33:5]]
+[[Jeremiah 50:4]]
+[[Lamentations 3:32]]
+[[Lamentations 3:40]]
+[[Hosea 3:5]]
+[[Hosea 5:12]]
+[[Hosea 13:7]]
+[[Hosea 14:1]]
+[[Hosea 14:4]]
+[[Zephaniah 2:1]]
+---
+
+"Come, and let us return unto the LORD: for he hath torn, and he will heal us; he hath smitten, and he will bind us up."

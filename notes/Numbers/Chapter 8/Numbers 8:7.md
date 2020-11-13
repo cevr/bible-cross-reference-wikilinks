@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 35:2]]
+[[Exodus 19:10]]
+[[Leviticus 8:6]]
+[[Leviticus 14:7]]
+[[Leviticus 14:8]]
+[[Leviticus 14:9]]
+[[Leviticus 15:6]]
+[[Leviticus 15:10]]
+[[Leviticus 15:27]]
+[[Leviticus 16:28]]
+[[Numbers 19:7]]
+[[Numbers 19:9]]
+[[Numbers 19:13]]
+[[Numbers 19:17]]
+[[Numbers 31:20]]
+[[Psalms 51:2]]
+[[Psalms 51:7]]
+[[Isaiah 52:15]]
+[[Jeremiah 4:14]]
+[[Ezekiel 36:25]]
+[[Matthew 23:25]]
+[[Hebrews 9:10]]
+[[Hebrews 9:13]]
+[[James 4:8]]
+[[1 Peter 3:21]]
+[[Revelation 7:14]]
+---
+
+"And thus shalt thou do unto them, to cleanse them: Sprinkle water of purifying upon them, and let them shave all their flesh, and let them wash their clothes, and so make themselves clean."

@@ -1,5 +1,0 @@
-[[Deuteronomy 12:25]]
-[[Deuteronomy 13:18]]
-[[Deuteronomy 19:12]]
-[[Deuteronomy 19:13]]
-[[2 Kings 10:30]]

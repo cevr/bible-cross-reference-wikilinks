@@ -1,7 +1,0 @@
-[[2 Kings 20:21]]
-[[1 Chronicles 3:13]]
-[[2 Chronicles 32:33]]
-[[2 Chronicles 33:1]]
-[[Proverbs 5:19]]
-[[Isaiah 62:4]]
-[[Matthew 1:10]]

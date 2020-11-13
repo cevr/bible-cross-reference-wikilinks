@@ -1,5 +1,0 @@
-[[Jeremiah 24:10]]
-[[Jeremiah 42:22]]
-[[Jeremiah 44:13]]
-[[Jeremiah 44:28]]
-[[Ezekiel 11:8]]

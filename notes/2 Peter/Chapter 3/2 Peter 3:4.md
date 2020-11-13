@@ -1,0 +1,21 @@
+---
+Links:
+[[Genesis 19:14]]
+[[Ecclesiastes 1:9]]
+[[Ecclesiastes 8:11]]
+[[Isaiah 5:18]]
+[[Jeremiah 5:12]]
+[[Jeremiah 17:15]]
+[[Ezekiel 11:3]]
+[[Ezekiel 12:22]]
+[[Malachi 2:17]]
+[[Matthew 24:28]]
+[[Matthew 24:48]]
+[[Mark 10:6]]
+[[Mark 13:19]]
+[[Luke 12:45]]
+[[1 Thessalonians 2:19]]
+[[Revelation 3:14]]
+---
+
+"And saying, Where is the promise of his coming? for since the fathers fell asleep, all things continue as they were from the beginning of the creation."

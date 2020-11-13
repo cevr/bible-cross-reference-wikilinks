@@ -1,5 +1,0 @@
-[[Exodus 12:10]]
-[[Exodus 12:43]]
-[[Exodus 12:46]]
-[[Numbers 9:3]]
-[[John 19:36]]

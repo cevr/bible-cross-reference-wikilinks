@@ -1,5 +1,0 @@
-[[Genesis 18:19]]
-[[Psalms 143:8]]
-[[Proverbs 4:4]]
-[[Proverbs 22:6]]
-[[Ephesians 6:4]]

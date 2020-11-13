@@ -1,5 +1,0 @@
-[[1 Samuel 17:10]]
-[[1 Samuel 17:26]]
-[[2 Kings 18:26]]
-[[Nehemiah 6:9]]
-[[Isaiah 36:13]]

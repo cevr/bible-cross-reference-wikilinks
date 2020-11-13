@@ -1,7 +1,0 @@
-[[Isaiah 40:13]]
-[[Isaiah 50:2]]
-[[Isaiah 59:16]]
-[[Isaiah 63:5]]
-[[Daniel 2:10]]
-[[Daniel 4:7]]
-[[Daniel 5:8]]

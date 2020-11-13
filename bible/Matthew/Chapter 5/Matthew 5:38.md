@@ -1,7 +1,0 @@
-[[Exodus 21:22]]
-[[Exodus 21:24]]
-[[Leviticus 24:19]]
-[[Leviticus 24:20]]
-[[Deuteronomy 19:19]]
-[[Deuteronomy 19:21]]
-[[Matthew 5:27]]

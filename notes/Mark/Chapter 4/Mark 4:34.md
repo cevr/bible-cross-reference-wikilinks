@@ -1,0 +1,13 @@
+---
+Links:
+[[Matthew 13:36]]
+[[Matthew 15:15]]
+[[Mark 4:10]]
+[[Mark 7:17]]
+[[Luke 8:9]]
+[[Luke 24:27]]
+[[Luke 24:44]]
+[[John 16:25]]
+---
+
+"But without a parable spake he not unto them: and when they were alone, he expounded all things to his disciples."

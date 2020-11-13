@@ -1,0 +1,13 @@
+---
+Links:
+[[1 Samuel 10:14]]
+[[1 Samuel 17:55]]
+[[1 Samuel 26:5]]
+[[2 Samuel 2:8]]
+[[2 Samuel 3:6]]
+[[2 Samuel 3:27]]
+[[2 Samuel 3:38]]
+[[1 Chronicles 27:21]]
+---
+
+"And the name of Saul's wife was Ahinoam, the daughter of Ahimaaz: and the name of the captain of his host was Abner, the son of Ner, Saul's uncle."

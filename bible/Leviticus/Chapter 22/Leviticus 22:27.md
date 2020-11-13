@@ -1,5 +1,0 @@
-[[Exodus 22:29]]
-[[Exodus 22:30]]
-[[Leviticus 12:2]]
-[[Leviticus 19:23]]
-[[Leviticus 22:25]]

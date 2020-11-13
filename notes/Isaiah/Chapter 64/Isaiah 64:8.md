@@ -1,0 +1,29 @@
+---
+Links:
+[[Exodus 4:22]]
+[[Exodus 32:12]]
+[[Deuteronomy 9:29]]
+[[Deuteronomy 32:6]]
+[[Job 10:8]]
+[[Psalms 74:1]]
+[[Psalms 95:6]]
+[[Psalms 100:3]]
+[[Psalms 119:73]]
+[[Psalms 138:8]]
+[[Isaiah 29:16]]
+[[Isaiah 43:7]]
+[[Isaiah 43:25]]
+[[Isaiah 44:21]]
+[[Isaiah 44:24]]
+[[Isaiah 45:9]]
+[[Isaiah 57:16]]
+[[Isaiah 63:8]]
+[[Isaiah 63:16]]
+[[Jeremiah 18:2]]
+[[Romans 9:20]]
+[[Galatians 3:26]]
+[[Galatians 3:29]]
+[[Ephesians 2:10]]
+---
+
+"But now, O LORD, thou art our father; we are the clay, and thou our potter; and we all are the work of thy hand."

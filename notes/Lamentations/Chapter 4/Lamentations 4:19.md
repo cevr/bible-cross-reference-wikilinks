@@ -1,0 +1,17 @@
+---
+Links:
+[[Deuteronomy 28:49]]
+[[Isaiah 5:26]]
+[[Isaiah 30:16]]
+[[Jeremiah 4:13]]
+[[Jeremiah 16:16]]
+[[Lamentations 1:13]]
+[[Hosea 8:1]]
+[[Hosea 8:3]]
+[[Amos 2:14]]
+[[Amos 9:1]]
+[[Habakkuk 1:8]]
+[[Matthew 24:27]]
+---
+
+"Our persecutors are swifter than the eagles of the heaven: they pursued us upon the mountains, they laid wait for us in the wilderness."

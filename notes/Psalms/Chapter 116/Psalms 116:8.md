@@ -1,0 +1,15 @@
+---
+Links:
+[[Judges 1:24]]
+[[Psalms 37:24]]
+[[Psalms 49:15]]
+[[Psalms 56:13]]
+[[Psalms 86:13]]
+[[Psalms 94:18]]
+[[Isaiah 25:8]]
+[[Isaiah 38:5]]
+[[Revelation 7:17]]
+[[Revelation 21:4]]
+---
+
+"For thou hast delivered my soul from death, mine eyes from tears, and my feet from falling."

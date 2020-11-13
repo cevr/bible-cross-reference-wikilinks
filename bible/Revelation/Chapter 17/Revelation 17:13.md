@@ -1,6 +1,0 @@
-[[Isaiah 10:5]]
-[[Ezekiel 38:10]]
-[[Acts 4:28]]
-[[Philippians 1:27]]
-[[Philippians 2:2]]
-[[Revelation 17:17]]

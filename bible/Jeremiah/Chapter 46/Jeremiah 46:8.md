@@ -1,5 +1,0 @@
-[[Exodus 15:9]]
-[[Isaiah 10:13]]
-[[Isaiah 37:24]]
-[[Ezekiel 29:3]]
-[[Ezekiel 32:2]]

@@ -1,5 +1,0 @@
-[[Deuteronomy 13:15]]
-[[Judges 21:23]]
-[[2 Chronicles 25:13]]
-[[2 Chronicles 28:6]]
-[[Proverbs 18:19]]

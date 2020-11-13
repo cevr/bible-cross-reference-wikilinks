@@ -1,7 +1,0 @@
-[[Genesis 4:1]]
-[[Genesis 29:18]]
-[[Genesis 29:20]]
-[[Genesis 31:41]]
-[[Genesis 38:16]]
-[[Judges 15:1]]
-[[Matthew 1:18]]

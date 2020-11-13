@@ -1,0 +1,30 @@
+---
+Links:
+[[Psalms 17:1]]
+[[Psalms 18:44]]
+[[Psalms 22:10]]
+[[Psalms 66:3]]
+[[Psalms 77:6]]
+[[Psalms 81:15]]
+[[Psalms 86:16]]
+[[Psalms 116:16]]
+[[Jeremiah 3:10]]
+[[John 1:47]]
+[[Acts 16:1]]
+[[Acts 26:26]]
+[[Romans 4:21]]
+[[Romans 8:38]]
+[[Romans 14:5]]
+[[Romans 14:14]]
+[[Romans 15:14]]
+[[2 Corinthians 6:6]]
+[[1 Timothy 1:5]]
+[[1 Timothy 4:6]]
+[[2 Timothy 1:12]]
+[[2 Timothy 3:15]]
+[[Hebrews 6:9]]
+[[Hebrews 11:13]]
+[[1 Peter 1:22]]
+---
+
+"When I call to remembrance the unfeigned faith that is in thee, which dwelt first in thy grandmother Lois, and thy mother Eunice; and I am persuaded that in thee also."

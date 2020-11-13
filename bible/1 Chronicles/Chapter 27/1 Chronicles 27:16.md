@@ -1,6 +1,0 @@
-[[Genesis 35:22]]
-[[Genesis 35:23]]
-[[Exodus 1:1]]
-[[Numbers 1:5]]
-[[Numbers 1:16]]
-[[1 Chronicles 28:1]]

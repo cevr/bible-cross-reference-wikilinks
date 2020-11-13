@@ -1,0 +1,16 @@
+---
+Links:
+[[Matthew 4:18]]
+[[Matthew 10:2]]
+[[Mark 1:16]]
+[[Mark 3:16]]
+[[Mark 3:18]]
+[[Luke 5:1]]
+[[Luke 6:14]]
+[[John 1:40]]
+[[John 6:8]]
+[[John 12:22]]
+[[Acts 1:13]]
+---
+
+"Now as he walked by the sea of Galilee, he saw Simon and Andrew his brother casting a net into the sea: for they were fishers."

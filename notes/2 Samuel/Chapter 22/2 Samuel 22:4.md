@@ -1,0 +1,25 @@
+---
+Links:
+[[2 Chronicles 20:22]]
+[[Nehemiah 9:5]]
+[[Psalms 18:3]]
+[[Psalms 34:6]]
+[[Psalms 48:1]]
+[[Psalms 50:15]]
+[[Psalms 55:16]]
+[[Psalms 56:9]]
+[[Psalms 57:1]]
+[[Psalms 66:2]]
+[[Psalms 96:4]]
+[[Psalms 106:2]]
+[[Psalms 116:2]]
+[[Psalms 116:4]]
+[[Psalms 116:13]]
+[[Psalms 116:17]]
+[[Psalms 148:1]]
+[[Romans 10:13]]
+[[Revelation 4:11]]
+[[Revelation 5:12]]
+---
+
+"I will call on the LORD, who is worthy to be praised: so shall I be saved from mine enemies."

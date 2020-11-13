@@ -1,6 +1,0 @@
-[[Leviticus 10:10]]
-[[Leviticus 11:1]]
-[[Deuteronomy 14:3]]
-[[Acts 10:11]]
-[[Acts 10:28]]
-[[Ephesians 5:7]]

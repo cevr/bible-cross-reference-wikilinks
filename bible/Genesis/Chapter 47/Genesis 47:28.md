@@ -1,7 +1,0 @@
-[[Genesis 25:7]]
-[[Genesis 37:2]]
-[[Genesis 47:8]]
-[[Genesis 47:9]]
-[[Psalms 90:10]]
-[[Psalms 90:12]]
-[[Psalms 119:84]]

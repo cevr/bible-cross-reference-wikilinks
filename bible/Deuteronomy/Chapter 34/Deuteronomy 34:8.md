@@ -1,6 +1,0 @@
-[[Genesis 50:3]]
-[[Genesis 50:10]]
-[[Numbers 20:29]]
-[[1 Samuel 25:1]]
-[[Isaiah 57:1]]
-[[Acts 8:2]]

@@ -1,0 +1,29 @@
+---
+Links:
+[[Genesis 6:9]]
+[[2 Samuel 20:20]]
+[[Job 1:1]]
+[[Job 1:6]]
+[[Job 1:8]]
+[[Job 1:11]]
+[[Job 1:21]]
+[[Job 9:17]]
+[[Job 9:20]]
+[[Job 13:15]]
+[[Job 27:5]]
+[[Psalms 26:1]]
+[[Psalms 37:37]]
+[[Psalms 41:12]]
+[[Proverbs 11:8]]
+[[Proverbs 13:6]]
+[[Proverbs 14:2]]
+[[Proverbs 15:8]]
+[[Proverbs 16:17]]
+[[John 9:3]]
+[[Philippians 3:12]]
+[[James 1:12]]
+[[1 Peter 1:7]]
+[[1 Peter 5:10]]
+---
+
+"And the LORD said unto Satan, Hast thou considered my servant Job, that there is none like him in the earth, a perfect and an upright man, one that feareth God, and escheweth evil? and still he holdeth fast his integrity, although thou movedst me against him, to destroy him without cause."

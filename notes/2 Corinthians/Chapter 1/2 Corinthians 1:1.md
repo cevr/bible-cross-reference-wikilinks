@@ -1,0 +1,30 @@
+---
+Links:
+[[Acts 16:1]]
+[[Acts 18:1]]
+[[Romans 1:1]]
+[[Romans 15:26]]
+[[Romans 16:5]]
+[[Romans 16:21]]
+[[1 Corinthians 1:1]]
+[[1 Corinthians 6:11]]
+[[1 Corinthians 10:32]]
+[[1 Corinthians 16:10]]
+[[1 Corinthians 16:15]]
+[[2 Corinthians 9:2]]
+[[2 Corinthians 11:10]]
+[[Galatians 1:1]]
+[[Ephesians 1:1]]
+[[Philippians 1:1]]
+[[Philippians 2:19]]
+[[Colossians 1:1]]
+[[1 Thessalonians 1:1]]
+[[1 Thessalonians 1:7]]
+[[2 Thessalonians 1:1]]
+[[1 Timothy 1:1]]
+[[2 Timothy 1:1]]
+[[Titus 1:1]]
+[[Hebrews 13:23]]
+---
+
+"Paul, an apostle of Jesus Christ by the will of God, and Timothy our brother, unto the church of God which is at Corinth, with all the saints which are in all Achaia:"

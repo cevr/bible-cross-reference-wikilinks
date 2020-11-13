@@ -1,8 +1,0 @@
-[[Judges 3:1]]
-[[1 Samuel 7:7]]
-[[1 Samuel 13:5]]
-[[1 Samuel 17:1]]
-[[1 Samuel 27:12]]
-[[1 Samuel 29:1]]
-[[1 Samuel 29:2]]
-[[1 Samuel 31:1]]

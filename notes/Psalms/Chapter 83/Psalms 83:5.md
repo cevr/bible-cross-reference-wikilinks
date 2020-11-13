@@ -1,0 +1,24 @@
+---
+Links:
+[[Joshua 7:9]]
+[[Joshua 10:3]]
+[[2 Samuel 10:6]]
+[[2 Chronicles 20:11]]
+[[Esther 3:6]]
+[[Psalms 2:2]]
+[[Psalms 74:8]]
+[[Psalms 124:3]]
+[[Proverbs 21:30]]
+[[Isaiah 7:2]]
+[[Isaiah 7:5]]
+[[Isaiah 8:9]]
+[[Jeremiah 33:24]]
+[[Ezekiel 25:15]]
+[[Micah 4:11]]
+[[John 11:47]]
+[[Acts 23:12]]
+[[Revelation 17:13]]
+[[Revelation 19:19]]
+---
+
+"For they have consulted together with one consent: they are confederate against thee:"

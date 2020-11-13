@@ -1,0 +1,20 @@
+---
+Links:
+[[Ruth 3:3]]
+[[2 Samuel 14:2]]
+[[2 Samuel 19:24]]
+[[Esther 8:15]]
+[[Psalms 23:5]]
+[[Daniel 10:3]]
+[[Amos 6:6]]
+[[Matthew 6:17]]
+[[Luke 7:46]]
+[[Revelation 3:4]]
+[[Revelation 7:9]]
+[[Revelation 7:13]]
+[[Revelation 16:15]]
+[[Revelation 19:8]]
+[[Revelation 19:14]]
+---
+
+"Let thy garments be always white; and let thy head lack no ointment."

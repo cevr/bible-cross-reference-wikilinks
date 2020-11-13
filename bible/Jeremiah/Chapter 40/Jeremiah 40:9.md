@@ -1,7 +1,0 @@
-[[Genesis 49:15]]
-[[1 Samuel 20:16]]
-[[2 Kings 25:24]]
-[[Psalms 37:3]]
-[[Psalms 128:2]]
-[[Jeremiah 27:11]]
-[[Jeremiah 38:17]]

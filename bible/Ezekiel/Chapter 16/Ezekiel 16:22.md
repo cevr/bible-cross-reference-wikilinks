@@ -1,6 +1,0 @@
-[[Jeremiah 2:2]]
-[[Ezekiel 16:3]]
-[[Ezekiel 16:43]]
-[[Ezekiel 16:60]]
-[[Hosea 2:3]]
-[[Hosea 11:1]]

@@ -1,0 +1,31 @@
+---
+Links:
+[[Proverbs 4:9]]
+[[Proverbs 12:4]]
+[[Proverbs 16:13]]
+[[Proverbs 17:6]]
+[[Isaiah 62:3]]
+[[Matthew 16:27]]
+[[Romans 15:16]]
+[[1 Corinthians 4:5]]
+[[1 Corinthians 15:23]]
+[[2 Corinthians 1:14]]
+[[Philippians 2:16]]
+[[Philippians 4:1]]
+[[1 Thessalonians 2:20]]
+[[1 Thessalonians 3:13]]
+[[1 Thessalonians 4:15]]
+[[1 Thessalonians 5:23]]
+[[2 Thessalonians 1:7]]
+[[1 Timothy 6:14]]
+[[2 Timothy 4:1]]
+[[Titus 2:13]]
+[[1 Peter 5:4]]
+[[1 John 2:28]]
+[[Jude 1:24]]
+[[Revelation 1:7]]
+[[Revelation 4:10]]
+[[Revelation 22:12]]
+---
+
+"For what is our hope, or joy, or crown of rejoicing? Are not even ye in the presence of our Lord Jesus Christ at his coming?"

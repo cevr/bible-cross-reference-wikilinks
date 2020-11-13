@@ -1,5 +1,0 @@
-[[Joshua 12:13]]
-[[Joshua 15:15]]
-[[Joshua 15:49]]
-[[Joshua 21:15]]
-[[Judges 1:11]]

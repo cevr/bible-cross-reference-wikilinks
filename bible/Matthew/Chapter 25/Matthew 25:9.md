@@ -1,8 +1,0 @@
-[[Psalms 49:7]]
-[[Isaiah 55:1]]
-[[Isaiah 55:6]]
-[[Jeremiah 15:1]]
-[[Ezekiel 14:14]]
-[[Ezekiel 14:20]]
-[[Acts 8:22]]
-[[Revelation 3:17]]

@@ -1,0 +1,29 @@
+---
+Links:
+[[Ezekiel 16:62]]
+[[Ezekiel 36:31]]
+[[Zephaniah 3:11]]
+[[Mark 16:16]]
+[[Luke 18:9]]
+[[John 3:36]]
+[[Romans 2:17]]
+[[Romans 2:23]]
+[[Romans 3:19]]
+[[Romans 4:2]]
+[[Romans 7:21]]
+[[Romans 7:23]]
+[[Romans 7:25]]
+[[Romans 8:2]]
+[[Romans 9:11]]
+[[Romans 9:32]]
+[[Romans 10:5]]
+[[Romans 11:6]]
+[[1 Corinthians 1:29]]
+[[1 Corinthians 4:7]]
+[[Galatians 2:16]]
+[[Galatians 3:22]]
+[[Ephesians 2:8]]
+[[1 John 5:11]]
+---
+
+"Where is boasting then? It is excluded. By what law? of works? Nay: but by the law of faith."

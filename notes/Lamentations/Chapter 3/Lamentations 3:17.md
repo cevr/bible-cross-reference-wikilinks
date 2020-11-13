@@ -1,0 +1,17 @@
+---
+Links:
+[[Genesis 41:30]]
+[[Job 7:7]]
+[[Psalms 119:155]]
+[[Isaiah 38:17]]
+[[Isaiah 54:10]]
+[[Isaiah 59:11]]
+[[Jeremiah 8:15]]
+[[Jeremiah 14:19]]
+[[Jeremiah 16:5]]
+[[Jeremiah 20:14]]
+[[Lamentations 1:16]]
+[[Zechariah 8:10]]
+---
+
+"And thou hast removed my soul far off from peace: I forgat prosperity."

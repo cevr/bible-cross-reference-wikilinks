@@ -1,0 +1,22 @@
+---
+Links:
+[[Exodus 6:3]]
+[[Exodus 15:3]]
+[[Job 11:7]]
+[[Psalms 68:4]]
+[[Psalms 90:2]]
+[[Isaiah 42:8]]
+[[Isaiah 44:6]]
+[[Matthew 18:20]]
+[[Matthew 28:20]]
+[[John 8:28]]
+[[John 8:58]]
+[[2 Corinthians 1:20]]
+[[Hebrews 13:8]]
+[[Revelation 1:4]]
+[[Revelation 1:8]]
+[[Revelation 1:17]]
+[[Revelation 4:8]]
+---
+
+"And God said unto Moses, I AM THAT I AM: and he said, Thus shalt thou say unto the children of Israel, I AM hath sent me unto you."

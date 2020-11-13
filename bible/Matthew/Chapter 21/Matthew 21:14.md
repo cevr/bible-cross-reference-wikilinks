@@ -1,6 +1,0 @@
-[[Isaiah 35:5]]
-[[Matthew 4:23]]
-[[Matthew 9:35]]
-[[Matthew 11:4]]
-[[Acts 3:1]]
-[[Acts 10:38]]

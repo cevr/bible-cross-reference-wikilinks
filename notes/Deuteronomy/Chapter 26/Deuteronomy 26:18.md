@@ -1,0 +1,21 @@
+---
+Links:
+[[Exodus 6:7]]
+[[Exodus 19:5]]
+[[Leviticus 20:26]]
+[[Deuteronomy 7:6]]
+[[Deuteronomy 14:2]]
+[[Deuteronomy 27:10]]
+[[Deuteronomy 28:1]]
+[[Deuteronomy 28:9]]
+[[2 Samuel 7:24]]
+[[Psalms 119:6]]
+[[Psalms 135:4]]
+[[Jeremiah 13:11]]
+[[Jeremiah 31:32]]
+[[Ezekiel 36:25]]
+[[Romans 16:26]]
+[[Titus 2:14]]
+---
+
+"And the LORD hath avouched thee this day to be his peculiar people, as he hath promised thee, and that thou shouldest keep all his commandments;"

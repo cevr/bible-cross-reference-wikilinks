@@ -1,0 +1,32 @@
+---
+Links:
+[[Job 34:32]]
+[[Psalms 5:8]]
+[[Psalms 25:4]]
+[[Psalms 25:12]]
+[[Psalms 26:3]]
+[[Psalms 27:11]]
+[[Psalms 119:30]]
+[[Psalms 119:33]]
+[[Psalms 119:73]]
+[[Psalms 143:8]]
+[[Jeremiah 32:38]]
+[[Hosea 10:2]]
+[[Hosea 14:8]]
+[[Zephaniah 1:5]]
+[[Malachi 2:6]]
+[[Matthew 6:22]]
+[[John 6:45]]
+[[John 17:20]]
+[[Acts 2:46]]
+[[1 Corinthians 6:17]]
+[[1 Corinthians 10:21]]
+[[2 Corinthians 11:3]]
+[[Ephesians 4:21]]
+[[Colossians 3:17]]
+[[Colossians 3:22]]
+[[2 John 1:4]]
+[[3 John 1:3]]
+---
+
+"Teach me thy way, O LORD; I will walk in thy truth: unite my heart to fear thy name."

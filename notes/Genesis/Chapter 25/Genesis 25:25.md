@@ -1,0 +1,12 @@
+---
+Links:
+[[Genesis 27:11]]
+[[Genesis 27:16]]
+[[Genesis 27:23]]
+[[Numbers 20:14]]
+[[Deuteronomy 23:8]]
+[[1 Chronicles 1:34]]
+[[Malachi 1:2]]
+---
+
+"And the first came out red, all over like an hairy garment; and they called his name Esau."

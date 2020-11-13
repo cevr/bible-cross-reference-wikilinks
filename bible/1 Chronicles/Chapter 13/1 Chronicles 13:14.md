@@ -1,7 +1,0 @@
-[[Genesis 30:27]]
-[[Genesis 39:5]]
-[[1 Chronicles 26:4]]
-[[1 Chronicles 26:5]]
-[[Proverbs 3:9]]
-[[Proverbs 10:22]]
-[[Malachi 3:10]]

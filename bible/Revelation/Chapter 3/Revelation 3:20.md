@@ -1,6 +1,0 @@
-[[Songs of Solomon 5:2]]
-[[Matthew 24:33]]
-[[Luke 12:36]]
-[[Luke 17:8]]
-[[John 14:21]]
-[[Revelation 19:9]]

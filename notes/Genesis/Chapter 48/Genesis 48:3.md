@@ -1,0 +1,17 @@
+---
+Links:
+[[Genesis 17:1]]
+[[Genesis 17:6]]
+[[Genesis 28:3]]
+[[Genesis 28:12]]
+[[Genesis 28:13]]
+[[Genesis 28:19]]
+[[Genesis 35:6]]
+[[Genesis 35:9]]
+[[Exodus 6:3]]
+[[Judges 1:23]]
+[[Hosea 12:4]]
+[[Revelation 21:11]]
+---
+
+"And Jacob said unto Joseph, God Almighty appeared unto me at Luz in the land of Canaan, and blessed me,"

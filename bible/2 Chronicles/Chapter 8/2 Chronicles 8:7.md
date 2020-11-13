@@ -1,5 +1,0 @@
-[[Genesis 15:18]]
-[[Deuteronomy 7:1]]
-[[1 Kings 9:20]]
-[[2 Chronicles 2:16]]
-[[Ezra 9:1]]

@@ -1,8 +1,0 @@
-[[Exodus 20:26]]
-[[Exodus 25:25]]
-[[Exodus 30:3]]
-[[1 Kings 6:8]]
-[[1 Kings 18:32]]
-[[Nehemiah 9:4]]
-[[Ezekiel 8:16]]
-[[Ezekiel 40:6]]

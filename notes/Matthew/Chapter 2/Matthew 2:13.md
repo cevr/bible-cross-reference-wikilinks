@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 1:22]]
+[[Exodus 2:2]]
+[[Joshua 3:13]]
+[[Joshua 3:17]]
+[[Joshua 4:10]]
+[[Joshua 4:18]]
+[[1 Kings 11:17]]
+[[Job 33:15]]
+[[Job 33:17]]
+[[Daniel 3:25]]
+[[Matthew 1:20]]
+[[Matthew 2:12]]
+[[Matthew 2:16]]
+[[Matthew 2:19]]
+[[Matthew 2:22]]
+[[Matthew 10:23]]
+[[Acts 5:19]]
+[[Acts 7:19]]
+[[Acts 10:7]]
+[[Acts 10:22]]
+[[Acts 12:11]]
+[[Acts 16:36]]
+[[Hebrews 1:13]]
+[[Revelation 12:4]]
+[[Revelation 12:6]]
+[[Revelation 12:14]]
+---
+
+"And when they were departed, behold, the angel of the Lord appeareth to Joseph in a dream, saying, Arise, and take the young child and his mother, and flee into Egypt, and be thou there until I bring thee word: for Herod will seek the young child to destroy him."

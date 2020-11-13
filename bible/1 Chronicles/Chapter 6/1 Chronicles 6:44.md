@@ -1,5 +1,0 @@
-[[1 Chronicles 15:17]]
-[[1 Chronicles 25:1]]
-[[1 Chronicles 25:3]]
-[[1 Chronicles 25:6]]
-[[Psalms 89:1]]

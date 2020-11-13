@@ -1,8 +1,0 @@
-[[Exodus 31:2]]
-[[Exodus 35:30]]
-[[Exodus 36:8]]
-[[2 Chronicles 2:6]]
-[[2 Chronicles 2:14]]
-[[2 Chronicles 4:11]]
-[[2 Chronicles 4:16]]
-[[Isaiah 28:26]]

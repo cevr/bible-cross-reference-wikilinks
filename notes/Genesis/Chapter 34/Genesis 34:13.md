@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 25:27]]
+[[Judges 15:3]]
+[[2 Samuel 13:23]]
+[[Job 13:4]]
+[[Job 13:7]]
+[[Psalms 12:2]]
+[[Proverbs 12:13]]
+[[Proverbs 12:18]]
+[[Proverbs 24:28]]
+[[Proverbs 26:24]]
+[[Isaiah 59:13]]
+[[Micah 7:2]]
+[[Matthew 28:13]]
+[[Romans 12:19]]
+[[1 Thessalonians 5:15]]
+---
+
+"And the sons of Jacob answered Shechem and Hamor his father deceitfully, and said, because he had defiled Dinah their sister:"

@@ -1,0 +1,25 @@
+---
+Links:
+[[Deuteronomy 29:3]]
+[[Deuteronomy 29:4]]
+[[Deuteronomy 32:6]]
+[[Psalms 94:8]]
+[[Proverbs 17:16]]
+[[Isaiah 6:9]]
+[[Isaiah 27:11]]
+[[Isaiah 44:18]]
+[[Jeremiah 4:22]]
+[[Jeremiah 5:4]]
+[[Jeremiah 7:13]]
+[[Jeremiah 8:7]]
+[[Jeremiah 10:8]]
+[[Ezekiel 12:2]]
+[[Hosea 7:11]]
+[[Matthew 13:13]]
+[[Mark 8:18]]
+[[John 12:40]]
+[[Acts 28:26]]
+[[Romans 11:8]]
+---
+
+"Hear now this, O foolish people, and without understanding; which have eyes, and see not; which have ears, and hear not:"

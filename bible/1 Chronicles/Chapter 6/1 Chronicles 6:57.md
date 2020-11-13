@@ -1,8 +1,0 @@
-[[Numbers 35:13]]
-[[Joshua 10:29]]
-[[Joshua 15:42]]
-[[Joshua 15:48]]
-[[Joshua 20:7]]
-[[Joshua 21:13]]
-[[Joshua 21:19]]
-[[1 Chronicles 4:17]]

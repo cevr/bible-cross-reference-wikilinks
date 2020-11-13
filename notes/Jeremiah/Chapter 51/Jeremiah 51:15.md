@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 1:1]]
+[[Job 9:8]]
+[[Psalms 104:2]]
+[[Psalms 104:24]]
+[[Psalms 107:25]]
+[[Psalms 136:5]]
+[[Psalms 146:5]]
+[[Psalms 148:1]]
+[[Proverbs 3:19]]
+[[Isaiah 40:22]]
+[[Isaiah 40:26]]
+[[Isaiah 42:5]]
+[[Isaiah 44:24]]
+[[Isaiah 45:12]]
+[[Isaiah 48:13]]
+[[Isaiah 51:13]]
+[[Jeremiah 10:12]]
+[[Jeremiah 32:17]]
+[[Jeremiah 51:15]]
+[[Acts 14:15]]
+[[Acts 17:24]]
+[[Romans 1:20]]
+[[Romans 11:33]]
+[[Colossians 1:16]]
+[[Hebrews 1:2]]
+[[Revelation 4:11]]
+---
+
+"He hath made the earth by his power, he hath established the world by his wisdom, and hath stretched out the heaven by his understanding."

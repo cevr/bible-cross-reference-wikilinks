@@ -1,0 +1,25 @@
+---
+Links:
+[[2 Samuel 1:7]]
+[[Psalms 22:27]]
+[[Isaiah 2:2]]
+[[Isaiah 11:10]]
+[[Isaiah 40:9]]
+[[Isaiah 41:27]]
+[[Isaiah 43:1]]
+[[Isaiah 45:22]]
+[[Isaiah 55:5]]
+[[Isaiah 63:19]]
+[[Hosea 1:10]]
+[[Zechariah 2:11]]
+[[Zechariah 8:22]]
+[[Luke 13:12]]
+[[John 1:29]]
+[[Romans 9:24]]
+[[Romans 9:30]]
+[[Romans 10:20]]
+[[Ephesians 2:12]]
+[[1 Peter 2:10]]
+---
+
+"I am sought of them that asked not for me; I am found of them that sought me not: I said, Behold me, behold me, unto a nation that was not called by my name."

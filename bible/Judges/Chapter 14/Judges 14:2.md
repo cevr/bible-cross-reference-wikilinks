@@ -1,6 +1,0 @@
-[[Genesis 21:21]]
-[[Genesis 24:2]]
-[[Genesis 34:4]]
-[[Genesis 38:6]]
-[[2 Kings 14:9]]
-[[Jeremiah 29:6]]

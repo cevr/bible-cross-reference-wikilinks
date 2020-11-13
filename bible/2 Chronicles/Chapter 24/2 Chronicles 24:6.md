@@ -1,7 +1,0 @@
-[[Exodus 30:12]]
-[[Exodus 30:16]]
-[[Numbers 1:50]]
-[[Numbers 17:7]]
-[[Numbers 18:2]]
-[[2 Samuel 24:3]]
-[[Acts 7:44]]

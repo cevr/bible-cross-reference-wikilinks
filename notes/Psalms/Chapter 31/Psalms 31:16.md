@@ -1,0 +1,22 @@
+---
+Links:
+[[Numbers 6:25]]
+[[Psalms 3:8]]
+[[Psalms 4:6]]
+[[Psalms 6:4]]
+[[Psalms 30:7]]
+[[Psalms 51:1]]
+[[Psalms 67:1]]
+[[Psalms 80:3]]
+[[Psalms 80:7]]
+[[Psalms 80:19]]
+[[Psalms 106:45]]
+[[Daniel 9:9]]
+[[Daniel 9:17]]
+[[Romans 9:15]]
+[[Romans 9:23]]
+[[Ephesians 1:6]]
+[[Ephesians 2:4]]
+---
+
+"Make thy face to shine upon thy servant: save me for thy mercies' sake."

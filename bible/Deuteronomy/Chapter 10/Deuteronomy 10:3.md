@@ -1,6 +1,0 @@
-[[Exodus 25:5]]
-[[Exodus 25:10]]
-[[Exodus 34:4]]
-[[Exodus 37:1]]
-[[Exodus 38:6]]
-[[Deuteronomy 10:1]]

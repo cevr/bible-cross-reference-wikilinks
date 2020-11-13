@@ -1,0 +1,32 @@
+---
+Links:
+[[Job 1:12]]
+[[Job 2:6]]
+[[Psalms 124:7]]
+[[Isaiah 8:15]]
+[[Isaiah 28:13]]
+[[Isaiah 42:6]]
+[[Isaiah 49:25]]
+[[Isaiah 53:12]]
+[[Matthew 12:28]]
+[[Luke 11:21]]
+[[Luke 15:17]]
+[[Luke 22:31]]
+[[John 13:2]]
+[[John 13:27]]
+[[Acts 5:3]]
+[[Acts 26:18]]
+[[1 Corinthians 15:34]]
+[[2 Corinthians 2:11]]
+[[Ephesians 5:14]]
+[[Colossians 1:13]]
+[[2 Thessalonians 2:9]]
+[[1 Timothy 1:20]]
+[[1 Timothy 3:7]]
+[[1 Timothy 6:9]]
+[[2 Peter 2:18]]
+[[Revelation 12:9]]
+[[Revelation 20:2]]
+---
+
+"And that they may recover themselves out of the snare of the devil, who are taken captive by him at his will."

@@ -1,0 +1,22 @@
+---
+Links:
+[[Leviticus 26:20]]
+[[1 Kings 12:32]]
+[[Isaiah 1:13]]
+[[Isaiah 24:7]]
+[[Jeremiah 7:34]]
+[[Jeremiah 16:9]]
+[[Jeremiah 25:10]]
+[[Ezekiel 26:13]]
+[[Hosea 3:4]]
+[[Hosea 9:1]]
+[[Hosea 9:2]]
+[[Amos 5:21]]
+[[Amos 8:3]]
+[[Amos 8:5]]
+[[Amos 8:9]]
+[[Nahum 1:10]]
+[[Revelation 18:22]]
+---
+
+"I will also cause all her mirth to cease, her feast days, her new moons, and her sabbaths, and all her solemn feasts."

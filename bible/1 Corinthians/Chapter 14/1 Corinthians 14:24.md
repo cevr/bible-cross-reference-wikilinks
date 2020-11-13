@@ -1,5 +1,0 @@
-[[John 1:47]]
-[[John 4:29]]
-[[Acts 2:37]]
-[[1 Corinthians 2:15]]
-[[Hebrews 4:12]]

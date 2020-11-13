@@ -1,0 +1,31 @@
+---
+Links:
+[[Isaiah 56:10]]
+[[Jeremiah 14:15]]
+[[Jeremiah 23:16]]
+[[Jeremiah 23:21]]
+[[Jeremiah 23:32]]
+[[Jeremiah 28:15]]
+[[Jeremiah 29:31]]
+[[Ezekiel 13:2]]
+[[Ezekiel 34:2]]
+[[Zechariah 11:4]]
+[[Zechariah 11:16]]
+[[Matthew 7:15]]
+[[Matthew 23:16]]
+[[John 3:3]]
+[[John 10:8]]
+[[Romans 10:15]]
+[[Romans 16:18]]
+[[2 Corinthians 11:13]]
+[[Ephesians 4:8]]
+[[Titus 1:11]]
+[[Hebrews 5:4]]
+[[1 Peter 1:10]]
+[[2 Peter 2:1]]
+[[2 Peter 2:3]]
+[[2 Peter 2:14]]
+[[1 John 4:1]]
+---
+
+"Verily, verily, I say unto you, He that entereth not by the door into the sheepfold, but climbeth up some other way, the same is a thief and a robber."

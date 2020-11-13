@@ -1,5 +1,0 @@
-[[Numbers 35:12]]
-[[Deuteronomy 21:22]]
-[[Joshua 20:5]]
-[[2 Samuel 14:7]]
-[[Jeremiah 26:15]]

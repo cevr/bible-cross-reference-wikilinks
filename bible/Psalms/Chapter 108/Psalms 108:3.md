@@ -1,7 +1,0 @@
-[[Psalms 22:22]]
-[[Psalms 22:27]]
-[[Psalms 96:10]]
-[[Psalms 117:1]]
-[[Psalms 138:4]]
-[[Zephaniah 3:14]]
-[[Zephaniah 3:20]]

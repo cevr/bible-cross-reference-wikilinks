@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 2:4]]
+[[Numbers 12:1]]
+[[Numbers 12:2]]
+[[Numbers 20:1]]
+[[Numbers 26:59]]
+[[Judges 4:4]]
+[[Judges 11:34]]
+[[Judges 21:21]]
+[[1 Samuel 10:5]]
+[[1 Samuel 18:6]]
+[[2 Samuel 6:5]]
+[[2 Samuel 6:14]]
+[[2 Samuel 6:16]]
+[[2 Kings 22:14]]
+[[Nehemiah 6:14]]
+[[Psalms 30:11]]
+[[Psalms 68:11]]
+[[Psalms 68:25]]
+[[Psalms 68:26]]
+[[Psalms 81:2]]
+[[Psalms 149:3]]
+[[Psalms 150:4]]
+[[Micah 6:4]]
+[[Luke 2:36]]
+[[Acts 21:9]]
+[[1 Corinthians 11:5]]
+[[1 Corinthians 14:34]]
+---
+
+"And Miriam the prophetess, the sister of Aaron, took a timbrel in her hand; and all the women went out after her with timbrels and with dances."

@@ -1,0 +1,13 @@
+---
+Links:
+[[Genesis 7:4]]
+[[Genesis 7:17]]
+[[Exodus 24:18]]
+[[Deuteronomy 9:9]]
+[[Deuteronomy 9:18]]
+[[Deuteronomy 10:10]]
+[[1 Kings 19:8]]
+[[Matthew 4:2]]
+---
+
+"And the rain was upon the earth forty days and forty nights."

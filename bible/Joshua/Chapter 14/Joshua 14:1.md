@@ -1,7 +1,0 @@
-[[Numbers 34:17]]
-[[Deuteronomy 12:10]]
-[[Joshua 13:6]]
-[[Joshua 19:51]]
-[[Joshua 21:1]]
-[[Ezra 7:5]]
-[[Ezekiel 45:1]]

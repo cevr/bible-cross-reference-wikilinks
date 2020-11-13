@@ -1,5 +1,0 @@
-[[Deuteronomy 1:41]]
-[[Ecclesiastes 9:3]]
-[[Matthew 7:21]]
-[[Matthew 26:11]]
-[[Luke 13:25]]

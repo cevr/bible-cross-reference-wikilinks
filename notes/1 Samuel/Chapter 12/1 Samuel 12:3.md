@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 20:17]]
+[[Exodus 22:4]]
+[[Exodus 23:8]]
+[[Leviticus 6:4]]
+[[Leviticus 6:5]]
+[[Numbers 16:15]]
+[[Deuteronomy 16:19]]
+[[1 Samuel 10:1]]
+[[1 Samuel 12:5]]
+[[1 Samuel 24:6]]
+[[1 Samuel 24:7]]
+[[1 Samuel 24:11]]
+[[1 Samuel 26:9]]
+[[1 Samuel 26:11]]
+[[2 Samuel 1:14]]
+[[2 Samuel 22:22]]
+[[Nehemiah 5:11]]
+[[Psalms 15:5]]
+[[Matthew 22:21]]
+[[Luke 19:8]]
+[[Acts 20:33]]
+[[Romans 13:1]]
+[[2 Corinthians 12:14]]
+[[1 Thessalonians 2:5]]
+[[1 Thessalonians 2:10]]
+[[1 Peter 5:2]]
+---
+
+"Behold, here I am: witness against me before the LORD, and before his anointed: whose ox have I taken? or whose ass have I taken? or whom have I defrauded? whom have I oppressed? or of whose hand have I received any bribe to blind mine eyes therewith? and I will restore it you."

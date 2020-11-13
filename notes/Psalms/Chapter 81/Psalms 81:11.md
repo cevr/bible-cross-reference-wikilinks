@@ -1,0 +1,21 @@
+---
+Links:
+[[Exodus 6:6]]
+[[Exodus 16:6]]
+[[Exodus 20:2]]
+[[Exodus 32:1]]
+[[Deuteronomy 5:6]]
+[[Deuteronomy 32:15]]
+[[Deuteronomy 32:18]]
+[[2 Kings 4:3]]
+[[Psalms 106:12]]
+[[Proverbs 1:30]]
+[[Jeremiah 2:11]]
+[[Jeremiah 7:23]]
+[[Jeremiah 16:14]]
+[[Zechariah 7:11]]
+[[Luke 11:25]]
+[[Hebrews 10:29]]
+---
+
+"But my people would not hearken to my voice; and Israel would none of me."

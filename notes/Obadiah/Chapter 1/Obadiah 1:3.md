@@ -1,0 +1,22 @@
+---
+Links:
+[[Genesis 36:8]]
+[[2 Kings 14:7]]
+[[2 Chronicles 25:12]]
+[[Proverbs 16:18]]
+[[Proverbs 18:12]]
+[[Proverbs 29:23]]
+[[Isaiah 10:14]]
+[[Isaiah 14:13]]
+[[Isaiah 14:15]]
+[[Isaiah 16:6]]
+[[Isaiah 47:7]]
+[[Jeremiah 48:29]]
+[[Jeremiah 49:4]]
+[[Jeremiah 49:16]]
+[[Ezekiel 28:16]]
+[[Malachi 1:4]]
+[[Revelation 18:7]]
+---
+
+"The pride of thine heart hath deceived thee, thou that dwellest in the clefts of the rock, whose habitation is high; that saith in his heart, Who shall bring me down to the ground?"

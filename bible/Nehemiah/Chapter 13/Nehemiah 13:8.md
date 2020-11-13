@@ -1,6 +1,0 @@
-[[Ezra 9:3]]
-[[Ezra 10:1]]
-[[Nehemiah 5:6]]
-[[Psalms 69:9]]
-[[Mark 11:15]]
-[[John 2:13]]

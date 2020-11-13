@@ -1,0 +1,31 @@
+---
+Links:
+[[Psalms 26:7]]
+[[Psalms 71:17]]
+[[Psalms 96:10]]
+[[Isaiah 41:1]]
+[[Isaiah 41:22]]
+[[Isaiah 41:26]]
+[[Isaiah 43:3]]
+[[Isaiah 43:9]]
+[[Isaiah 43:11]]
+[[Isaiah 44:7]]
+[[Isaiah 45:5]]
+[[Isaiah 45:14]]
+[[Isaiah 45:18]]
+[[Isaiah 45:25]]
+[[Isaiah 46:9]]
+[[Isaiah 48:3]]
+[[Isaiah 48:14]]
+[[Isaiah 63:1]]
+[[Jeremiah 23:5]]
+[[Jeremiah 50:2]]
+[[Joel 3:9]]
+[[Zephaniah 3:5]]
+[[Zephaniah 3:17]]
+[[Zechariah 9:9]]
+[[Romans 3:25]]
+[[Titus 2:13]]
+---
+
+"Tell ye, and bring them near; yea, let them take counsel together: who hath declared this from ancient time? who hath told it from that time? have not I the LORD? and there is no God else beside me; a just God and a Saviour; there is none beside me."

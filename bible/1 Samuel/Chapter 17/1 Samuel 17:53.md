@@ -1,5 +1,0 @@
-[[1 Samuel 19:5]]
-[[2 Samuel 23:10]]
-[[2 Kings 7:7]]
-[[Jeremiah 4:20]]
-[[Jeremiah 30:16]]

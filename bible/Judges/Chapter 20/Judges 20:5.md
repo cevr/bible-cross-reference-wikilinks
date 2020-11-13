@@ -1,8 +1,0 @@
-[[Genesis 19:4]]
-[[Leviticus 18:24]]
-[[Deuteronomy 22:24]]
-[[Joshua 7:15]]
-[[Judges 19:22]]
-[[Judges 19:25]]
-[[Judges 19:28]]
-[[Ezekiel 22:10]]

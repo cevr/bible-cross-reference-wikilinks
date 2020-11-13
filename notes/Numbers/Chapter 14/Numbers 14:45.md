@@ -1,0 +1,17 @@
+---
+Links:
+[[Exodus 17:16]]
+[[Numbers 13:29]]
+[[Numbers 14:43]]
+[[Numbers 21:3]]
+[[Deuteronomy 1:44]]
+[[Deuteronomy 32:30]]
+[[Joshua 7:5]]
+[[Joshua 7:11]]
+[[Judges 1:17]]
+[[1 Samuel 4:2]]
+[[1 Samuel 27:8]]
+[[Psalms 89:43]]
+---
+
+"Then the Amalekites came down, and the Canaanites which dwelt in that hill, and smote them, and discomfited them, even unto Hormah."

@@ -1,8 +1,0 @@
-[[Joshua 10:10]]
-[[Judges 5:20]]
-[[1 Samuel 7:10]]
-[[2 Kings 7:6]]
-[[2 Chronicles 13:15]]
-[[Psalms 83:9]]
-[[Psalms 83:10]]
-[[Hebrews 11:32]]

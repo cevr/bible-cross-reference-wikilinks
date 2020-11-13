@@ -1,0 +1,21 @@
+---
+Links:
+[[Exodus 12:11]]
+[[Exodus 12:33]]
+[[Exodus 12:39]]
+[[Exodus 13:21]]
+[[Exodus 14:8]]
+[[Exodus 14:19]]
+[[Numbers 10:25]]
+[[Deuteronomy 20:4]]
+[[Joshua 4:11]]
+[[Judges 4:14]]
+[[1 Chronicles 14:15]]
+[[Isaiah 28:16]]
+[[Isaiah 45:2]]
+[[Isaiah 51:14]]
+[[Isaiah 58:8]]
+[[Micah 2:13]]
+---
+
+"For ye shall not go out with haste, nor go by flight: for the LORD will go before you; and the God of Israel will be your rereward."

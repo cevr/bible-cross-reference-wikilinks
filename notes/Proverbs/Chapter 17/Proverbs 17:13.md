@@ -1,0 +1,20 @@
+---
+Links:
+[[1 Samuel 24:17]]
+[[1 Samuel 31:2]]
+[[2 Samuel 12:10]]
+[[2 Samuel 21:1]]
+[[Psalms 35:12]]
+[[Psalms 38:20]]
+[[Psalms 55:12]]
+[[Psalms 109:4]]
+[[Psalms 109:5]]
+[[Jeremiah 18:20]]
+[[Matthew 27:5]]
+[[Matthew 27:25]]
+[[Romans 12:17]]
+[[1 Thessalonians 5:15]]
+[[1 Peter 3:9]]
+---
+
+"Whoso rewardeth evil for good, evil shall not depart from his house."

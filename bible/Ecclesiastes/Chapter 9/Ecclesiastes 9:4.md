@@ -1,5 +1,0 @@
-[[Job 14:7]]
-[[Job 27:8]]
-[[Isaiah 38:18]]
-[[Lamentations 3:21]]
-[[Luke 16:26]]

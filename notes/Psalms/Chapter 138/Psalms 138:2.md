@@ -1,0 +1,32 @@
+---
+Links:
+[[1 Kings 8:15]]
+[[1 Kings 8:20]]
+[[1 Kings 8:24]]
+[[1 Kings 8:29]]
+[[Psalms 5:7]]
+[[Psalms 5:8]]
+[[Psalms 28:2]]
+[[Psalms 36:5]]
+[[Psalms 56:4]]
+[[Psalms 56:10]]
+[[Psalms 85:10]]
+[[Psalms 86:15]]
+[[Psalms 89:1]]
+[[Psalms 99:5]]
+[[Psalms 99:9]]
+[[Psalms 100:4]]
+[[Psalms 115:1]]
+[[Isaiah 42:21]]
+[[Isaiah 63:7]]
+[[Daniel 6:10]]
+[[Micah 7:18]]
+[[Matthew 5:18]]
+[[Matthew 24:35]]
+[[Luke 1:68]]
+[[John 1:17]]
+[[John 10:35]]
+[[Romans 15:8]]
+---
+
+"I will worship toward thy holy temple, and praise thy name for thy lovingkindness and for thy truth: for thou hast magnified thy word above all thy name."

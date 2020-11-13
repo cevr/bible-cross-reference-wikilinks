@@ -1,6 +1,0 @@
-[[Genesis 7:2]]
-[[Leviticus 10:10]]
-[[Ezekiel 44:23]]
-[[Malachi 3:18]]
-[[Romans 14:2]]
-[[Romans 14:13]]

@@ -1,5 +1,0 @@
-[[Joshua 15:8]]
-[[Isaiah 30:33]]
-[[Jeremiah 7:32]]
-[[Jeremiah 19:2]]
-[[Jeremiah 19:11]]

@@ -1,5 +1,0 @@
-[[Ephesians 5:24]]
-[[Ephesians 6:5]]
-[[Colossians 3:22]]
-[[1 Timothy 6:1]]
-[[1 Peter 2:18]]

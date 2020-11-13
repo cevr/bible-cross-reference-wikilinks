@@ -1,0 +1,18 @@
+---
+Links:
+[[Leviticus 4:6]]
+[[Leviticus 4:7]]
+[[Leviticus 4:17]]
+[[Leviticus 4:18]]
+[[Leviticus 4:25]]
+[[Leviticus 4:30]]
+[[Leviticus 8:15]]
+[[Leviticus 9:12]]
+[[Leviticus 9:18]]
+[[Leviticus 16:18]]
+[[Hebrews 2:10]]
+[[Hebrews 9:22]]
+[[Hebrews 10:4]]
+---
+
+"And the sons of Aaron brought the blood unto him: and he dipped his finger in the blood, and put it upon the horns of the altar, and poured out the blood at the bottom of the altar:"

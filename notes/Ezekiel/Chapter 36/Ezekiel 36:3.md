@@ -1,0 +1,32 @@
+---
+Links:
+[[Leviticus 26:43]]
+[[Deuteronomy 28:37]]
+[[1 Kings 9:7]]
+[[Job 30:1]]
+[[Psalms 35:15]]
+[[Psalms 35:25]]
+[[Psalms 44:13]]
+[[Psalms 61:1]]
+[[Psalms 69:12]]
+[[Psalms 79:4]]
+[[Psalms 79:10]]
+[[Proverbs 1:12]]
+[[Jeremiah 18:16]]
+[[Jeremiah 24:9]]
+[[Jeremiah 33:24]]
+[[Jeremiah 39:1]]
+[[Jeremiah 41:1]]
+[[Jeremiah 51:34]]
+[[Jeremiah 52:1]]
+[[Lamentations 2:2]]
+[[Lamentations 2:5]]
+[[Lamentations 2:15]]
+[[Lamentations 3:62]]
+[[Ezekiel 13:10]]
+[[Daniel 9:16]]
+[[Matthew 27:39]]
+[[1 Corinthians 4:13]]
+---
+
+"Therefore prophesy and say, Thus saith the Lord GOD; Because they have made you desolate, and swallowed you up on every side, that ye might be a possession unto the residue of the heathen, and ye are taken up in the lips of talkers, and are an infamy of the people:"

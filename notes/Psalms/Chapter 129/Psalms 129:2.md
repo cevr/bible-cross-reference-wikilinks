@@ -1,0 +1,16 @@
+---
+Links:
+[[Exodus 1:11]]
+[[Job 5:19]]
+[[Psalms 34:19]]
+[[Psalms 42:1]]
+[[Psalms 118:13]]
+[[Psalms 125:1]]
+[[Matthew 16:18]]
+[[John 16:33]]
+[[Romans 8:35]]
+[[2 Corinthians 4:8]]
+[[Revelation 12:8]]
+---
+
+"Many a time have they afflicted me from my youth: yet they have not prevailed against me."

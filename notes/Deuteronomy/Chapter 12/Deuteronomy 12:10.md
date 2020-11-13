@@ -1,0 +1,30 @@
+---
+Links:
+[[Leviticus 25:18]]
+[[Leviticus 25:19]]
+[[Deuteronomy 3:27]]
+[[Deuteronomy 4:22]]
+[[Deuteronomy 9:1]]
+[[Deuteronomy 11:31]]
+[[Deuteronomy 33:12]]
+[[Deuteronomy 33:28]]
+[[Joshua 3:17]]
+[[Joshua 4:12]]
+[[Joshua 11:23]]
+[[Joshua 14:1]]
+[[1 Samuel 7:12]]
+[[1 Kings 4:25]]
+[[1 Chronicles 22:18]]
+[[Psalms 4:8]]
+[[Proverbs 1:33]]
+[[Jeremiah 23:6]]
+[[Jeremiah 32:37]]
+[[Jeremiah 33:11]]
+[[Ezekiel 28:26]]
+[[Ezekiel 34:25]]
+[[Ezekiel 34:28]]
+[[Ezekiel 38:8]]
+[[Ezekiel 38:11]]
+---
+
+"But when ye go over Jordan, and dwell in the land which the LORD your God giveth you to inherit, and when he giveth you rest from all your enemies round about, so that ye dwell in safety;"

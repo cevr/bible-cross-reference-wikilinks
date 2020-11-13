@@ -1,6 +1,0 @@
-[[1 Kings 10:27]]
-[[1 Chronicles 27:28]]
-[[Psalms 78:47]]
-[[Isaiah 9:10]]
-[[Amos 7:14]]
-[[Luke 5:19]]

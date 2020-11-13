@@ -1,0 +1,23 @@
+---
+Links:
+[[2 Kings 5:8]]
+[[Ezekiel 2:7]]
+[[Ezekiel 3:10]]
+[[Ezekiel 3:11]]
+[[Ezekiel 3:19]]
+[[Ezekiel 3:26]]
+[[Ezekiel 3:27]]
+[[Ezekiel 17:12]]
+[[Ezekiel 24:3]]
+[[Ezekiel 33:9]]
+[[Ezekiel 33:33]]
+[[Ezekiel 44:6]]
+[[Matthew 10:12]]
+[[Luke 10:10]]
+[[John 15:22]]
+[[Acts 13:46]]
+[[Romans 3:3]]
+[[2 Corinthians 2:15]]
+---
+
+"And they, whether they will hear, or whether they will forbear, (for they are a rebellious house,) yet shall know that there hath been a prophet among them."

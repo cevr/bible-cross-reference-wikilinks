@@ -1,8 +1,0 @@
-[[Job 23:12]]
-[[Psalms 132:3]]
-[[Proverbs 22:29]]
-[[Ecclesiastes 9:10]]
-[[John 4:14]]
-[[John 4:31]]
-[[Ephesians 6:5]]
-[[1 Timothy 6:2]]

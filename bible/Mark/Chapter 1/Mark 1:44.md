@@ -1,8 +1,0 @@
-[[Leviticus 14:1]]
-[[Matthew 8:4]]
-[[Matthew 23:2]]
-[[Luke 5:14]]
-[[Luke 17:14]]
-[[Acts 23:22]]
-[[Romans 15:4]]
-[[1 Corinthians 10:11]]

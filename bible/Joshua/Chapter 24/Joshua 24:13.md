@@ -1,7 +1,0 @@
-[[Deuteronomy 6:10]]
-[[Deuteronomy 6:11]]
-[[Deuteronomy 8:7]]
-[[Deuteronomy 19:1]]
-[[Joshua 11:13]]
-[[Joshua 21:45]]
-[[Proverbs 13:22]]

@@ -1,6 +1,0 @@
-[[Exodus 12:37]]
-[[Exodus 38:26]]
-[[Numbers 1:46]]
-[[Numbers 2:9]]
-[[Numbers 11:21]]
-[[Numbers 26:51]]

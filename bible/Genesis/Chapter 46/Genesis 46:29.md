@@ -1,8 +1,0 @@
-[[Genesis 33:4]]
-[[Genesis 41:43]]
-[[Genesis 45:14]]
-[[Genesis 45:19]]
-[[Genesis 45:21]]
-[[Genesis 50:9]]
-[[Luke 15:20]]
-[[Acts 20:37]]

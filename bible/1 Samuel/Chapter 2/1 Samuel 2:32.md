@@ -1,6 +1,0 @@
-[[1 Samuel 4:4]]
-[[1 Samuel 4:11]]
-[[1 Samuel 4:22]]
-[[1 Kings 2:26]]
-[[Psalms 78:59]]
-[[Zechariah 8:4]]

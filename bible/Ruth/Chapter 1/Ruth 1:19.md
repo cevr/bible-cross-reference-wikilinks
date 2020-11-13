@@ -1,5 +1,0 @@
-[[Ruth 2:6]]
-[[1 Chronicles 2:51]]
-[[Isaiah 23:7]]
-[[Lamentations 2:15]]
-[[Matthew 21:10]]

@@ -1,0 +1,30 @@
+---
+Links:
+[[Psalms 126:2]]
+[[Isaiah 25:8]]
+[[Isaiah 35:10]]
+[[Isaiah 44:23]]
+[[Isaiah 48:20]]
+[[Isaiah 49:13]]
+[[Isaiah 60:19]]
+[[Isaiah 61:7]]
+[[Isaiah 65:19]]
+[[Jeremiah 30:18]]
+[[Jeremiah 30:19]]
+[[Jeremiah 31:11]]
+[[Jeremiah 33:11]]
+[[Acts 2:41]]
+[[2 Corinthians 4:17]]
+[[2 Thessalonians 2:16]]
+[[Jude 1:24]]
+[[Revelation 5:9]]
+[[Revelation 7:9]]
+[[Revelation 7:17]]
+[[Revelation 14:1]]
+[[Revelation 19:1]]
+[[Revelation 21:1]]
+[[Revelation 21:4]]
+[[Revelation 22:3]]
+---
+
+"Therefore the redeemed of the LORD shall return, and come with singing unto Zion; and everlasting joy shall be upon their head: they shall obtain gladness and joy; and sorrow and mourning shall flee away."

@@ -1,0 +1,25 @@
+---
+Links:
+[[Luke 1:3]]
+[[John 8:32]]
+[[Galatians 2:5]]
+[[Galatians 2:14]]
+[[Galatians 3:1]]
+[[Galatians 5:7]]
+[[Ephesians 1:4]]
+[[Colossians 1:5]]
+[[1 Thessalonians 1:3]]
+[[2 Thessalonians 2:13]]
+[[1 Timothy 2:4]]
+[[Hebrews 10:26]]
+[[1 Peter 1:2]]
+[[1 Peter 1:22]]
+[[1 Peter 5:1]]
+[[1 John 2:21]]
+[[1 John 3:18]]
+[[2 John 1:2]]
+[[2 John 1:5]]
+[[2 John 1:13]]
+---
+
+"The elder unto the elect lady and her children, whom I love in the truth; and not I only, but also all they that have known the truth;"

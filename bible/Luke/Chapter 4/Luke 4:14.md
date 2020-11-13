@@ -1,8 +1,0 @@
-[[Matthew 4:12]]
-[[Matthew 4:23]]
-[[Matthew 9:26]]
-[[Mark 1:14]]
-[[Mark 1:28]]
-[[Luke 4:37]]
-[[John 4:43]]
-[[Acts 10:37]]

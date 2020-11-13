@@ -1,0 +1,21 @@
+---
+Links:
+[[2 Samuel 7:20]]
+[[1 Kings 8:39]]
+[[2 Kings 19:27]]
+[[1 Chronicles 17:18]]
+[[1 Chronicles 28:9]]
+[[Psalms 11:4]]
+[[Psalms 17:3]]
+[[Psalms 44:21]]
+[[Psalms 139:23]]
+[[Jeremiah 12:3]]
+[[Jeremiah 17:9]]
+[[Jeremiah 17:10]]
+[[John 21:17]]
+[[Hebrews 4:13]]
+[[Revelation 2:18]]
+[[Revelation 2:23]]
+---
+
+"O LORD, thou hast searched me, and known me."

@@ -1,5 +1,0 @@
-[[Joshua 19:40]]
-[[Judges 1:34]]
-[[Judges 17:6]]
-[[Judges 19:1]]
-[[Judges 21:25]]

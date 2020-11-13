@@ -1,7 +1,0 @@
-[[Exodus 40:34]]
-[[Exodus 40:35]]
-[[Isaiah 60:1]]
-[[Ezekiel 3:12]]
-[[Ezekiel 10:18]]
-[[Ezekiel 43:2]]
-[[Ezekiel 44:2]]

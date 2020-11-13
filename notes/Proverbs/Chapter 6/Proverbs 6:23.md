@@ -1,0 +1,22 @@
+---
+Links:
+[[Leviticus 19:17]]
+[[Psalms 19:8]]
+[[Psalms 119:98]]
+[[Psalms 119:105]]
+[[Psalms 141:5]]
+[[Proverbs 3:18]]
+[[Proverbs 4:4]]
+[[Proverbs 4:13]]
+[[Proverbs 5:12]]
+[[Proverbs 15:24]]
+[[Proverbs 15:31]]
+[[Proverbs 29:15]]
+[[Isaiah 8:20]]
+[[Jeremiah 21:8]]
+[[Ezekiel 20:11]]
+[[2 Peter 1:19]]
+[[Revelation 2:5]]
+---
+
+"For the commandment is a lamp; and the law is light; and reproofs of instruction are the way of life:"

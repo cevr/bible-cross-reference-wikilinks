@@ -1,6 +1,0 @@
-[[Genesis 39:19]]
-[[2 Samuel 16:1]]
-[[2 Samuel 19:24]]
-[[Proverbs 18:13]]
-[[Acts 24:5]]
-[[Acts 24:12]]

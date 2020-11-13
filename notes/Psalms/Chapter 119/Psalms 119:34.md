@@ -1,0 +1,32 @@
+---
+Links:
+[[Deuteronomy 4:6]]
+[[1 Chronicles 22:12]]
+[[Job 28:28]]
+[[Psalms 39:2]]
+[[Psalms 111:10]]
+[[Psalms 119:2]]
+[[Psalms 119:10]]
+[[Psalms 119:58]]
+[[Psalms 119:66]]
+[[Psalms 119:69]]
+[[Psalms 119:73]]
+[[Psalms 119:100]]
+[[Psalms 119:104]]
+[[Psalms 119:125]]
+[[Psalms 119:130]]
+[[Psalms 119:144]]
+[[Psalms 119:169]]
+[[Proverbs 2:5]]
+[[Proverbs 2:6]]
+[[Matthew 5:19]]
+[[Matthew 7:24]]
+[[John 7:17]]
+[[James 1:5]]
+[[James 1:25]]
+[[James 2:8]]
+[[James 3:13]]
+[[James 4:11]]
+---
+
+"Give me understanding, and I shall keep thy law; yea, I shall observe it with my whole heart."

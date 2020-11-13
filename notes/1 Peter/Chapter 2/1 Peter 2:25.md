@@ -1,0 +1,25 @@
+---
+Links:
+[[Psalms 23:1]]
+[[Psalms 80:1]]
+[[Psalms 119:176]]
+[[Songs of Solomon 1:7]]
+[[Isaiah 40:11]]
+[[Isaiah 53:6]]
+[[Jeremiah 23:2]]
+[[Ezekiel 34:6]]
+[[Ezekiel 34:11]]
+[[Ezekiel 34:23]]
+[[Ezekiel 37:24]]
+[[Zechariah 13:7]]
+[[Matthew 9:36]]
+[[Matthew 18:12]]
+[[Luke 15:4]]
+[[John 10:11]]
+[[Acts 20:28]]
+[[Hebrews 3:1]]
+[[Hebrews 13:20]]
+[[1 Peter 5:4]]
+---
+
+"For ye were as sheep going astray; but are now returned unto the Shepherd and Bishop of your souls."

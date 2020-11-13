@@ -1,5 +1,0 @@
-[[Esther 1:6]]
-[[Esther 6:12]]
-[[Job 9:24]]
-[[Isaiah 22:17]]
-[[Isaiah 49:23]]

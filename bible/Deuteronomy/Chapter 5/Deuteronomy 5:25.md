@@ -1,7 +1,0 @@
-[[Deuteronomy 18:16]]
-[[Deuteronomy 18:17]]
-[[Deuteronomy 33:2]]
-[[2 Corinthians 3:7]]
-[[Galatians 3:10]]
-[[Galatians 3:21]]
-[[Hebrews 12:29]]

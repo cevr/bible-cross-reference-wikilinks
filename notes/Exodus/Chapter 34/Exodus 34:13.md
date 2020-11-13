@@ -1,0 +1,19 @@
+---
+Links:
+[[Exodus 23:24]]
+[[Numbers 33:52]]
+[[Deuteronomy 7:5]]
+[[Deuteronomy 7:25]]
+[[Deuteronomy 12:2]]
+[[Deuteronomy 16:21]]
+[[Deuteronomy 16:22]]
+[[Judges 2:2]]
+[[Judges 6:25]]
+[[2 Kings 10:27]]
+[[2 Kings 18:4]]
+[[2 Kings 23:14]]
+[[2 Chronicles 31:1]]
+[[2 Chronicles 34:3]]
+---
+
+"But ye shall destroy their altars, break their images, and cut down their groves:"

@@ -1,0 +1,26 @@
+---
+Links:
+[[Leviticus 13:16]]
+[[Judges 6:30]]
+[[2 Samuel 21:2]]
+[[2 Kings 10:16]]
+[[Matthew 5:20]]
+[[Matthew 23:25]]
+[[Mark 10:20]]
+[[Luke 1:6]]
+[[Acts 8:3]]
+[[Acts 9:1]]
+[[Acts 21:20]]
+[[Acts 22:3]]
+[[Acts 26:5]]
+[[Acts 26:9]]
+[[Romans 7:9]]
+[[Romans 9:31]]
+[[Romans 10:2]]
+[[1 Corinthians 15:9]]
+[[Galatians 1:13]]
+[[Philippians 3:9]]
+[[1 Timothy 1:13]]
+---
+
+"Concerning zeal, persecuting the church; touching the righteousness which is in the law, blameless."

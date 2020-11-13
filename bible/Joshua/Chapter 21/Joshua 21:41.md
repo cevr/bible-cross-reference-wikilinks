@@ -1,6 +1,0 @@
-[[Genesis 49:7]]
-[[Numbers 35:1]]
-[[Numbers 35:7]]
-[[Deuteronomy 33:10]]
-[[Joshua 21:3]]
-[[1 Chronicles 6:64]]

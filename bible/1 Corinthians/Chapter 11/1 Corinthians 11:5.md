@@ -1,5 +1,0 @@
-[[Deuteronomy 21:12]]
-[[Luke 2:36]]
-[[Acts 2:17]]
-[[Acts 21:9]]
-[[1 Corinthians 14:34]]

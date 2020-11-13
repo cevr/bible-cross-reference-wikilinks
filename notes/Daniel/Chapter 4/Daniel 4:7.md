@@ -1,0 +1,16 @@
+---
+Links:
+[[Genesis 41:8]]
+[[Genesis 41:24]]
+[[Psalms 37:35]]
+[[Isaiah 44:25]]
+[[Jeremiah 27:9]]
+[[Ezekiel 31:3]]
+[[Daniel 2:1]]
+[[Daniel 2:7]]
+[[Daniel 2:10]]
+[[Daniel 2:27]]
+[[2 Timothy 3:8]]
+---
+
+"Then came in the magicians, the astrologers, the Chaldeans, and the soothsayers: and I told the dream before them; but they did not make known unto me the interpretation thereof."

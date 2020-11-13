@@ -1,0 +1,31 @@
+---
+Links:
+[[Leviticus 10:3]]
+[[Numbers 16:26]]
+[[Numbers 17:12]]
+[[Deuteronomy 13:11]]
+[[Deuteronomy 21:21]]
+[[Joshua 22:20]]
+[[1 Samuel 6:19]]
+[[2 Kings 1:10]]
+[[2 Kings 2:24]]
+[[1 Chronicles 13:12]]
+[[1 Chronicles 15:13]]
+[[Psalms 64:9]]
+[[Psalms 119:120]]
+[[Jeremiah 5:14]]
+[[Ezekiel 11:13]]
+[[Acts 2:43]]
+[[Acts 5:10]]
+[[Acts 5:13]]
+[[Acts 13:11]]
+[[1 Corinthians 4:21]]
+[[2 Corinthians 7:11]]
+[[2 Corinthians 10:2]]
+[[2 Corinthians 13:2]]
+[[2 Corinthians 13:10]]
+[[Revelation 11:5]]
+[[Revelation 11:13]]
+---
+
+"And Ananias hearing these words fell down, and gave up the ghost: and great fear came on all them that heard these things."

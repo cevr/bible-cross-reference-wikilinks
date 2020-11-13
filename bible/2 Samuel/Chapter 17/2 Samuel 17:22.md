@@ -1,5 +1,0 @@
-[[Numbers 31:49]]
-[[2 Samuel 17:24]]
-[[Proverbs 27:12]]
-[[Matthew 10:16]]
-[[John 18:9]]

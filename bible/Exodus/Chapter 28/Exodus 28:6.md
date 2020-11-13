@@ -1,5 +1,0 @@
-[[Exodus 26:1]]
-[[Exodus 39:2]]
-[[1 Samuel 23:6]]
-[[1 Samuel 30:7]]
-[[Hosea 3:4]]

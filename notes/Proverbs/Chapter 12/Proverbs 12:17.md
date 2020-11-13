@@ -1,0 +1,17 @@
+---
+Links:
+[[1 Samuel 22:14]]
+[[Proverbs 6:19]]
+[[Proverbs 14:5]]
+[[Proverbs 14:25]]
+[[Proverbs 19:5]]
+[[Proverbs 19:28]]
+[[Proverbs 21:28]]
+[[Proverbs 24:28]]
+[[Matthew 15:19]]
+[[Matthew 26:59]]
+[[Acts 6:13]]
+[[1 Peter 3:16]]
+---
+
+"He that speaketh truth sheweth forth righteousness: but a false witness deceit."

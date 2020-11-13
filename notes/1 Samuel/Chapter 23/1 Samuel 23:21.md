@@ -1,0 +1,12 @@
+---
+Links:
+[[Genesis 20:13]]
+[[Judges 17:2]]
+[[1 Samuel 15:13]]
+[[1 Samuel 22:8]]
+[[Psalms 10:3]]
+[[Isaiah 66:5]]
+[[Micah 3:11]]
+---
+
+"And Saul said, Blessed be ye of the LORD; for ye have compassion on me."

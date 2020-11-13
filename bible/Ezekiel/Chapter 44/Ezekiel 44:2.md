@@ -1,6 +1,0 @@
-[[Exodus 24:10]]
-[[Isaiah 6:1]]
-[[Ezekiel 43:1]]
-[[Ezekiel 43:2]]
-[[Ezekiel 43:4]]
-[[Ezekiel 46:1]]

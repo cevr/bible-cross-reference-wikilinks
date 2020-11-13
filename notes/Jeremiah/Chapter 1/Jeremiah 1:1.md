@@ -1,0 +1,19 @@
+---
+Links:
+[[Joshua 21:17]]
+[[Joshua 21:18]]
+[[1 Chronicles 6:60]]
+[[2 Chronicles 36:21]]
+[[Ezra 2:23]]
+[[Isaiah 1:1]]
+[[Isaiah 2:1]]
+[[Jeremiah 11:21]]
+[[Jeremiah 30:1]]
+[[Jeremiah 32:7]]
+[[Jeremiah 37:12]]
+[[Ezekiel 1:3]]
+[[Amos 1:1]]
+[[Amos 7:10]]
+---
+
+"The words of Jeremiah the son of Hilkiah, of the priests that were in Anathoth in the land of Benjamin:"

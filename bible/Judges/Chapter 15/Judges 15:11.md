@@ -1,7 +1,0 @@
-[[Deuteronomy 28:13]]
-[[Deuteronomy 28:47]]
-[[Judges 13:1]]
-[[Judges 14:4]]
-[[1 Chronicles 4:3]]
-[[Psalms 106:40]]
-[[Psalms 106:41]]

@@ -1,0 +1,17 @@
+---
+Links:
+[[Exodus 26:15]]
+[[Exodus 36:20]]
+[[Exodus 40:2]]
+[[Leviticus 26:11]]
+[[Isaiah 33:24]]
+[[Ezekiel 37:27]]
+[[Matthew 16:18]]
+[[John 1:14]]
+[[Galatians 4:4]]
+[[1 Timothy 3:15]]
+[[1 Peter 1:5]]
+[[Revelation 21:3]]
+---
+
+"And Moses reared up the tabernacle, and fastened his sockets, and set up the boards thereof, and put in the bars thereof, and reared up his pillars."

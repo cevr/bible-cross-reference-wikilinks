@@ -1,0 +1,23 @@
+---
+Links:
+[[Songs of Solomon 1:11]]
+[[Isaiah 25:8]]
+[[Isaiah 26:19]]
+[[Hosea 13:14]]
+[[Matthew 17:2]]
+[[Matthew 22:29]]
+[[Matthew 28:18]]
+[[John 5:25]]
+[[John 11:24]]
+[[Romans 8:29]]
+[[1 Corinthians 15:25]]
+[[1 Corinthians 15:42]]
+[[Ephesians 1:19]]
+[[Colossians 3:4]]
+[[1 John 3:2]]
+[[Revelation 1:8]]
+[[Revelation 1:13]]
+[[Revelation 20:11]]
+---
+
+"Who shall change our vile body, that it may be fashioned like unto his glorious body, according to the working whereby he is able even to subdue all things unto himself."

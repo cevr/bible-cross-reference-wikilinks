@@ -1,0 +1,32 @@
+---
+Links:
+[[Deuteronomy 32:41]]
+[[Job 3:8]]
+[[Job 12:1]]
+[[Job 26:13]]
+[[Job 40:19]]
+[[Psalms 45:3]]
+[[Psalms 74:13]]
+[[Psalms 104:26]]
+[[Isaiah 26:21]]
+[[Isaiah 34:5]]
+[[Isaiah 51:9]]
+[[Isaiah 65:25]]
+[[Isaiah 66:16]]
+[[Jeremiah 47:6]]
+[[Jeremiah 51:13]]
+[[Jeremiah 51:34]]
+[[Ezekiel 29:3]]
+[[Ezekiel 32:2]]
+[[Revelation 2:16]]
+[[Revelation 12:3]]
+[[Revelation 13:4]]
+[[Revelation 13:11]]
+[[Revelation 16:13]]
+[[Revelation 17:1]]
+[[Revelation 17:15]]
+[[Revelation 19:21]]
+[[Revelation 20:2]]
+---
+
+"In that day the LORD with his sore and great and strong sword shall punish leviathan the piercing serpent, even leviathan that crooked serpent; and he shall slay the dragon that is in the sea."

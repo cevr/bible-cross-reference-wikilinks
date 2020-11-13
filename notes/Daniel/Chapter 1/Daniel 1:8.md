@@ -1,0 +1,24 @@
+---
+Links:
+[[Leviticus 11:45]]
+[[Deuteronomy 32:38]]
+[[Ruth 1:17]]
+[[1 Kings 5:5]]
+[[Psalms 106:28]]
+[[Psalms 119:106]]
+[[Psalms 119:115]]
+[[Psalms 141:4]]
+[[Ezekiel 4:13]]
+[[Daniel 1:5]]
+[[Hosea 9:3]]
+[[Acts 10:14]]
+[[Acts 11:23]]
+[[Romans 14:15]]
+[[1 Corinthians 7:37]]
+[[1 Corinthians 8:7]]
+[[1 Corinthians 10:18]]
+[[1 Corinthians 10:28]]
+[[2 Corinthians 9:7]]
+---
+
+"But Daniel purposed in his heart that he would not defile himself with the portion of the king's meat, nor with the wine which he drank: therefore he requested of the prince of the eunuchs that he might not defile himself."

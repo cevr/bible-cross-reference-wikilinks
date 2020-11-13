@@ -1,0 +1,29 @@
+---
+Links:
+[[Exodus 1:10]]
+[[Exodus 1:14]]
+[[Exodus 5:14]]
+[[Exodus 14:9]]
+[[Exodus 14:21]]
+[[Exodus 15:6]]
+[[2 Kings 19:6]]
+[[Psalms 87:5]]
+[[Isaiah 4:3]]
+[[Isaiah 8:12]]
+[[Isaiah 9:4]]
+[[Isaiah 10:5]]
+[[Isaiah 12:6]]
+[[Isaiah 14:29]]
+[[Isaiah 27:7]]
+[[Isaiah 30:19]]
+[[Isaiah 33:14]]
+[[Isaiah 35:4]]
+[[Isaiah 37:6]]
+[[Isaiah 37:22]]
+[[Isaiah 37:33]]
+[[Isaiah 46:13]]
+[[Isaiah 61:3]]
+[[Hebrews 12:22]]
+---
+
+"Therefore thus saith the Lord GOD of hosts, O my people that dwellest in Zion, be not afraid of the Assyrian: he shall smite thee with a rod, and shall lift up his staff against thee, after the manner of Egypt."

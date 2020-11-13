@@ -1,0 +1,23 @@
+---
+Links:
+[[Deuteronomy 15:7]]
+[[Nehemiah 5:1]]
+[[Nehemiah 5:13]]
+[[Psalms 18:41]]
+[[Psalms 58:4]]
+[[Proverbs 1:28]]
+[[Proverbs 28:27]]
+[[Isaiah 1:15]]
+[[Isaiah 58:6]]
+[[Jeremiah 34:16]]
+[[Zechariah 7:9]]
+[[Matthew 6:14]]
+[[Matthew 7:2]]
+[[Matthew 18:30]]
+[[Matthew 25:41]]
+[[Luke 13:25]]
+[[Acts 7:57]]
+[[James 2:13]]
+---
+
+"Whoso stoppeth his ears at the cry of the poor, he also shall cry himself, but shall not be heard."

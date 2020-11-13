@@ -1,8 +1,0 @@
-[[Exodus 19:16]]
-[[Exodus 19:19]]
-[[Deuteronomy 9:19]]
-[[Psalms 119:120]]
-[[Isaiah 6:3]]
-[[Daniel 10:8]]
-[[Daniel 10:17]]
-[[Revelation 1:17]]

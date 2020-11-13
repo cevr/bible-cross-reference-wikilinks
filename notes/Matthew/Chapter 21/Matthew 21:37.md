@@ -1,0 +1,16 @@
+---
+Links:
+[[Isaiah 5:4]]
+[[Jeremiah 36:3]]
+[[Zephaniah 3:7]]
+[[Matthew 3:17]]
+[[Mark 12:6]]
+[[Luke 20:13]]
+[[John 1:18]]
+[[John 1:34]]
+[[John 3:16]]
+[[John 3:35]]
+[[Hebrews 1:1]]
+---
+
+"But last of all he sent unto them his son, saying, They will reverence my son."

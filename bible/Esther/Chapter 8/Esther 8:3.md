@@ -1,7 +1,0 @@
-[[1 Samuel 25:24]]
-[[2 Kings 4:27]]
-[[Esther 3:8]]
-[[Esther 7:4]]
-[[Isaiah 38:2]]
-[[Hosea 12:4]]
-[[Hebrews 5:7]]

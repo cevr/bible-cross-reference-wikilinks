@@ -1,0 +1,17 @@
+---
+Links:
+[[Judges 9:8]]
+[[Judges 14:12]]
+[[2 Samuel 12:1]]
+[[Ezekiel 20:49]]
+[[Ezekiel 21:5]]
+[[Ezekiel 24:3]]
+[[Hosea 12:10]]
+[[Hosea 12:11]]
+[[Matthew 13:13]]
+[[Matthew 13:35]]
+[[Mark 4:33]]
+[[1 Corinthians 13:12]]
+---
+
+"Son of man, put forth a riddle, and speak a parable unto the house of Israel;"

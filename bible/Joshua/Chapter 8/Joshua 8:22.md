@@ -1,7 +1,0 @@
-[[Deuteronomy 7:2]]
-[[Joshua 6:21]]
-[[Joshua 10:28]]
-[[Joshua 11:11]]
-[[Job 20:5]]
-[[Luke 17:26]]
-[[1 Thessalonians 5:3]]

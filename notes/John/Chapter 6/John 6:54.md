@@ -1,0 +1,16 @@
+---
+Links:
+[[Psalms 22:26]]
+[[Proverbs 9:4]]
+[[Isaiah 25:6]]
+[[Isaiah 55:1]]
+[[John 4:14]]
+[[John 6:27]]
+[[John 6:39]]
+[[John 6:47]]
+[[John 6:63]]
+[[Galatians 2:20]]
+[[Philippians 3:7]]
+---
+
+"Whoso eateth my flesh, and drinketh my blood, hath eternal life; and I will raise him up at the last day."

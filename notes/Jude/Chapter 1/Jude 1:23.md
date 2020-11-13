@@ -1,0 +1,24 @@
+---
+Links:
+[[Leviticus 13:47]]
+[[Leviticus 13:48]]
+[[Leviticus 14:47]]
+[[Leviticus 15:17]]
+[[Proverbs 7:8]]
+[[Isaiah 64:6]]
+[[Lamentations 4:14]]
+[[Amos 4:11]]
+[[Zechariah 3:2]]
+[[Romans 11:14]]
+[[1 Corinthians 3:15]]
+[[1 Corinthians 5:3]]
+[[1 Corinthians 5:9]]
+[[1 Corinthians 15:33]]
+[[2 Corinthians 7:10]]
+[[2 Thessalonians 3:14]]
+[[1 Timothy 4:16]]
+[[Revelation 3:4]]
+[[Revelation 3:18]]
+---
+
+"And others save with fear, pulling them out of the fire; hating even the garment spotted by the flesh."

@@ -1,0 +1,22 @@
+---
+Links:
+[[Psalms 119:9]]
+[[Isaiah 1:25]]
+[[Isaiah 52:11]]
+[[Jeremiah 15:19]]
+[[Malachi 3:3]]
+[[Acts 9:15]]
+[[1 Corinthians 5:7]]
+[[2 Corinthians 7:1]]
+[[Ephesians 2:10]]
+[[2 Timothy 2:20]]
+[[2 Timothy 3:17]]
+[[Titus 3:1]]
+[[Titus 3:8]]
+[[Titus 3:14]]
+[[1 Peter 1:7]]
+[[1 Peter 1:22]]
+[[1 John 3:3]]
+---
+
+"If a man therefore purge himself from these, he shall be a vessel unto honour, sanctified, and meet for the master's use, and prepared unto every good work."

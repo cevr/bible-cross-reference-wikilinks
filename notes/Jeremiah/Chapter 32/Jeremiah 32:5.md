@@ -1,0 +1,20 @@
+---
+Links:
+[[Numbers 14:41]]
+[[2 Chronicles 13:12]]
+[[2 Chronicles 24:20]]
+[[Proverbs 21:30]]
+[[Jeremiah 2:37]]
+[[Jeremiah 21:4]]
+[[Jeremiah 27:22]]
+[[Jeremiah 33:5]]
+[[Jeremiah 34:4]]
+[[Jeremiah 37:10]]
+[[Jeremiah 39:4]]
+[[Jeremiah 39:7]]
+[[Ezekiel 12:13]]
+[[Ezekiel 17:9]]
+[[Ezekiel 17:15]]
+---
+
+"And he shall lead Zedekiah to Babylon, and there shall he be until I visit him, saith the LORD: though ye fight with the Chaldeans, ye shall not prosper."

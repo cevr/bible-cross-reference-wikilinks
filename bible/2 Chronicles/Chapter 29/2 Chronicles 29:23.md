@@ -1,6 +1,0 @@
-[[Leviticus 1:4]]
-[[Leviticus 4:4]]
-[[Leviticus 4:15]]
-[[Leviticus 4:24]]
-[[Leviticus 4:29]]
-[[Leviticus 4:33]]

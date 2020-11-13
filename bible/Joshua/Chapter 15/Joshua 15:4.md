@@ -1,6 +1,0 @@
-[[Genesis 15:18]]
-[[Exodus 23:31]]
-[[Numbers 34:5]]
-[[Joshua 13:3]]
-[[1 Kings 8:65]]
-[[Isaiah 27:12]]

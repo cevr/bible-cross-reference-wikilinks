@@ -1,7 +1,0 @@
-[[Judges 20:7]]
-[[Proverbs 11:14]]
-[[Proverbs 13:10]]
-[[Proverbs 15:22]]
-[[Proverbs 20:18]]
-[[Proverbs 24:6]]
-[[Hosea 9:9]]

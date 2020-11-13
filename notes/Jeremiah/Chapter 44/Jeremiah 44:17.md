@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 16:3]]
+[[Numbers 30:2]]
+[[Numbers 30:12]]
+[[Deuteronomy 23:23]]
+[[Judges 11:36]]
+[[2 Kings 17:16]]
+[[2 Kings 22:17]]
+[[Nehemiah 9:34]]
+[[Psalms 12:4]]
+[[Psalms 106:6]]
+[[Isaiah 48:5]]
+[[Jeremiah 7:17]]
+[[Jeremiah 7:18]]
+[[Jeremiah 19:13]]
+[[Jeremiah 32:29]]
+[[Jeremiah 44:9]]
+[[Jeremiah 44:21]]
+[[Jeremiah 44:25]]
+[[Ezekiel 20:8]]
+[[Ezekiel 20:32]]
+[[Daniel 9:5]]
+[[Hosea 2:5]]
+[[Hosea 2:7]]
+[[Mark 6:26]]
+[[Philippians 3:19]]
+[[1 Peter 1:18]]
+---
+
+"But we will certainly do whatsoever thing goeth forth out of our own mouth, to burn incense unto the queen of heaven, and to pour out drink offerings unto her, as we have done, we, and our fathers, our kings, and our princes, in the cities of Judah, and in the streets of Jerusalem: for then had we plenty of victuals, and were well, and saw no evil."

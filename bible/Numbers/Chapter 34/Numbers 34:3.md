@@ -1,8 +1,0 @@
-[[Genesis 14:3]]
-[[Exodus 23:31]]
-[[Numbers 13:21]]
-[[Joshua 3:16]]
-[[Joshua 15:1]]
-[[Ezekiel 47:8]]
-[[Ezekiel 47:13]]
-[[Ezekiel 47:18]]

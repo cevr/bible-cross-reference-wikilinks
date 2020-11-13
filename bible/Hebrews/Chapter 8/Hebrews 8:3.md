@@ -1,7 +1,0 @@
-[[John 6:51]]
-[[Ephesians 5:2]]
-[[Titus 2:14]]
-[[Hebrews 5:1]]
-[[Hebrews 7:27]]
-[[Hebrews 9:14]]
-[[Hebrews 10:9]]

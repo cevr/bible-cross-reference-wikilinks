@@ -1,0 +1,19 @@
+---
+Links:
+[[Genesis 40:2]]
+[[2 Kings 6:31]]
+[[Esther 7:7]]
+[[Proverbs 17:11]]
+[[Proverbs 19:12]]
+[[Proverbs 20:2]]
+[[Proverbs 29:26]]
+[[Ecclesiastes 10:4]]
+[[Daniel 2:16]]
+[[Daniel 3:13]]
+[[Mark 6:27]]
+[[Luke 12:4]]
+[[Acts 12:20]]
+[[2 Corinthians 5:20]]
+---
+
+"The wrath of a king is as messengers of death: but a wise man will pacify it."

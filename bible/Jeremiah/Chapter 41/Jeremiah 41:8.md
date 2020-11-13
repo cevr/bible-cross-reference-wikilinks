@@ -1,8 +1,0 @@
-[[Job 2:4]]
-[[Psalms 49:6]]
-[[Proverbs 13:8]]
-[[Isaiah 45:3]]
-[[Matthew 6:25]]
-[[Matthew 16:26]]
-[[Mark 8:36]]
-[[Philippians 3:7]]

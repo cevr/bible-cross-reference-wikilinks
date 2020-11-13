@@ -1,5 +1,0 @@
-[[Leviticus 18:21]]
-[[Leviticus 20:2]]
-[[1 Kings 11:33]]
-[[2 Kings 23:12]]
-[[Ezekiel 20:16]]

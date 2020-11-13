@@ -1,0 +1,18 @@
+---
+Links:
+[[Judges 1:13]]
+[[Judges 2:16]]
+[[Judges 2:18]]
+[[Judges 3:15]]
+[[Judges 4:3]]
+[[Judges 6:7]]
+[[Judges 10:10]]
+[[1 Samuel 12:10]]
+[[Nehemiah 9:27]]
+[[Psalms 22:5]]
+[[Psalms 78:34]]
+[[Psalms 106:41]]
+[[Psalms 107:13]]
+---
+
+"And when the children of Israel cried unto the LORD, the LORD raised up a deliverer to the children of Israel, who delivered them, even Othniel the son of Kenaz, Caleb's younger brother."

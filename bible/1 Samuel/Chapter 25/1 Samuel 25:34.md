@@ -1,5 +1,0 @@
-[[Joshua 10:6]]
-[[Joshua 10:9]]
-[[1 Samuel 11:11]]
-[[1 Samuel 25:18]]
-[[1 Samuel 25:26]]

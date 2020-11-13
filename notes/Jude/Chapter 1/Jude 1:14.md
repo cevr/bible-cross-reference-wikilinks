@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 5:18]]
+[[Genesis 5:21]]
+[[Deuteronomy 33:2]]
+[[1 Chronicles 1:1]]
+[[Job 19:25]]
+[[Psalms 50:3]]
+[[Daniel 7:9]]
+[[Zechariah 14:5]]
+[[Matthew 16:27]]
+[[Matthew 24:30]]
+[[Matthew 25:31]]
+[[1 Thessalonians 3:13]]
+[[2 Thessalonians 1:7]]
+[[Hebrews 11:5]]
+[[Revelation 1:7]]
+---
+
+"And Enoch also, the seventh from Adam, prophesied of these, saying, Behold, the Lord cometh with ten thousands of his saints,"

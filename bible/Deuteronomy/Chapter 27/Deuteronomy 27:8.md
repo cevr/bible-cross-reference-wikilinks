@@ -1,5 +1,0 @@
-[[Joshua 8:31]]
-[[Job 19:24]]
-[[Habakkuk 2:2]]
-[[John 16:25]]
-[[2 Corinthians 3:12]]

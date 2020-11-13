@@ -1,0 +1,10 @@
+---
+Links:
+[[Job 1:10]]
+[[Job 2:5]]
+[[Luke 22:31]]
+[[2 Corinthians 2:11]]
+[[1 Peter 5:8]]
+---
+
+"And all the devils besought him, saying, Send us into the swine, that we may enter into them."

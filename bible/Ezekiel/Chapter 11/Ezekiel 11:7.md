@@ -1,7 +1,0 @@
-[[2 Kings 25:18]]
-[[Jeremiah 1:13]]
-[[Jeremiah 52:24]]
-[[Ezekiel 3:9]]
-[[Ezekiel 24:3]]
-[[Ezekiel 24:6]]
-[[Micah 3:2]]

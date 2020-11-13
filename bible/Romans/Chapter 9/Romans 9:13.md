@@ -1,8 +1,0 @@
-[[Genesis 29:31]]
-[[Genesis 29:33]]
-[[Deuteronomy 21:15]]
-[[Proverbs 13:24]]
-[[Malachi 1:2]]
-[[Matthew 10:37]]
-[[Luke 14:26]]
-[[John 12:25]]

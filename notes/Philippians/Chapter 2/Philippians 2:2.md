@@ -1,0 +1,33 @@
+---
+Links:
+[[Psalms 122:8]]
+[[John 3:29]]
+[[Acts 1:14]]
+[[Acts 2:1]]
+[[Acts 2:46]]
+[[Acts 5:12]]
+[[Romans 12:16]]
+[[Romans 15:5]]
+[[1 Corinthians 1:10]]
+[[2 Corinthians 2:3]]
+[[2 Corinthians 7:7]]
+[[2 Corinthians 13:11]]
+[[Philippians 1:4]]
+[[Philippians 1:26]]
+[[Philippians 2:16]]
+[[Philippians 2:20]]
+[[Philippians 3:15]]
+[[Philippians 4:2]]
+[[Colossians 2:5]]
+[[1 Thessalonians 2:19]]
+[[1 Thessalonians 3:6]]
+[[2 Thessalonians 2:13]]
+[[2 Timothy 1:4]]
+[[Philemon 1:20]]
+[[1 Peter 3:8]]
+[[1 John 1:3]]
+[[2 John 1:4]]
+[[3 John 1:4]]
+---
+
+"Fulfil ye my joy, that ye be likeminded, having the same love, being of one accord, of one mind."

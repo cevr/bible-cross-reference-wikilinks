@@ -1,6 +1,0 @@
-[[Job 23:12]]
-[[Jeremiah 15:16]]
-[[Ezekiel 2:8]]
-[[Ezekiel 3:1]]
-[[Ezekiel 3:14]]
-[[Colossians 3:6]]

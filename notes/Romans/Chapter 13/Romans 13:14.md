@@ -1,0 +1,15 @@
+---
+Links:
+[[Job 29:14]]
+[[Romans 8:12]]
+[[Galatians 3:27]]
+[[Galatians 5:16]]
+[[Galatians 5:24]]
+[[Ephesians 4:24]]
+[[Colossians 3:5]]
+[[Colossians 3:10]]
+[[1 Peter 2:11]]
+[[1 John 2:15]]
+---
+
+"But put ye on the Lord Jesus Christ, and make not provision for the flesh, to fulfil the lusts thereof."

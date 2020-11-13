@@ -1,8 +1,0 @@
-[[Psalms 141:5]]
-[[Proverbs 9:8]]
-[[Proverbs 13:1]]
-[[Proverbs 15:5]]
-[[Proverbs 19:25]]
-[[Proverbs 27:22]]
-[[Proverbs 29:19]]
-[[Revelation 3:19]]

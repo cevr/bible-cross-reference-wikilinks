@@ -1,7 +1,0 @@
-[[Psalms 116:12]]
-[[Mark 5:7]]
-[[Mark 5:17]]
-[[Luke 8:38]]
-[[Luke 17:15]]
-[[Luke 23:42]]
-[[Philippians 1:23]]

@@ -1,0 +1,17 @@
+---
+Links:
+[[Judges 5:12]]
+[[2 Chronicles 20:28]]
+[[Psalms 16:9]]
+[[Psalms 27:6]]
+[[Psalms 30:12]]
+[[Psalms 43:4]]
+[[Psalms 108:1]]
+[[Psalms 108:2]]
+[[Psalms 150:3]]
+[[Isaiah 52:1]]
+[[Isaiah 52:9]]
+[[Acts 2:26]]
+---
+
+"Awake up, my glory; awake, psaltery and harp: I myself will awake early."

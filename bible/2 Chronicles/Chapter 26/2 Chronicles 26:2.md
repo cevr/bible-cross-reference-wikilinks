@@ -1,5 +1,0 @@
-[[2 Kings 14:22]]
-[[2 Kings 16:6]]
-[[2 Chronicles 8:17]]
-[[2 Chronicles 25:23]]
-[[2 Chronicles 25:28]]

@@ -1,0 +1,24 @@
+---
+Links:
+[[Exodus 20:4]]
+[[Exodus 25:20]]
+[[Leviticus 26:1]]
+[[Deuteronomy 5:8]]
+[[Deuteronomy 27:15]]
+[[1 Samuel 5:3]]
+[[2 Chronicles 3:13]]
+[[Isaiah 37:18]]
+[[Isaiah 41:29]]
+[[Isaiah 42:7]]
+[[Isaiah 42:17]]
+[[Isaiah 44:9]]
+[[Isaiah 45:16]]
+[[Jeremiah 2:26]]
+[[Jeremiah 10:14]]
+[[Hebrews 1:6]]
+[[1 Peter 1:12]]
+[[Revelation 5:11]]
+[[Revelation 14:8]]
+---
+
+"Confounded be all they that serve graven images, that boast themselves of idols: worship him, all ye gods."

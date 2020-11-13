@@ -1,0 +1,25 @@
+---
+Links:
+[[1 Samuel 2:3]]
+[[Job 5:21]]
+[[Psalms 12:3]]
+[[Psalms 31:18]]
+[[Psalms 52:1]]
+[[Psalms 57:4]]
+[[Proverbs 12:6]]
+[[Proverbs 13:3]]
+[[Proverbs 18:6]]
+[[Proverbs 18:7]]
+[[Proverbs 21:24]]
+[[Proverbs 22:8]]
+[[Proverbs 28:25]]
+[[Daniel 7:20]]
+[[Romans 10:9]]
+[[James 3:5]]
+[[2 Peter 2:18]]
+[[Revelation 3:10]]
+[[Revelation 12:11]]
+[[Revelation 15:5]]
+---
+
+"In the mouth of the foolish is a rod of pride: but the lips of the wise shall preserve them."

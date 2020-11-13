@@ -1,5 +1,0 @@
-[[Joshua 24:7]]
-[[Psalms 18:11]]
-[[Proverbs 4:18]]
-[[Isaiah 8:14]]
-[[2 Corinthians 2:15]]

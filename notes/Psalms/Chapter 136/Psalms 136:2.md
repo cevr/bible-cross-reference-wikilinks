@@ -1,0 +1,13 @@
+---
+Links:
+[[Exodus 18:11]]
+[[Deuteronomy 10:17]]
+[[Joshua 22:22]]
+[[2 Chronicles 2:5]]
+[[Psalms 82:1]]
+[[Psalms 97:7]]
+[[Psalms 97:9]]
+[[Daniel 2:47]]
+---
+
+"O give thanks unto the God of gods: for his mercy endureth for ever."

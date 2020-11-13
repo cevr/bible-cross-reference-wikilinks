@@ -1,0 +1,21 @@
+---
+Links:
+[[Genesis 2:14]]
+[[Genesis 15:18]]
+[[Genesis 31:23]]
+[[Genesis 37:25]]
+[[Genesis 46:28]]
+[[Numbers 24:1]]
+[[Numbers 32:1]]
+[[Deuteronomy 3:12]]
+[[Joshua 13:8]]
+[[Joshua 24:2]]
+[[Judges 10:18]]
+[[2 Samuel 24:6]]
+[[1 Kings 17:1]]
+[[2 Kings 12:17]]
+[[Jeremiah 50:5]]
+[[Luke 9:51]]
+---
+
+"So he fled with all that he had; and he rose up, and passed over the river, and set his face toward the mount Gilead."

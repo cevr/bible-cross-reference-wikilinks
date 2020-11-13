@@ -1,0 +1,17 @@
+---
+Links:
+[[Job 36:16]]
+[[Psalms 42:8]]
+[[Psalms 77:4]]
+[[Psalms 104:33]]
+[[Psalms 119:55]]
+[[Psalms 119:147]]
+[[Psalms 139:17]]
+[[Psalms 149:5]]
+[[Songs of Solomon 3:1]]
+[[Songs of Solomon 5:2]]
+[[Jeremiah 31:14]]
+[[Lamentations 2:19]]
+---
+
+"When I remember thee upon my bed, and meditate on thee in the night watches."

@@ -1,0 +1,23 @@
+---
+Links:
+[[Leviticus 4:7]]
+[[John 16:2]]
+[[2 Corinthians 5:8]]
+[[Philippians 1:23]]
+[[Philippians 2:17]]
+[[2 Timothy 1:8]]
+[[2 Timothy 4:6]]
+[[Revelation 1:2]]
+[[Revelation 1:9]]
+[[Revelation 2:13]]
+[[Revelation 8:3]]
+[[Revelation 9:13]]
+[[Revelation 11:3]]
+[[Revelation 12:11]]
+[[Revelation 14:18]]
+[[Revelation 16:7]]
+[[Revelation 19:10]]
+[[Revelation 20:4]]
+---
+
+"And when he had opened the fifth seal, I saw under the altar the souls of them that were slain for the word of God, and for the testimony which they held:"

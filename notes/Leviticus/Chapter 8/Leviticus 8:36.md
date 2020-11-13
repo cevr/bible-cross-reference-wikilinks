@@ -1,0 +1,11 @@
+---
+Links:
+[[Exodus 39:43]]
+[[Exodus 40:16]]
+[[Leviticus 8:9]]
+[[Deuteronomy 4:2]]
+[[Deuteronomy 12:32]]
+[[1 Samuel 15:22]]
+---
+
+"So Aaron and his sons did all things which the LORD commanded by the hand of Moses."

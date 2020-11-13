@@ -1,6 +1,0 @@
-[[Exodus 29:1]]
-[[Exodus 29:38]]
-[[Leviticus 1:1]]
-[[Leviticus 6:9]]
-[[Leviticus 6:20]]
-[[Leviticus 7:11]]

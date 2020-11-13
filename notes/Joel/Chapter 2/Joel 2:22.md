@@ -1,0 +1,32 @@
+---
+Links:
+[[Genesis 4:12]]
+[[Leviticus 26:4]]
+[[Leviticus 26:5]]
+[[Psalms 36:6]]
+[[Psalms 65:12]]
+[[Psalms 65:13]]
+[[Psalms 67:6]]
+[[Psalms 104:11]]
+[[Psalms 104:27]]
+[[Psalms 107:35]]
+[[Psalms 145:15]]
+[[Psalms 147:8]]
+[[Isaiah 30:23]]
+[[Isaiah 51:3]]
+[[Ezekiel 34:26]]
+[[Ezekiel 36:8]]
+[[Ezekiel 36:30]]
+[[Ezekiel 36:35]]
+[[Hosea 14:5]]
+[[Joel 1:18]]
+[[Amos 9:14]]
+[[Jonah 4:11]]
+[[Haggai 2:16]]
+[[Zechariah 8:12]]
+[[Malachi 3:10]]
+[[Malachi 3:11]]
+[[1 Corinthians 3:7]]
+---
+
+"Be not afraid, ye beasts of the field: for the pastures of the wilderness do spring, for the tree beareth her fruit, the fig tree and the vine do yield their strength."

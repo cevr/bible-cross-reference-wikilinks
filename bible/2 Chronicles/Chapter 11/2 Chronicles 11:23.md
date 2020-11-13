@@ -1,5 +1,0 @@
-[[Genesis 25:6]]
-[[1 Kings 1:5]]
-[[2 Chronicles 10:8]]
-[[2 Chronicles 21:3]]
-[[Luke 16:8]]

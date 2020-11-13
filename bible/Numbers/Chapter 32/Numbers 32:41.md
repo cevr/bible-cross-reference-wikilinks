@@ -1,6 +1,0 @@
-[[Deuteronomy 3:14]]
-[[Joshua 13:30]]
-[[Judges 10:4]]
-[[1 Kings 4:13]]
-[[1 Chronicles 2:21]]
-[[1 Chronicles 2:22]]

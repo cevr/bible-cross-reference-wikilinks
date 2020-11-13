@@ -1,8 +1,0 @@
-[[1 Samuel 20:41]]
-[[Luke 5:4]]
-[[Luke 8:22]]
-[[Acts 16:10]]
-[[Acts 20:37]]
-[[Acts 27:2]]
-[[Acts 27:4]]
-[[1 Thessalonians 2:17]]

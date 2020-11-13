@@ -1,5 +1,0 @@
-[[Exodus 8:8]]
-[[Exodus 8:12]]
-[[Exodus 9:29]]
-[[Exodus 10:18]]
-[[James 5:17]]

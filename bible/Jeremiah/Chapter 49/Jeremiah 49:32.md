@@ -1,8 +1,0 @@
-[[Deuteronomy 28:64]]
-[[Jeremiah 9:25]]
-[[Jeremiah 9:26]]
-[[Jeremiah 25:23]]
-[[Jeremiah 49:36]]
-[[Ezekiel 5:10]]
-[[Ezekiel 5:12]]
-[[Ezekiel 12:14]]

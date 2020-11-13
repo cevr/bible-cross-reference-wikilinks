@@ -1,6 +1,0 @@
-[[Leviticus 9:1]]
-[[Leviticus 12:6]]
-[[Leviticus 12:8]]
-[[Leviticus 15:14]]
-[[Numbers 6:10]]
-[[Matthew 21:12]]

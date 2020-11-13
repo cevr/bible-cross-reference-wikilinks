@@ -1,0 +1,17 @@
+---
+Links:
+[[Exodus 13:21]]
+[[Exodus 40:38]]
+[[Numbers 9:18]]
+[[Deuteronomy 1:33]]
+[[Nehemiah 9:12]]
+[[Nehemiah 9:19]]
+[[Psalms 78:14]]
+[[Psalms 105:39]]
+[[Isaiah 4:5]]
+[[1 Corinthians 10:1]]
+[[2 Corinthians 5:19]]
+[[Revelation 21:3]]
+---
+
+"So it was alway: the cloud covered it by day, and the appearance of fire by night."

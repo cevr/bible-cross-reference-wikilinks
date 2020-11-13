@@ -1,0 +1,27 @@
+---
+Links:
+[[Genesis 18:19]]
+[[Exodus 20:24]]
+[[Deuteronomy 6:7]]
+[[Joshua 24:15]]
+[[1 Samuel 18:14]]
+[[1 Samuel 22:14]]
+[[2 Samuel 8:15]]
+[[1 Kings 9:4]]
+[[1 Kings 11:4]]
+[[2 Chronicles 15:17]]
+[[2 Chronicles 30:12]]
+[[2 Chronicles 31:20]]
+[[Psalms 26:11]]
+[[Psalms 40:17]]
+[[Psalms 75:1]]
+[[Psalms 101:6]]
+[[Psalms 119:106]]
+[[Psalms 119:115]]
+[[Psalms 143:7]]
+[[Isaiah 38:3]]
+[[Jeremiah 23:5]]
+[[1 Timothy 3:4]]
+---
+
+"I will behave myself wisely in a perfect way. O when wilt thou come unto me? I will walk within my house with a perfect heart."

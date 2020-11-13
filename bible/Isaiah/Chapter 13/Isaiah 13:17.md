@@ -1,8 +1,0 @@
-[[Proverbs 6:34]]
-[[Isaiah 13:3]]
-[[Isaiah 21:2]]
-[[Isaiah 41:25]]
-[[Jeremiah 50:9]]
-[[Jeremiah 51:11]]
-[[Jeremiah 51:27]]
-[[Daniel 5:28]]

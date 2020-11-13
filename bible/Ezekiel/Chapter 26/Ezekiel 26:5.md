@@ -1,6 +1,0 @@
-[[Ezekiel 25:7]]
-[[Ezekiel 26:14]]
-[[Ezekiel 26:19]]
-[[Ezekiel 27:32]]
-[[Ezekiel 29:19]]
-[[Ezekiel 47:10]]

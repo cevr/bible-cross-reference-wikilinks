@@ -1,8 +1,0 @@
-[[Genesis 35:22]]
-[[Numbers 33:55]]
-[[Joshua 13:11]]
-[[Joshua 23:12]]
-[[Judges 2:1]]
-[[2 Samuel 3:3]]
-[[2 Samuel 10:6]]
-[[2 Samuel 13:37]]

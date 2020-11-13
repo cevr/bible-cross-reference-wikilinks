@@ -1,0 +1,20 @@
+---
+Links:
+[[Psalms 76:10]]
+[[Proverbs 19:21]]
+[[Proverbs 21:30]]
+[[Isaiah 46:10]]
+[[Lamentations 3:37]]
+[[Matthew 14:5]]
+[[Matthew 21:26]]
+[[Matthew 27:24]]
+[[Mark 14:2]]
+[[Mark 14:12]]
+[[Mark 14:27]]
+[[Luke 20:6]]
+[[Luke 22:7]]
+[[John 18:28]]
+[[Acts 4:28]]
+---
+
+"But they said, Not on the feast day, lest there be an uproar among the people."

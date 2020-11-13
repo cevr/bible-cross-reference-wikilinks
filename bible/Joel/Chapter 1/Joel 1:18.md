@@ -1,6 +1,0 @@
-[[1 Kings 18:5]]
-[[Jeremiah 12:4]]
-[[Jeremiah 14:5]]
-[[Hosea 4:3]]
-[[Joel 1:20]]
-[[Romans 8:22]]

@@ -1,0 +1,15 @@
+---
+Links:
+[[Joshua 11:5]]
+[[2 Samuel 15:1]]
+[[2 Samuel 15:14]]
+[[2 Samuel 15:16]]
+[[2 Samuel 15:17]]
+[[2 Samuel 16:15]]
+[[2 Samuel 17:11]]
+[[Psalms 17:7]]
+[[Matthew 10:21]]
+[[Matthew 27:25]]
+---
+
+"LORD, how are they increased that trouble me! many are they that rise up against me."

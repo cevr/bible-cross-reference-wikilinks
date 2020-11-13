@@ -1,6 +1,0 @@
-[[Jeremiah 14:14]]
-[[Jeremiah 20:6]]
-[[Jeremiah 23:14]]
-[[Jeremiah 29:8]]
-[[Jeremiah 29:9]]
-[[Lamentations 2:14]]

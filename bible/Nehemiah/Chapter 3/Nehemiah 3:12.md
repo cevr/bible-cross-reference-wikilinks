@@ -1,6 +1,0 @@
-[[Exodus 35:25]]
-[[Nehemiah 3:9]]
-[[Nehemiah 3:14]]
-[[Nehemiah 7:45]]
-[[Acts 21:8]]
-[[Philippians 4:3]]

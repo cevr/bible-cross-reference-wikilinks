@@ -1,8 +1,0 @@
-[[Job 10:21]]
-[[Job 10:22]]
-[[Psalms 5:3]]
-[[Psalms 30:2]]
-[[Psalms 119:147]]
-[[Ecclesiastes 9:5]]
-[[Lamentations 3:56]]
-[[Mark 1:35]]

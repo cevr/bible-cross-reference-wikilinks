@@ -1,0 +1,33 @@
+---
+Links:
+[[Psalms 49:6]]
+[[Psalms 60:1]]
+[[Psalms 84:11]]
+[[Isaiah 35:4]]
+[[Isaiah 42:6]]
+[[Isaiah 42:16]]
+[[Malachi 4:2]]
+[[Matthew 4:16]]
+[[Luke 1:78]]
+[[Luke 2:32]]
+[[John 1:8]]
+[[John 5:21]]
+[[John 5:26]]
+[[John 8:12]]
+[[John 9:5]]
+[[John 11:25]]
+[[John 12:35]]
+[[John 12:46]]
+[[John 14:6]]
+[[Acts 26:23]]
+[[1 Corinthians 15:45]]
+[[Ephesians 5:14]]
+[[Colossians 3:4]]
+[[1 John 1:2]]
+[[1 John 1:5]]
+[[1 John 5:11]]
+[[Revelation 22:1]]
+[[Revelation 22:16]]
+---
+
+"In him was life; and the life was the light of men."

@@ -1,5 +1,0 @@
-[[2 Kings 5:13]]
-[[2 Kings 6:33]]
-[[2 Kings 7:4]]
-[[Jeremiah 14:18]]
-[[Lamentations 4:9]]

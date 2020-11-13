@@ -1,0 +1,33 @@
+---
+Links:
+[[Numbers 5:22]]
+[[Deuteronomy 27:15]]
+[[1 Kings 1:36]]
+[[1 Chronicles 16:36]]
+[[Nehemiah 5:13]]
+[[Nehemiah 8:6]]
+[[Psalms 41:13]]
+[[Psalms 72:19]]
+[[Psalms 89:52]]
+[[Psalms 106:48]]
+[[Isaiah 29:11]]
+[[Jeremiah 11:5]]
+[[Jeremiah 28:6]]
+[[Matthew 6:13]]
+[[Matthew 28:20]]
+[[Mark 16:20]]
+[[John 7:15]]
+[[John 21:25]]
+[[Acts 4:13]]
+[[1 Corinthians 1:4]]
+[[1 Corinthians 11:24]]
+[[1 Corinthians 14:2]]
+[[1 Corinthians 14:14]]
+[[1 Corinthians 14:23]]
+[[1 Corinthians 16:24]]
+[[Revelation 5:14]]
+[[Revelation 7:12]]
+[[Revelation 22:20]]
+---
+
+"Else when thou shalt bless with the spirit, how shall he that occupieth the room of the unlearned say Amen at thy giving of thanks, seeing he understandeth not what thou sayest?"

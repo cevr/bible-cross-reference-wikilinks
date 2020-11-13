@@ -1,7 +1,0 @@
-[[Genesis 22:1]]
-[[2 Kings 6:7]]
-[[Psalms 91:13]]
-[[Mark 16:18]]
-[[Luke 10:19]]
-[[John 2:5]]
-[[Acts 28:3]]

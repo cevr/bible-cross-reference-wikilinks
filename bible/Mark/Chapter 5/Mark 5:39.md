@@ -1,6 +1,0 @@
-[[Daniel 12:2]]
-[[John 11:11]]
-[[Acts 20:10]]
-[[1 Corinthians 11:30]]
-[[1 Thessalonians 4:13]]
-[[1 Thessalonians 5:10]]

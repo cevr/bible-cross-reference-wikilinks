@@ -1,7 +1,0 @@
-[[Genesis 26:5]]
-[[Exodus 17:1]]
-[[Numbers 9:19]]
-[[Numbers 10:13]]
-[[Joshua 22:3]]
-[[Ezekiel 44:8]]
-[[Zechariah 3:7]]

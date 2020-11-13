@@ -1,5 +1,0 @@
-[[Exodus 12:14]]
-[[Exodus 13:3]]
-[[Exodus 13:10]]
-[[Deuteronomy 16:1]]
-[[Psalms 136:11]]

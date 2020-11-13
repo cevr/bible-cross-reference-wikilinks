@@ -1,6 +1,0 @@
-[[Psalms 104:14]]
-[[Jeremiah 14:5]]
-[[Joel 1:18]]
-[[Joel 2:22]]
-[[Habakkuk 3:17]]
-[[Romans 8:20]]

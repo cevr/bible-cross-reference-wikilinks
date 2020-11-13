@@ -1,0 +1,17 @@
+---
+Links:
+[[1 Samuel 3:12]]
+[[1 Samuel 4:2]]
+[[1 Samuel 4:11]]
+[[1 Samuel 14:3]]
+[[1 Samuel 22:17]]
+[[1 Kings 2:26]]
+[[1 Kings 2:27]]
+[[1 Kings 2:35]]
+[[Job 22:9]]
+[[Psalms 37:17]]
+[[Ezekiel 30:21]]
+[[Ezekiel 44:10]]
+---
+
+"Behold, the days come, that I will cut off thine arm, and the arm of thy father's house, that there shall not be an old man in thine house."

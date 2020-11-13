@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 6:6]]
+[[Judges 10:16]]
+[[1 Samuel 20:34]]
+[[1 Kings 13:6]]
+[[Nehemiah 13:8]]
+[[Psalms 95:10]]
+[[Isaiah 6:9]]
+[[Isaiah 42:18]]
+[[Isaiah 44:18]]
+[[Isaiah 63:9]]
+[[Matthew 12:13]]
+[[Matthew 13:14]]
+[[Luke 6:10]]
+[[Luke 13:15]]
+[[Luke 17:14]]
+[[Luke 19:40]]
+[[John 5:8]]
+[[John 9:7]]
+[[Romans 11:7]]
+[[Romans 11:25]]
+[[2 Corinthians 3:14]]
+[[Ephesians 4:18]]
+[[Ephesians 4:26]]
+[[Ephesians 4:30]]
+[[Hebrews 3:10]]
+[[Hebrews 3:17]]
+[[Hebrews 5:9]]
+[[Revelation 6:16]]
+---
+
+"And when he had looked round about on them with anger, being grieved for the hardness of their hearts, he saith unto the man, Stretch forth thine hand. And he stretched it out: and his hand was restored whole as the other."

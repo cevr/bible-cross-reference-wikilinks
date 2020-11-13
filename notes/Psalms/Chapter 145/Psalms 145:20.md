@@ -1,0 +1,19 @@
+---
+Links:
+[[Exodus 20:6]]
+[[1 Samuel 2:9]]
+[[Psalms 1:6]]
+[[Psalms 9:5]]
+[[Psalms 9:17]]
+[[Psalms 31:23]]
+[[Psalms 37:28]]
+[[Psalms 97:10]]
+[[Psalms 104:35]]
+[[Matthew 25:41]]
+[[John 10:27]]
+[[Romans 8:28]]
+[[James 2:5]]
+[[1 Peter 1:5]]
+---
+
+"The LORD preserveth all them that love him: but all the wicked will he destroy."

@@ -1,0 +1,22 @@
+---
+Links:
+[[Genesis 14:19]]
+[[Genesis 28:3]]
+[[Genesis 31:55]]
+[[Genesis 45:15]]
+[[Genesis 47:7]]
+[[Genesis 47:10]]
+[[Numbers 24:25]]
+[[Ruth 1:14]]
+[[1 Samuel 24:22]]
+[[2 Samuel 6:18]]
+[[2 Samuel 6:20]]
+[[2 Samuel 13:25]]
+[[2 Samuel 14:33]]
+[[1 Kings 19:20]]
+[[Luke 2:34]]
+[[Acts 20:37]]
+[[1 Thessalonians 5:26]]
+---
+
+"And all the people went over Jordan. And when the king was come over, the king kissed Barzillai, and blessed him; and he returned unto his own place."

@@ -1,7 +1,0 @@
-[[Genesis 32:27]]
-[[Exodus 33:12]]
-[[Ruth 1:16]]
-[[2 Kings 2:2]]
-[[2 Kings 2:4]]
-[[2 Kings 2:6]]
-[[2 Kings 6:3]]

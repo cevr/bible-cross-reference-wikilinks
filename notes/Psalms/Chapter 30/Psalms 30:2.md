@@ -1,0 +1,19 @@
+---
+Links:
+[[Genesis 20:17]]
+[[Exodus 15:26]]
+[[2 Kings 20:5]]
+[[Psalms 6:2]]
+[[Psalms 35:24]]
+[[Psalms 41:12]]
+[[Psalms 51:8]]
+[[Psalms 88:13]]
+[[Psalms 103:3]]
+[[Psalms 107:17]]
+[[Psalms 118:18]]
+[[Psalms 145:1]]
+[[Psalms 147:3]]
+[[James 5:14]]
+---
+
+"O LORD my God, I cried unto thee, and thou hast healed me."

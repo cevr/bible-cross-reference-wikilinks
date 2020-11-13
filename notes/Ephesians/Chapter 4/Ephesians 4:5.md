@@ -1,0 +1,33 @@
+---
+Links:
+[[Zechariah 14:9]]
+[[Matthew 28:19]]
+[[Acts 2:36]]
+[[Acts 10:36]]
+[[Romans 3:30]]
+[[Romans 6:3]]
+[[Romans 14:8]]
+[[1 Corinthians 1:2]]
+[[1 Corinthians 1:13]]
+[[1 Corinthians 8:6]]
+[[1 Corinthians 12:5]]
+[[1 Corinthians 12:13]]
+[[2 Corinthians 11:4]]
+[[Galatians 1:6]]
+[[Galatians 3:26]]
+[[Galatians 5:6]]
+[[Ephesians 4:13]]
+[[Philippians 2:11]]
+[[Philippians 3:8]]
+[[Titus 1:1]]
+[[Titus 1:4]]
+[[Hebrews 6:6]]
+[[Hebrews 13:7]]
+[[James 2:18]]
+[[1 Peter 3:21]]
+[[2 Peter 1:1]]
+[[Jude 1:3]]
+[[Jude 1:20]]
+---
+
+"One Lord, one faith, one baptism,"

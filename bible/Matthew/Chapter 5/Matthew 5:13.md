@@ -1,6 +1,0 @@
-[[Leviticus 2:13]]
-[[Mark 9:49]]
-[[Luke 14:34]]
-[[Colossians 4:6]]
-[[Hebrews 6:4]]
-[[2 Peter 2:20]]

@@ -1,5 +1,0 @@
-[[2 Kings 22:10]]
-[[2 Kings 22:19]]
-[[2 Chronicles 34:16]]
-[[2 Chronicles 34:24]]
-[[Jonah 3:6]]

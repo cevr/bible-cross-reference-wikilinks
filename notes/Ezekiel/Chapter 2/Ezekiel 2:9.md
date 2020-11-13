@@ -1,0 +1,16 @@
+---
+Links:
+[[Jeremiah 1:9]]
+[[Jeremiah 36:2]]
+[[Ezekiel 3:1]]
+[[Ezekiel 8:3]]
+[[Daniel 5:5]]
+[[Daniel 10:10]]
+[[Daniel 10:16]]
+[[Zechariah 5:3]]
+[[Hebrews 10:7]]
+[[Revelation 5:1]]
+[[Revelation 10:8]]
+---
+
+"And when I looked, behold, an hand was sent unto me; and, lo, a roll of a book was therein;"

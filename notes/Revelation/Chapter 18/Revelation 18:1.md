@@ -1,0 +1,13 @@
+---
+Links:
+[[Isaiah 60:1]]
+[[Ezekiel 43:2]]
+[[Luke 17:24]]
+[[2 Thessalonians 2:8]]
+[[Revelation 10:1]]
+[[Revelation 17:1]]
+[[Revelation 17:7]]
+[[Revelation 21:23]]
+---
+
+"And after these things I saw another angel come down from heaven, having great power; and the earth was lightened with his glory."

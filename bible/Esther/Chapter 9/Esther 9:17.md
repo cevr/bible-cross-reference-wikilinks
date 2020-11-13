@@ -1,5 +1,0 @@
-[[Esther 3:12]]
-[[Esther 8:9]]
-[[Esther 9:1]]
-[[Esther 9:18]]
-[[Esther 9:21]]

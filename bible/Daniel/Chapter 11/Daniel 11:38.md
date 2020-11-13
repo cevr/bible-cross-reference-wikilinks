@@ -1,5 +1,0 @@
-[[Isaiah 44:9]]
-[[1 Timothy 4:1]]
-[[Revelation 13:12]]
-[[Revelation 17:1]]
-[[Revelation 18:12]]

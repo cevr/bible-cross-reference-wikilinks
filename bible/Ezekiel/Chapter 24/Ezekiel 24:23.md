@@ -1,6 +1,0 @@
-[[Leviticus 26:39]]
-[[Job 27:15]]
-[[Psalms 78:64]]
-[[Isaiah 59:11]]
-[[Ezekiel 4:17]]
-[[Ezekiel 33:10]]

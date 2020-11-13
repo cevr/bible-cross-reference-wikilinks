@@ -1,6 +1,0 @@
-[[Genesis 17:12]]
-[[Genesis 21:3]]
-[[Leviticus 12:3]]
-[[Luke 2:21]]
-[[Acts 7:8]]
-[[Philippians 3:5]]

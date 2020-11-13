@@ -1,0 +1,14 @@
+---
+Links:
+[[Numbers 21:13]]
+[[Deuteronomy 2:36]]
+[[Deuteronomy 3:8]]
+[[Deuteronomy 3:12]]
+[[Joshua 13:16]]
+[[Judges 11:18]]
+[[Proverbs 27:8]]
+[[Isaiah 13:14]]
+[[Jeremiah 48:20]]
+---
+
+"For it shall be, that, as a wandering bird cast out of the nest, so the daughters of Moab shall be at the fords of Arnon."

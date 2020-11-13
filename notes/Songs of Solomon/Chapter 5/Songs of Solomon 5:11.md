@@ -1,0 +1,12 @@
+---
+Links:
+[[Leviticus 13:40]]
+[[Songs of Solomon 5:2]]
+[[Songs of Solomon 7:5]]
+[[Daniel 2:37]]
+[[Daniel 7:9]]
+[[Ephesians 1:21]]
+[[Revelation 1:14]]
+---
+
+"undefined"

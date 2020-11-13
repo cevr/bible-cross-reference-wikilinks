@@ -1,0 +1,16 @@
+---
+Links:
+[[Numbers 22:12]]
+[[Numbers 23:20]]
+[[Numbers 23:23]]
+[[2 Samuel 16:10]]
+[[2 Samuel 16:12]]
+[[Psalms 109:17]]
+[[Proverbs 26:2]]
+[[Isaiah 65:13]]
+[[Isaiah 65:14]]
+[[John 16:22]]
+[[Hebrews 12:2]]
+---
+
+"Let them curse, but bless thou: when they arise, let them be ashamed; but let thy servant rejoice."

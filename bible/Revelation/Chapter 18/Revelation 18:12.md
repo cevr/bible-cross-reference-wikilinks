@@ -1,5 +1,0 @@
-[[1 Kings 10:11]]
-[[2 Chronicles 2:8]]
-[[Proverbs 8:10]]
-[[Ezekiel 27:5]]
-[[Revelation 17:4]]

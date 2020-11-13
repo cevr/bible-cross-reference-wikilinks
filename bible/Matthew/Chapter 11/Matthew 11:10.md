@@ -1,7 +1,0 @@
-[[Isaiah 40:3]]
-[[Malachi 3:1]]
-[[Malachi 4:5]]
-[[Matthew 3:3]]
-[[Mark 1:2]]
-[[Luke 7:26]]
-[[John 1:23]]

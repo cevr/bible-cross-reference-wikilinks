@@ -1,7 +1,0 @@
-[[Psalms 81:12]]
-[[Hosea 4:4]]
-[[Hosea 11:2]]
-[[Hosea 12:1]]
-[[Hosea 13:2]]
-[[Matthew 15:14]]
-[[Revelation 22:11]]

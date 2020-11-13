@@ -1,6 +1,0 @@
-[[Genesis 41:16]]
-[[Genesis 41:25]]
-[[Genesis 41:28]]
-[[Genesis 41:33]]
-[[Ezra 7:25]]
-[[Proverbs 12:8]]

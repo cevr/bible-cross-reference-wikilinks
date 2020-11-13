@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 9:18]]
+[[Exodus 25:21]]
+[[Numbers 4:5]]
+[[Numbers 4:15]]
+[[Numbers 10:33]]
+[[Joshua 10:11]]
+[[Job 38:22]]
+[[Psalms 18:12]]
+[[Psalms 105:32]]
+[[Isaiah 6:1]]
+[[Isaiah 28:2]]
+[[Isaiah 30:30]]
+[[Isaiah 32:19]]
+[[Ezekiel 13:11]]
+[[Ezekiel 38:22]]
+[[2 Corinthians 3:14]]
+[[Hebrews 9:4]]
+[[Revelation 4:5]]
+[[Revelation 8:5]]
+[[Revelation 8:7]]
+[[Revelation 11:13]]
+[[Revelation 11:15]]
+[[Revelation 14:15]]
+[[Revelation 15:5]]
+[[Revelation 16:18]]
+[[Revelation 16:21]]
+[[Revelation 19:11]]
+---
+
+"And the temple of God was opened in heaven, and there was seen in his temple the ark of his testament: and there were lightnings, and voices, and thunderings, and an earthquake, and great hail."

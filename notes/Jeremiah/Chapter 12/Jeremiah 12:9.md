@@ -1,0 +1,18 @@
+---
+Links:
+[[2 Kings 24:2]]
+[[Isaiah 2:11]]
+[[Isaiah 2:12]]
+[[Isaiah 56:9]]
+[[Jeremiah 2:15]]
+[[Jeremiah 7:33]]
+[[Jeremiah 15:3]]
+[[Ezekiel 16:36]]
+[[Ezekiel 23:22]]
+[[Ezekiel 34:5]]
+[[Ezekiel 39:17]]
+[[Revelation 17:16]]
+[[Revelation 19:17]]
+---
+
+"Mine heritage is unto me as a speckled bird, the birds round about are against her; come ye, assemble all the beasts of the field, come to devour."

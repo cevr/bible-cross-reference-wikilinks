@@ -1,5 +1,0 @@
-[[Exodus 23:10]]
-[[Leviticus 25:20]]
-[[Leviticus 26:34]]
-[[Leviticus 26:43]]
-[[2 Chronicles 36:21]]

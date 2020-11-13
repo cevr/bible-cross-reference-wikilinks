@@ -1,0 +1,15 @@
+---
+Links:
+[[Isaiah 43:1]]
+[[Jeremiah 29:11]]
+[[Jeremiah 31:28]]
+[[Jeremiah 32:42]]
+[[Micah 4:10]]
+[[Micah 7:18]]
+[[Zephaniah 3:16]]
+[[Haggai 2:5]]
+[[Zechariah 8:13]]
+[[Luke 12:32]]
+---
+
+"So again have I thought in these days to do well unto Jerusalem and to the house of Judah: fear ye not."

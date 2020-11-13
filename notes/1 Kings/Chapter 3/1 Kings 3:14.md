@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 5:16]]
+[[Deuteronomy 5:33]]
+[[Deuteronomy 25:15]]
+[[1 Kings 2:3]]
+[[1 Kings 3:3]]
+[[1 Kings 3:6]]
+[[1 Kings 9:4]]
+[[1 Kings 11:34]]
+[[1 Kings 15:5]]
+[[1 Chronicles 22:12]]
+[[1 Chronicles 28:7]]
+[[1 Chronicles 28:9]]
+[[2 Chronicles 7:17]]
+[[2 Chronicles 17:3]]
+[[2 Chronicles 29:2]]
+[[2 Chronicles 34:2]]
+[[Psalms 21:4]]
+[[Psalms 21:5]]
+[[Psalms 91:16]]
+[[Psalms 132:12]]
+[[Proverbs 3:2]]
+[[Proverbs 3:16]]
+[[Zechariah 3:7]]
+[[Acts 13:22]]
+[[1 Timothy 4:8]]
+---
+
+"And if thou wilt walk in my ways, to keep my statutes and my commandments, as thy father David did walk, then I will lengthen thy days."

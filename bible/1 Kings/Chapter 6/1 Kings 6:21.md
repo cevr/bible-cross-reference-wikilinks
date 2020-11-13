@@ -1,6 +1,0 @@
-[[Exodus 26:29]]
-[[Exodus 26:32]]
-[[Exodus 36:34]]
-[[1 Kings 6:5]]
-[[2 Chronicles 3:7]]
-[[2 Chronicles 3:14]]

@@ -1,0 +1,21 @@
+---
+Links:
+[[Exodus 23:17]]
+[[Exodus 34:23]]
+[[Deuteronomy 16:16]]
+[[1 Kings 8:63]]
+[[2 Chronicles 7:8]]
+[[2 Chronicles 30:21]]
+[[2 Chronicles 35:7]]
+[[Jeremiah 30:19]]
+[[Jeremiah 31:27]]
+[[Ezekiel 34:31]]
+[[Ezekiel 36:33]]
+[[Ezekiel 46:9]]
+[[Zechariah 8:19]]
+[[John 10:16]]
+[[Acts 2:5]]
+[[Revelation 7:4]]
+---
+
+"As the holy flock, as the flock of Jerusalem in her solemn feasts; so shall the waste cities be filled with flocks of men: and they shall know that I am the LORD."

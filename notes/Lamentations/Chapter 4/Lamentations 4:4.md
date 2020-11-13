@@ -1,0 +1,15 @@
+---
+Links:
+[[Deuteronomy 32:24]]
+[[2 Kings 18:27]]
+[[2 Kings 25:3]]
+[[Psalms 22:15]]
+[[Psalms 137:6]]
+[[Isaiah 5:13]]
+[[Lamentations 1:11]]
+[[Lamentations 2:11]]
+[[Lamentations 2:12]]
+[[Matthew 7:9]]
+---
+
+"The tongue of the sucking child cleaveth to the roof of his mouth for thirst: the young children ask bread, and no man breaketh it unto them."

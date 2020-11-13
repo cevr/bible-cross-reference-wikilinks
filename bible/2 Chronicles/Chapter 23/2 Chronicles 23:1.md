@@ -1,5 +1,0 @@
-[[1 Samuel 18:3]]
-[[2 Kings 11:4]]
-[[2 Kings 12:7]]
-[[2 Chronicles 15:12]]
-[[Nehemiah 9:38]]

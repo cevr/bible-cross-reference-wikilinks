@@ -1,8 +1,0 @@
-[[Genesis 19:17]]
-[[Genesis 19:22]]
-[[Numbers 16:24]]
-[[Proverbs 6:4]]
-[[Luke 13:24]]
-[[2 Corinthians 6:2]]
-[[Hebrews 3:7]]
-[[Revelation 18:4]]

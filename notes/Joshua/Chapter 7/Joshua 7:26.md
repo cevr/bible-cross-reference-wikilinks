@@ -1,0 +1,27 @@
+---
+Links:
+[[Exodus 32:12]]
+[[Numbers 25:8]]
+[[Deuteronomy 13:17]]
+[[Deuteronomy 13:18]]
+[[Joshua 7:24]]
+[[Joshua 8:29]]
+[[Joshua 10:27]]
+[[2 Samuel 18:17]]
+[[2 Samuel 21:14]]
+[[2 Chronicles 29:10]]
+[[Ezra 10:14]]
+[[Psalms 85:4]]
+[[Isaiah 40:2]]
+[[Isaiah 65:10]]
+[[Lamentations 3:53]]
+[[Hosea 2:15]]
+[[Hosea 2:17]]
+[[Joel 2:13]]
+[[Joel 2:18]]
+[[Jonah 1:15]]
+[[Zechariah 6:8]]
+[[John 3:9]]
+---
+
+"And they raised over him a great heap of stones unto this day. So the LORD turned from the fierceness of his anger. Wherefore the name of that place was called, The valley of Achor, unto this day."

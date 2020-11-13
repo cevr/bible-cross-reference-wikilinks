@@ -1,5 +1,0 @@
-[[Matthew 14:23]]
-[[Matthew 15:29]]
-[[Luke 6:12]]
-[[Luke 9:28]]
-[[John 6:15]]

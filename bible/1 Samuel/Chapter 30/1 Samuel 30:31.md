@@ -1,7 +1,0 @@
-[[Joshua 14:13]]
-[[Joshua 14:15]]
-[[Joshua 15:13]]
-[[2 Samuel 2:1]]
-[[2 Samuel 2:4]]
-[[2 Samuel 4:1]]
-[[2 Samuel 15:10]]

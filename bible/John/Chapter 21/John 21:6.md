@@ -1,7 +1,0 @@
-[[Psalms 8:8]]
-[[Matthew 7:27]]
-[[Luke 5:4]]
-[[John 2:5]]
-[[Acts 2:41]]
-[[Acts 4:4]]
-[[Hebrews 2:6]]

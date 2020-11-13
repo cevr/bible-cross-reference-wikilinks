@@ -1,5 +1,0 @@
-[[Isaiah 1:8]]
-[[Isaiah 3:16]]
-[[Jeremiah 4:31]]
-[[Lamentations 2:1]]
-[[Lamentations 2:13]]

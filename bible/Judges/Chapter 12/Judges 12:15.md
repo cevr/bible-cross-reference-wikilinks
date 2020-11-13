@@ -1,7 +1,0 @@
-[[Genesis 14:7]]
-[[Exodus 17:8]]
-[[Judges 3:13]]
-[[Judges 3:27]]
-[[Judges 5:14]]
-[[1 Samuel 15:7]]
-[[2 Samuel 23:30]]

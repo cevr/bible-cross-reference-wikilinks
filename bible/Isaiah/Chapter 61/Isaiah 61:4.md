@@ -1,8 +1,0 @@
-[[Ezra 9:9]]
-[[Isaiah 49:6]]
-[[Isaiah 49:8]]
-[[Isaiah 58:12]]
-[[Ezekiel 36:23]]
-[[Ezekiel 36:33]]
-[[Amos 9:14]]
-[[Micah 7:11]]

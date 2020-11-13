@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 22:14]]
+[[Genesis 45:4]]
+[[Genesis 45:5]]
+[[Numbers 23:22]]
+[[Deuteronomy 32:26]]
+[[Deuteronomy 32:36]]
+[[Judges 14:15]]
+[[Judges 15:6]]
+[[1 Samuel 12:22]]
+[[1 Samuel 17:29]]
+[[2 Kings 19:3]]
+[[Ezra 9:9]]
+[[Nehemiah 6:11]]
+[[Esther 2:7]]
+[[Esther 2:15]]
+[[Esther 2:17]]
+[[Job 9:18]]
+[[Ecclesiastes 3:7]]
+[[Isaiah 45:1]]
+[[Isaiah 49:23]]
+[[Isaiah 54:17]]
+[[Jeremiah 30:11]]
+[[Jeremiah 33:24]]
+[[Jeremiah 46:28]]
+[[Amos 9:8]]
+[[Matthew 16:18]]
+[[Matthew 24:22]]
+[[Acts 7:20]]
+---
+
+"For if thou altogether holdest thy peace at this time, then shall there enlargement and deliverance arise to the Jews from another place; but thou and thy father's house shall be destroyed: and who knoweth whether thou art come to the kingdom for such a time as this?"

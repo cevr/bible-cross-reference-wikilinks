@@ -1,0 +1,19 @@
+---
+Links:
+[[Genesis 49:9]]
+[[Exodus 15:15]]
+[[Numbers 24:8]]
+[[Deuteronomy 1:28]]
+[[Joshua 2:9]]
+[[1 Samuel 16:18]]
+[[1 Samuel 18:17]]
+[[2 Samuel 1:23]]
+[[2 Samuel 23:20]]
+[[Proverbs 28:1]]
+[[Songs of Solomon 3:7]]
+[[Isaiah 13:7]]
+[[Isaiah 19:1]]
+[[Hebrews 11:34]]
+---
+
+"And he also that is valiant, whose heart is as the heart of a lion, shall utterly melt: for all Israel knoweth that thy father is a mighty man, and they which be with him are valiant men."

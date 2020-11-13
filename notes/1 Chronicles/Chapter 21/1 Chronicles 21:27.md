@@ -1,0 +1,15 @@
+---
+Links:
+[[2 Samuel 24:16]]
+[[1 Chronicles 21:12]]
+[[1 Chronicles 21:15]]
+[[1 Chronicles 21:20]]
+[[Psalms 103:20]]
+[[Jeremiah 47:6]]
+[[Ezekiel 21:30]]
+[[Matthew 26:52]]
+[[John 18:11]]
+[[Hebrews 1:14]]
+---
+
+"And the LORD commanded the angel; and he put up his sword again into the sheath thereof."

@@ -1,5 +1,0 @@
-[[Proverbs 15:8]]
-[[Proverbs 21:4]]
-[[Proverbs 21:27]]
-[[Proverbs 28:8]]
-[[Titus 1:15]]

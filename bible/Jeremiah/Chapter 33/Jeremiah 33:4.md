@@ -1,7 +1,0 @@
-[[Deuteronomy 20:20]]
-[[Isaiah 22:10]]
-[[Jeremiah 32:24]]
-[[Ezekiel 4:2]]
-[[Ezekiel 21:22]]
-[[Ezekiel 26:8]]
-[[Habakkuk 1:10]]

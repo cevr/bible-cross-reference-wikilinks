@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 43:31]]
+[[Genesis 45:1]]
+[[Ruth 2:12]]
+[[2 Chronicles 15:7]]
+[[Ezra 1:5]]
+[[Psalms 30:5]]
+[[Ecclesiastes 9:7]]
+[[Isaiah 25:8]]
+[[Isaiah 30:19]]
+[[Isaiah 40:10]]
+[[Jeremiah 23:3]]
+[[Jeremiah 29:14]]
+[[Jeremiah 30:3]]
+[[Jeremiah 30:18]]
+[[Jeremiah 31:4]]
+[[Jeremiah 33:7]]
+[[Jeremiah 33:11]]
+[[Ezekiel 11:17]]
+[[Ezekiel 20:41]]
+[[Ezekiel 37:21]]
+[[Hosea 1:11]]
+[[Mark 5:38]]
+[[John 20:13]]
+[[1 Thessalonians 4:14]]
+[[Hebrews 6:10]]
+[[Hebrews 11:6]]
+---
+
+"Thus saith the LORD; Refrain thy voice from weeping, and thine eyes from tears: for thy work shall be rewarded, saith the LORD; and they shall come again from the land of the enemy."

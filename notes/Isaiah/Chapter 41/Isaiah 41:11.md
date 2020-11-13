@@ -1,0 +1,24 @@
+---
+Links:
+[[Exodus 11:8]]
+[[Exodus 12:29]]
+[[Exodus 23:22]]
+[[Isaiah 29:8]]
+[[Isaiah 40:17]]
+[[Isaiah 41:24]]
+[[Isaiah 41:29]]
+[[Isaiah 45:24]]
+[[Isaiah 49:25]]
+[[Isaiah 49:26]]
+[[Isaiah 54:15]]
+[[Isaiah 54:17]]
+[[Isaiah 60:12]]
+[[Jeremiah 12:17]]
+[[Daniel 4:35]]
+[[Zechariah 12:3]]
+[[Acts 13:8]]
+[[Acts 16:39]]
+[[Revelation 3:9]]
+---
+
+"Behold, all they that were incensed against thee shall be ashamed and confounded: they shall be as nothing; and they that strive with thee shall perish."

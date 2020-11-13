@@ -1,6 +1,0 @@
-[[Genesis 16:3]]
-[[Genesis 29:24]]
-[[Genesis 29:35]]
-[[Genesis 30:4]]
-[[Genesis 30:17]]
-[[Genesis 46:18]]

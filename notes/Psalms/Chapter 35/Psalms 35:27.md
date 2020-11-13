@@ -1,0 +1,25 @@
+---
+Links:
+[[Psalms 9:4]]
+[[Psalms 32:11]]
+[[Psalms 34:4]]
+[[Psalms 40:16]]
+[[Psalms 40:17]]
+[[Psalms 68:3]]
+[[Psalms 70:4]]
+[[Psalms 132:9]]
+[[Psalms 132:16]]
+[[Psalms 142:7]]
+[[Psalms 147:11]]
+[[Psalms 149:4]]
+[[Proverbs 8:18]]
+[[Isaiah 66:10]]
+[[Jeremiah 32:40]]
+[[Zephaniah 3:14]]
+[[Zephaniah 3:17]]
+[[John 16:22]]
+[[Romans 12:15]]
+[[1 Corinthians 12:26]]
+---
+
+"Let them shout for joy, and be glad, that favour my righteous cause: yea, let them say continually, Let the LORD be magnified, which hath pleasure in the prosperity of his servant."

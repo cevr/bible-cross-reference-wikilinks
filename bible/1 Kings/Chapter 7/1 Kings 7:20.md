@@ -1,6 +1,0 @@
-[[1 Kings 7:42]]
-[[2 Kings 25:17]]
-[[2 Chronicles 3:16]]
-[[2 Chronicles 4:13]]
-[[Jeremiah 52:21]]
-[[Jeremiah 52:22]]

@@ -1,8 +1,0 @@
-[[Psalms 42:3]]
-[[Psalms 43:2]]
-[[Psalms 55:4]]
-[[Proverbs 12:18]]
-[[Lamentations 5:20]]
-[[Joel 2:17]]
-[[Micah 7:10]]
-[[Luke 2:35]]

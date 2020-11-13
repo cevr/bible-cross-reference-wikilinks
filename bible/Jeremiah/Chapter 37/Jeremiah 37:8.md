@@ -1,6 +1,0 @@
-[[Jeremiah 21:4]]
-[[Jeremiah 32:29]]
-[[Jeremiah 34:21]]
-[[Jeremiah 38:3]]
-[[Jeremiah 38:23]]
-[[Jeremiah 39:2]]

@@ -1,5 +1,0 @@
-[[2 Timothy 4:7]]
-[[Revelation 3:8]]
-[[Revelation 3:10]]
-[[Revelation 12:17]]
-[[Revelation 13:10]]

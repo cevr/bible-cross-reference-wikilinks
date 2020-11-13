@@ -1,6 +1,0 @@
-[[Genesis 32:22]]
-[[Numbers 21:24]]
-[[Numbers 32:33]]
-[[Deuteronomy 2:37]]
-[[Joshua 12:2]]
-[[2 Samuel 24:5]]

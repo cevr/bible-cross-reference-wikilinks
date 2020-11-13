@@ -1,5 +1,0 @@
-[[Numbers 7:85]]
-[[1 Kings 9:28]]
-[[1 Chronicles 1:23]]
-[[1 Chronicles 22:14]]
-[[Job 28:16]]

@@ -1,7 +1,0 @@
-[[Leviticus 14:34]]
-[[Numbers 32:19]]
-[[Numbers 34:15]]
-[[Deuteronomy 1:1]]
-[[Deuteronomy 3:12]]
-[[Joshua 12:1]]
-[[Joshua 12:6]]

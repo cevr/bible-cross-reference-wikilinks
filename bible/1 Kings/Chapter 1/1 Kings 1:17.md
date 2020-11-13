@@ -1,5 +1,0 @@
-[[Genesis 18:12]]
-[[1 Kings 1:13]]
-[[1 Kings 1:14]]
-[[1 Kings 1:30]]
-[[1 Peter 3:6]]

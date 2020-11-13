@@ -1,6 +1,0 @@
-[[Exodus 13:6]]
-[[Leviticus 23:7]]
-[[Numbers 28:18]]
-[[Numbers 28:25]]
-[[Numbers 28:26]]
-[[Ezekiel 45:23]]

@@ -1,0 +1,30 @@
+---
+Links:
+[[Leviticus 13:2]]
+[[Leviticus 14:2]]
+[[2 Kings 5:7]]
+[[Isaiah 42:21]]
+[[Matthew 3:15]]
+[[Matthew 5:17]]
+[[Matthew 6:1]]
+[[Matthew 9:30]]
+[[Matthew 10:18]]
+[[Matthew 12:16]]
+[[Matthew 16:20]]
+[[Matthew 17:9]]
+[[Mark 1:43]]
+[[Mark 5:43]]
+[[Mark 6:11]]
+[[Mark 7:36]]
+[[Mark 8:30]]
+[[Mark 13:9]]
+[[Luke 5:14]]
+[[Luke 17:14]]
+[[Luke 21:13]]
+[[John 5:41]]
+[[John 7:18]]
+[[John 8:50]]
+[[John 10:37]]
+---
+
+"And Jesus saith unto him, See thou tell no man; but go thy way, shew thyself to the priest, and offer the gift that Moses commanded, for a testimony unto them."

@@ -1,7 +1,0 @@
-[[Exodus 25:31]]
-[[1 Kings 7:19]]
-[[2 Chronicles 4:7]]
-[[Zechariah 4:2]]
-[[Zechariah 4:11]]
-[[Revelation 1:12]]
-[[Revelation 1:20]]

@@ -1,6 +1,0 @@
-[[Deuteronomy 26:17]]
-[[Job 15:6]]
-[[Psalms 119:11]]
-[[Psalms 119:173]]
-[[Luke 10:42]]
-[[Luke 19:22]]

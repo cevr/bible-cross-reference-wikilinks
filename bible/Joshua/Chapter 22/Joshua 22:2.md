@@ -1,6 +1,0 @@
-[[Numbers 32:20]]
-[[Deuteronomy 3:16]]
-[[Deuteronomy 3:18]]
-[[Deuteronomy 3:20]]
-[[Joshua 1:12]]
-[[Joshua 1:13]]

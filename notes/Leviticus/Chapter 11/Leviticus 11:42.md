@@ -1,0 +1,14 @@
+---
+Links:
+[[Genesis 3:14]]
+[[Isaiah 65:25]]
+[[Micah 7:17]]
+[[Matthew 3:7]]
+[[Matthew 23:23]]
+[[John 8:44]]
+[[2 Corinthians 11:3]]
+[[2 Corinthians 11:13]]
+[[Titus 1:12]]
+---
+
+"Whatsoever goeth upon the belly, and whatsoever goeth upon all four, or whatsoever hath more feet among all creeping things that creep upon the earth, them ye shall not eat; for they are an abomination."

@@ -1,5 +1,0 @@
-[[Numbers 32:23]]
-[[1 Samuel 14:42]]
-[[Proverbs 13:21]]
-[[Jeremiah 2:26]]
-[[Acts 5:1]]

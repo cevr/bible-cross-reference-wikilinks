@@ -1,5 +1,0 @@
-[[Numbers 26:15]]
-[[Numbers 32:34]]
-[[Deuteronomy 3:10]]
-[[Joshua 13:11]]
-[[Joshua 13:24]]

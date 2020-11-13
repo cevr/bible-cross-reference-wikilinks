@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 41:39]]
+[[Deuteronomy 10:17]]
+[[Joshua 22:22]]
+[[2 Kings 5:15]]
+[[Job 12:19]]
+[[Psalms 2:10]]
+[[Psalms 72:11]]
+[[Psalms 82:1]]
+[[Psalms 96:4]]
+[[Psalms 136:2]]
+[[Proverbs 8:15]]
+[[Daniel 2:19]]
+[[Daniel 2:22]]
+[[Daniel 2:28]]
+[[Daniel 2:37]]
+[[Daniel 4:8]]
+[[Daniel 4:17]]
+[[Daniel 4:25]]
+[[Daniel 4:32]]
+[[Daniel 11:36]]
+[[Amos 3:7]]
+[[1 Timothy 6:15]]
+[[Revelation 1:5]]
+[[Revelation 17:14]]
+[[Revelation 19:16]]
+---
+
+"The king answered unto Daniel, and said, Of a truth it is, that your God is a God of gods, and a Lord of kings, and a revealer of secrets, seeing thou couldest reveal this secret."

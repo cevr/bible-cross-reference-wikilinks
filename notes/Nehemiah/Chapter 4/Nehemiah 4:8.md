@@ -1,0 +1,15 @@
+---
+Links:
+[[Deuteronomy 1:29]]
+[[2 Samuel 10:12]]
+[[2 Chronicles 32:7]]
+[[Nehemiah 1:5]]
+[[Psalms 2:1]]
+[[Psalms 83:3]]
+[[Isaiah 8:9]]
+[[Jeremiah 20:10]]
+[[Daniel 9:25]]
+[[Acts 23:12]]
+---
+
+"And conspired all of them together to come and to fight against Jerusalem, and to hinder it."

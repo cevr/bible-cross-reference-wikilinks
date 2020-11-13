@@ -1,5 +1,0 @@
-[[Genesis 27:41]]
-[[1 Samuel 16:9]]
-[[2 Samuel 13:3]]
-[[Psalms 7:14]]
-[[Proverbs 24:11]]

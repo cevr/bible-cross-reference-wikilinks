@@ -1,6 +1,0 @@
-[[Daniel 12:6]]
-[[Daniel 12:8]]
-[[Matthew 24:3]]
-[[Luke 21:7]]
-[[John 21:21]]
-[[Acts 1:6]]

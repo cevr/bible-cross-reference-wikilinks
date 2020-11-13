@@ -1,0 +1,33 @@
+---
+Links:
+[[Exodus 21:24]]
+[[Deuteronomy 15:10]]
+[[Deuteronomy 19:16]]
+[[Judges 1:7]]
+[[2 Samuel 19:36]]
+[[Ezra 7:27]]
+[[Esther 7:10]]
+[[Esther 9:25]]
+[[Job 31:16]]
+[[Job 42:11]]
+[[Psalms 18:25]]
+[[Psalms 41:1]]
+[[Psalms 79:12]]
+[[Proverbs 3:9]]
+[[Proverbs 10:22]]
+[[Proverbs 19:17]]
+[[Proverbs 22:9]]
+[[Ecclesiastes 11:1]]
+[[Isaiah 65:6]]
+[[Matthew 7:2]]
+[[Matthew 10:42]]
+[[Mark 4:24]]
+[[Luke 6:30]]
+[[2 Corinthians 8:14]]
+[[2 Corinthians 9:6]]
+[[Philippians 4:17]]
+[[James 2:13]]
+[[Revelation 16:5]]
+---
+
+"Give, and it shall be given unto you; good measure, pressed down, and shaken together, and running over, shall men give into your bosom. For with the same measure that ye mete withal it shall be measured to you again."

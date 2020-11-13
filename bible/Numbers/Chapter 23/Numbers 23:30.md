@@ -1,5 +1,0 @@
-[[Leviticus 1:3]]
-[[Numbers 22:40]]
-[[Numbers 23:1]]
-[[Numbers 23:2]]
-[[2 Samuel 15:12]]

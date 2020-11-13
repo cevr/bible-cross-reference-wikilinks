@@ -1,0 +1,30 @@
+---
+Links:
+[[2 Samuel 7:16]]
+[[2 Kings 19:31]]
+[[Psalms 2:8]]
+[[Psalms 45:4]]
+[[Psalms 72:1]]
+[[Psalms 72:7]]
+[[Psalms 89:35]]
+[[Isaiah 11:3]]
+[[Isaiah 16:5]]
+[[Isaiah 32:1]]
+[[Isaiah 37:32]]
+[[Isaiah 42:3]]
+[[Isaiah 59:16]]
+[[Isaiah 63:4]]
+[[Jeremiah 23:5]]
+[[Jeremiah 33:15]]
+[[Ezekiel 36:21]]
+[[Daniel 2:35]]
+[[Daniel 2:44]]
+[[Daniel 7:14]]
+[[Daniel 7:27]]
+[[Luke 1:32]]
+[[1 Corinthians 15:24]]
+[[Hebrews 1:8]]
+[[Revelation 19:11]]
+---
+
+"Of the increase of his government and peace there shall be no end, upon the throne of David, and upon his kingdom, to order it, and to establish it with judgment and with justice from henceforth even for ever. The zeal of the LORD of hosts will perform this."

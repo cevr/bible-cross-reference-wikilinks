@@ -1,0 +1,33 @@
+---
+Links:
+[[Exodus 3:7]]
+[[Exodus 22:22]]
+[[Exodus 22:23]]
+[[Deuteronomy 15:1]]
+[[Deuteronomy 24:15]]
+[[Deuteronomy 28:54]]
+[[Deuteronomy 31:10]]
+[[Job 34:28]]
+[[Psalms 9:12]]
+[[Proverbs 4:23]]
+[[Proverbs 14:21]]
+[[Proverbs 21:13]]
+[[Proverbs 23:6]]
+[[Proverbs 24:9]]
+[[Proverbs 28:22]]
+[[Jeremiah 17:10]]
+[[Jeremiah 34:14]]
+[[Matthew 15:19]]
+[[Matthew 20:15]]
+[[Matthew 25:41]]
+[[Mark 7:21]]
+[[Romans 7:8]]
+[[James 4:5]]
+[[James 4:17]]
+[[James 5:4]]
+[[James 5:9]]
+[[1 Peter 4:9]]
+[[1 John 3:15]]
+---
+
+"Beware that there be not a thought in thy wicked heart, saying, The seventh year, the year of release, is at hand; and thine eye be evil against thy poor brother, and thou givest him nought; and he cry unto the LORD against thee, and it be sin unto thee."

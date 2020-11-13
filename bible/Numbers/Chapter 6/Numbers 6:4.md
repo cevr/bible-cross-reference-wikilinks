@@ -1,5 +1,0 @@
-[[Numbers 6:5]]
-[[Numbers 6:8]]
-[[Numbers 6:12]]
-[[Numbers 6:18]]
-[[Numbers 6:21]]

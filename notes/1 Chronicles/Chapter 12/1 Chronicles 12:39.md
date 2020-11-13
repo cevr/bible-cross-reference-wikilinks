@@ -1,0 +1,11 @@
+---
+Links:
+[[Genesis 26:30]]
+[[Genesis 31:54]]
+[[Genesis 49:10]]
+[[2 Samuel 6:19]]
+[[2 Samuel 19:42]]
+[[1 Chronicles 11:10]]
+---
+
+"And there they were with David three days, eating and drinking: for their brethren had prepared for them."

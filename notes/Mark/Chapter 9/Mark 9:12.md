@@ -1,0 +1,30 @@
+---
+Links:
+[[Psalms 22:1]]
+[[Psalms 69:1]]
+[[Psalms 74:22]]
+[[Isaiah 40:3]]
+[[Isaiah 49:7]]
+[[Isaiah 50:6]]
+[[Isaiah 52:14]]
+[[Isaiah 53:1]]
+[[Daniel 9:24]]
+[[Zechariah 11:13]]
+[[Zechariah 13:7]]
+[[Malachi 4:6]]
+[[Matthew 3:1]]
+[[Matthew 11:2]]
+[[Matthew 16:21]]
+[[Matthew 26:24]]
+[[Mark 1:2]]
+[[Luke 1:16]]
+[[Luke 1:76]]
+[[Luke 3:2]]
+[[Luke 23:11]]
+[[Luke 23:39]]
+[[John 1:6]]
+[[John 3:27]]
+[[Philippians 2:7]]
+---
+
+"And he answered and told them, Elias verily cometh first, and restoreth all things; and how it is written of the Son of man, that he must suffer many things, and be set at nought."

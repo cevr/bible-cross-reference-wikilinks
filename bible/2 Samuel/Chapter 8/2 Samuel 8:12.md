@@ -1,8 +1,0 @@
-[[1 Samuel 27:8]]
-[[1 Samuel 30:20]]
-[[2 Samuel 5:17]]
-[[2 Samuel 8:2]]
-[[2 Samuel 10:11]]
-[[2 Samuel 10:14]]
-[[2 Samuel 12:26]]
-[[1 Chronicles 18:11]]

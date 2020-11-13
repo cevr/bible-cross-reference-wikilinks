@@ -1,6 +1,0 @@
-[[2 Kings 18:17]]
-[[2 Kings 20:20]]
-[[2 Chronicles 32:30]]
-[[Nehemiah 3:15]]
-[[Nehemiah 3:16]]
-[[Nehemiah 12:37]]

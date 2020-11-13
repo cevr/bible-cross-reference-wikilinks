@@ -1,7 +1,0 @@
-[[Exodus 4:3]]
-[[Exodus 7:6]]
-[[Exodus 7:20]]
-[[Exodus 12:28]]
-[[Amos 9:3]]
-[[Mark 16:18]]
-[[Luke 10:19]]

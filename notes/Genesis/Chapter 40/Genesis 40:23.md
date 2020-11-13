@@ -1,0 +1,12 @@
+---
+Links:
+[[Esther 6:3]]
+[[Job 19:14]]
+[[Psalms 31:12]]
+[[Psalms 31:13]]
+[[Psalms 105:19]]
+[[Ecclesiastes 9:15]]
+[[Amos 6:6]]
+---
+
+"Yet did not the chief butler remember Joseph, but forgat him."

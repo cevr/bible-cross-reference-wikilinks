@@ -1,7 +1,0 @@
-[[1 Chronicles 6:24]]
-[[1 Chronicles 6:39]]
-[[1 Chronicles 15:16]]
-[[1 Chronicles 15:18]]
-[[1 Chronicles 15:19]]
-[[1 Chronicles 25:1]]
-[[2 Chronicles 29:25]]

@@ -1,6 +1,0 @@
-[[Exodus 23:29]]
-[[Numbers 33:52]]
-[[Joshua 15:63]]
-[[Joshua 16:10]]
-[[Judges 1:27]]
-[[Romans 6:12]]

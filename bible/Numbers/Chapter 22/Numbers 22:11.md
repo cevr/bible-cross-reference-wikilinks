@@ -1,6 +1,0 @@
-[[Genesis 27:29]]
-[[Numbers 23:7]]
-[[Numbers 23:11]]
-[[Numbers 24:10]]
-[[Joshua 24:10]]
-[[1 Samuel 17:43]]

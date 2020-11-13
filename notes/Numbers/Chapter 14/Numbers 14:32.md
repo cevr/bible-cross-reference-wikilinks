@@ -1,0 +1,10 @@
+---
+Links:
+[[Numbers 14:29]]
+[[Numbers 26:65]]
+[[Psalms 106:26]]
+[[1 Corinthians 10:5]]
+[[Hebrews 3:17]]
+---
+
+"But as for you, your carcases, they shall fall in this wilderness."

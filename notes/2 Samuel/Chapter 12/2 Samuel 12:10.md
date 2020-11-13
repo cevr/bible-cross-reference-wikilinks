@@ -1,0 +1,23 @@
+---
+Links:
+[[Genesis 20:3]]
+[[Numbers 11:20]]
+[[1 Samuel 2:30]]
+[[2 Samuel 13:28]]
+[[2 Samuel 13:29]]
+[[2 Samuel 18:14]]
+[[2 Samuel 18:15]]
+[[2 Samuel 18:33]]
+[[1 Kings 2:23]]
+[[1 Kings 2:24]]
+[[1 Kings 2:25]]
+[[Proverbs 6:32]]
+[[Amos 7:9]]
+[[Malachi 1:6]]
+[[Matthew 6:24]]
+[[Matthew 26:52]]
+[[Romans 2:4]]
+[[1 Thessalonians 4:8]]
+---
+
+"Now therefore the sword shall never depart from thine house; because thou hast despised me, and hast taken the wife of Uriah the Hittite to be thy wife."

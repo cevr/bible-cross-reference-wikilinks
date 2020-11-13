@@ -1,5 +1,0 @@
-[[Genesis 39:20]]
-[[Jeremiah 29:22]]
-[[Daniel 3:6]]
-[[Daniel 3:27]]
-[[Matthew 13:42]]

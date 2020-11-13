@@ -1,0 +1,21 @@
+---
+Links:
+[[Exodus 16:3]]
+[[Exodus 17:3]]
+[[Numbers 11:4]]
+[[Numbers 11:5]]
+[[Numbers 14:3]]
+[[Numbers 14:4]]
+[[Numbers 16:13]]
+[[Deuteronomy 17:16]]
+[[Deuteronomy 29:19]]
+[[Isaiah 30:2]]
+[[Isaiah 30:16]]
+[[Isaiah 31:1]]
+[[Jeremiah 4:19]]
+[[Jeremiah 4:21]]
+[[Jeremiah 41:17]]
+[[Jeremiah 43:7]]
+---
+
+"Saying, No; but we will go into the land of Egypt, where we shall see no war, nor hear the sound of the trumpet, nor have hunger of bread; and there will we dwell:"

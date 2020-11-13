@@ -1,8 +1,0 @@
-[[Joshua 2:1]]
-[[Joshua 3:16]]
-[[Joshua 6:1]]
-[[Joshua 7:2]]
-[[Joshua 16:1]]
-[[Hosea 4:15]]
-[[Hosea 5:8]]
-[[Hosea 10:5]]

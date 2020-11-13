@@ -1,5 +1,0 @@
-[[1 Kings 7:2]]
-[[1 Kings 10:17]]
-[[1 Kings 14:27]]
-[[Songs of Solomon 4:4]]
-[[Isaiah 36:1]]

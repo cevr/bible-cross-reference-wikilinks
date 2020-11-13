@@ -1,8 +1,0 @@
-[[Genesis 7:18]]
-[[Genesis 49:13]]
-[[Job 3:8]]
-[[Job 41:1]]
-[[Psalms 74:14]]
-[[Psalms 107:23]]
-[[Isaiah 27:1]]
-[[Ezekiel 27:9]]

@@ -1,8 +1,0 @@
-[[Genesis 14:22]]
-[[Genesis 33:19]]
-[[2 Samuel 24:24]]
-[[Acts 20:35]]
-[[Romans 13:8]]
-[[Philippians 4:5]]
-[[Colossians 4:5]]
-[[Hebrews 13:5]]

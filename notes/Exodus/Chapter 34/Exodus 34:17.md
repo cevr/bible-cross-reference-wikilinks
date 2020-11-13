@@ -1,0 +1,13 @@
+---
+Links:
+[[Exodus 20:4]]
+[[Exodus 23:14]]
+[[Exodus 32:8]]
+[[Leviticus 19:4]]
+[[Isaiah 46:6]]
+[[Jeremiah 10:14]]
+[[Acts 17:29]]
+[[Acts 19:26]]
+---
+
+"Thou shalt make thee no molten gods."

@@ -1,0 +1,25 @@
+---
+Links:
+[[Isaiah 2:10]]
+[[Isaiah 2:19]]
+[[Isaiah 2:21]]
+[[Isaiah 24:23]]
+[[Isaiah 60:19]]
+[[Habakkuk 3:3]]
+[[Matthew 16:27]]
+[[Mark 8:38]]
+[[Luke 2:32]]
+[[John 1:4]]
+[[John 1:9]]
+[[John 1:14]]
+[[John 1:18]]
+[[John 5:23]]
+[[John 17:24]]
+[[Acts 22:11]]
+[[Revelation 18:1]]
+[[Revelation 21:11]]
+[[Revelation 21:25]]
+[[Revelation 22:5]]
+---
+
+"And the city had no need of the sun, neither of the moon, to shine in it: for the glory of God did lighten it, and the Lamb is the light thereof."

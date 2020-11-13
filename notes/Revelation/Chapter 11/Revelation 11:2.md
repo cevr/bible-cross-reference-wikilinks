@@ -1,0 +1,32 @@
+---
+Links:
+[[Numbers 14:34]]
+[[Psalms 79:1]]
+[[Isaiah 48:2]]
+[[Isaiah 52:1]]
+[[Lamentations 1:10]]
+[[Ezekiel 40:17]]
+[[Ezekiel 42:20]]
+[[Daniel 7:19]]
+[[Daniel 7:25]]
+[[Daniel 8:10]]
+[[Daniel 8:24]]
+[[Daniel 12:7]]
+[[Daniel 12:11]]
+[[Matthew 4:5]]
+[[Matthew 5:13]]
+[[Matthew 27:53]]
+[[Luke 21:24]]
+[[2 Thessalonians 2:3]]
+[[1 Timothy 4:1]]
+[[2 Timothy 3:1]]
+[[Hebrews 10:29]]
+[[Revelation 11:3]]
+[[Revelation 11:11]]
+[[Revelation 12:6]]
+[[Revelation 13:1]]
+[[Revelation 21:2]]
+[[Revelation 22:19]]
+---
+
+"But the court which is without the temple leave out, and measure it not; for it is given unto the Gentiles: and the holy city shall they tread under foot forty and two months."

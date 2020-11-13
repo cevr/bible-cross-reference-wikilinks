@@ -1,5 +1,0 @@
-[[Psalms 22:22]]
-[[Psalms 22:25]]
-[[Psalms 40:10]]
-[[Psalms 111:1]]
-[[John 18:20]]

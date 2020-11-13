@@ -1,6 +1,0 @@
-[[Genesis 3:1]]
-[[Matthew 4:1]]
-[[2 Corinthians 2:11]]
-[[2 Corinthians 11:3]]
-[[Galatians 1:8]]
-[[Revelation 12:9]]

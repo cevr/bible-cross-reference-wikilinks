@@ -1,0 +1,30 @@
+---
+Links:
+[[Exodus 20:16]]
+[[Exodus 23:1]]
+[[Leviticus 19:16]]
+[[1 Samuel 2:3]]
+[[Job 40:11]]
+[[Psalms 10:2]]
+[[Psalms 15:3]]
+[[Psalms 18:27]]
+[[Psalms 50:20]]
+[[Psalms 138:6]]
+[[Proverbs 6:16]]
+[[Proverbs 10:18]]
+[[Proverbs 20:19]]
+[[Proverbs 21:4]]
+[[Proverbs 25:23]]
+[[Proverbs 30:13]]
+[[Isaiah 2:11]]
+[[Ezekiel 22:9]]
+[[Daniel 4:37]]
+[[Obadiah 1:3]]
+[[Luke 18:14]]
+[[1 Corinthians 5:11]]
+[[1 Timothy 3:11]]
+[[Titus 2:3]]
+[[1 Peter 5:5]]
+---
+
+"Whoso privily slandereth his neighbour, him will I cut off: him that hath an high look and a proud heart will not I suffer."

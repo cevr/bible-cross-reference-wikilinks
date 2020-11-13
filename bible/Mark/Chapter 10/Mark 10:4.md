@@ -1,6 +1,0 @@
-[[Deuteronomy 24:1]]
-[[Isaiah 50:1]]
-[[Jeremiah 3:1]]
-[[Matthew 1:19]]
-[[Matthew 5:31]]
-[[Matthew 19:7]]

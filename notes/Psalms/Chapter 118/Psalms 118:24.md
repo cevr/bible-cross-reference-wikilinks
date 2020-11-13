@@ -1,0 +1,15 @@
+---
+Links:
+[[1 Kings 8:66]]
+[[2 Chronicles 20:26]]
+[[Nehemiah 8:10]]
+[[Psalms 84:10]]
+[[Isaiah 58:13]]
+[[Zechariah 3:9]]
+[[Matthew 28:1]]
+[[John 20:19]]
+[[Acts 20:7]]
+[[Revelation 1:10]]
+---
+
+"This is the day which the LORD hath made; we will rejoice and be glad in it."

@@ -1,0 +1,17 @@
+---
+Links:
+[[Job 15:16]]
+[[Job 34:7]]
+[[Proverbs 1:22]]
+[[Proverbs 3:4]]
+[[Proverbs 8:35]]
+[[Proverbs 10:23]]
+[[Proverbs 12:2]]
+[[Proverbs 13:15]]
+[[Proverbs 26:18]]
+[[Proverbs 30:20]]
+[[Romans 14:17]]
+[[Jude 1:18]]
+---
+
+"Fools make a mock at sin: but among the righteous there is favour."

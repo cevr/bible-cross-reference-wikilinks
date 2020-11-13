@@ -1,0 +1,19 @@
+---
+Links:
+[[Job 20:19]]
+[[Psalms 37:16]]
+[[Psalms 112:3]]
+[[Proverbs 3:33]]
+[[Proverbs 8:21]]
+[[Proverbs 10:22]]
+[[Proverbs 13:22]]
+[[Proverbs 15:16]]
+[[Proverbs 16:8]]
+[[Proverbs 21:20]]
+[[Ecclesiastes 4:6]]
+[[Ecclesiastes 5:10]]
+[[Hebrews 11:26]]
+[[James 5:1]]
+---
+
+"In the house of the righteous is much treasure: but in the revenues of the wicked is trouble."

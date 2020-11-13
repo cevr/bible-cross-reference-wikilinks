@@ -1,5 +1,0 @@
-[[Numbers 33:37]]
-[[Numbers 34:3]]
-[[Numbers 34:6]]
-[[Numbers 34:9]]
-[[Ezekiel 47:15]]

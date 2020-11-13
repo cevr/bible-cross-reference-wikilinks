@@ -1,0 +1,17 @@
+---
+Links:
+[[2 Chronicles 15:6]]
+[[Isaiah 5:28]]
+[[Isaiah 30:30]]
+[[Isaiah 34:2]]
+[[Isaiah 66:18]]
+[[Jeremiah 6:22]]
+[[Jeremiah 6:23]]
+[[Jeremiah 23:19]]
+[[Jeremiah 30:23]]
+[[Zephaniah 3:8]]
+[[Luke 21:10]]
+[[Luke 21:25]]
+---
+
+"Thus saith the LORD of hosts, Behold, evil shall go forth from nation to nation, and a great whirlwind shall be raised up from the coasts of the earth."

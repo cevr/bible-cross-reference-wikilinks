@@ -1,6 +1,0 @@
-[[Exodus 28:6]]
-[[Exodus 28:30]]
-[[1 Samuel 14:3]]
-[[1 Samuel 14:18]]
-[[1 Samuel 14:36]]
-[[1 Samuel 22:20]]

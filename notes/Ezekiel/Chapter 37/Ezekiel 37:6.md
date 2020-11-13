@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 2:7]]
+[[Deuteronomy 29:6]]
+[[1 Kings 20:28]]
+[[Psalms 104:30]]
+[[Isaiah 26:19]]
+[[Isaiah 49:23]]
+[[Ezekiel 6:7]]
+[[Ezekiel 6:13]]
+[[Ezekiel 7:4]]
+[[Ezekiel 7:9]]
+[[Ezekiel 11:10]]
+[[Ezekiel 11:12]]
+[[Ezekiel 20:38]]
+[[Ezekiel 28:22]]
+[[Ezekiel 32:15]]
+[[Ezekiel 34:27]]
+[[Ezekiel 35:9]]
+[[Ezekiel 35:12]]
+[[Ezekiel 35:15]]
+[[Ezekiel 37:14]]
+[[Ezekiel 38:23]]
+[[Ezekiel 39:6]]
+[[Ezekiel 39:22]]
+[[Ezekiel 39:28]]
+[[Joel 2:27]]
+[[Joel 3:17]]
+---
+
+"And I will lay sinews upon you, and will bring up flesh upon you, and cover you with skin, and put breath in you, and ye shall live; and ye shall know that I am the LORD."

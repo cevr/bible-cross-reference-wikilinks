@@ -1,5 +1,0 @@
-[[Joshua 15:7]]
-[[2 Samuel 13:23]]
-[[2 Samuel 15:11]]
-[[2 Samuel 17:17]]
-[[Proverbs 15:8]]

@@ -1,5 +1,0 @@
-[[Psalms 33:11]]
-[[Proverbs 19:21]]
-[[Micah 5:2]]
-[[Luke 1:57]]
-[[Revelation 12:1]]

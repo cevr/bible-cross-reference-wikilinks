@@ -1,8 +1,0 @@
-[[Deuteronomy 21:18]]
-[[2 Samuel 16:11]]
-[[2 Samuel 17:1]]
-[[2 Samuel 17:14]]
-[[2 Samuel 18:12]]
-[[2 Samuel 19:1]]
-[[Psalms 103:13]]
-[[Luke 23:34]]

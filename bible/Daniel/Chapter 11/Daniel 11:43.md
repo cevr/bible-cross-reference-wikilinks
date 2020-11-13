@@ -1,7 +1,0 @@
-[[Exodus 11:8]]
-[[Judges 4:10]]
-[[2 Chronicles 12:3]]
-[[Jeremiah 46:9]]
-[[Ezekiel 30:4]]
-[[Ezekiel 38:5]]
-[[Nahum 3:9]]

@@ -1,5 +1,0 @@
-[[Genesis 14:5]]
-[[Numbers 13:22]]
-[[Deuteronomy 1:28]]
-[[Deuteronomy 2:11]]
-[[2 Samuel 21:16]]

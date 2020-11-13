@@ -1,8 +1,0 @@
-[[1 Samuel 26:10]]
-[[1 Samuel 31:1]]
-[[Songs of Solomon 2:15]]
-[[Jeremiah 18:21]]
-[[Ezekiel 35:5]]
-[[Ezekiel 39:4]]
-[[Ezekiel 39:17]]
-[[Revelation 19:17]]

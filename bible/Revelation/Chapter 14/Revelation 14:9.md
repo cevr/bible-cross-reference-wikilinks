@@ -1,5 +1,0 @@
-[[Jeremiah 44:4]]
-[[Revelation 13:3]]
-[[Revelation 13:11]]
-[[Revelation 14:6]]
-[[Revelation 14:11]]

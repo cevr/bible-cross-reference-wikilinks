@@ -1,6 +1,0 @@
-[[Esther 1:10]]
-[[Esther 1:12]]
-[[Romans 12:15]]
-[[1 Corinthians 12:26]]
-[[Philippians 2:4]]
-[[Hebrews 4:15]]

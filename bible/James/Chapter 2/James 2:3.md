@@ -1,5 +1,0 @@
-[[Isaiah 65:5]]
-[[Luke 7:44]]
-[[2 Corinthians 8:9]]
-[[James 2:6]]
-[[Jude 1:16]]

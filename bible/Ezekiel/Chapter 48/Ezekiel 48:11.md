@@ -1,8 +1,0 @@
-[[Ezekiel 40:46]]
-[[Ezekiel 43:19]]
-[[Ezekiel 44:10]]
-[[Ezekiel 44:15]]
-[[Matthew 24:45]]
-[[2 Timothy 4:7]]
-[[1 Peter 5:4]]
-[[Revelation 2:10]]

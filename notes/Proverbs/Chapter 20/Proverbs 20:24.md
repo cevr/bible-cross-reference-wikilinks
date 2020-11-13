@@ -1,0 +1,15 @@
+---
+Links:
+[[Psalms 25:4]]
+[[Psalms 25:12]]
+[[Psalms 37:23]]
+[[Proverbs 14:8]]
+[[Proverbs 16:1]]
+[[Proverbs 16:9]]
+[[Isaiah 10:6]]
+[[Jeremiah 10:23]]
+[[Daniel 5:23]]
+[[Acts 17:28]]
+---
+
+"Man's goings are of the LORD; how can a man then understand his own way?"

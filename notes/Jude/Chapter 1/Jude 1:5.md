@@ -1,0 +1,14 @@
+---
+Links:
+[[Numbers 14:22]]
+[[Numbers 26:64]]
+[[Deuteronomy 2:15]]
+[[Psalms 106:26]]
+[[Romans 15:15]]
+[[1 Corinthians 10:1]]
+[[Hebrews 3:16]]
+[[2 Peter 1:12]]
+[[2 Peter 3:1]]
+---
+
+"I will therefore put you in remembrance, though ye once knew this, how that the Lord, having saved the people out of the land of Egypt, afterward destroyed them that believed not."

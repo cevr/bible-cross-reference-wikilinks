@@ -1,0 +1,14 @@
+---
+Links:
+[[Genesis 31:15]]
+[[Psalms 22:30]]
+[[Psalms 87:6]]
+[[John 1:13]]
+[[Romans 4:11]]
+[[Romans 8:14]]
+[[Galatians 3:26]]
+[[Galatians 4:22]]
+[[1 John 3:1]]
+---
+
+"That is, They which are the children of the flesh, these are not the children of God: but the children of the promise are counted for the seed."

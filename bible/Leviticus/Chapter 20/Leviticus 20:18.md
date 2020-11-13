@@ -1,5 +1,0 @@
-[[Exodus 30:33]]
-[[Leviticus 15:24]]
-[[Leviticus 18:19]]
-[[Ezekiel 18:6]]
-[[Ezekiel 22:10]]

@@ -1,0 +1,29 @@
+---
+Links:
+[[1 Samuel 7:6]]
+[[Job 19:9]]
+[[Psalms 89:39]]
+[[Proverbs 14:34]]
+[[Isaiah 3:8]]
+[[Isaiah 3:9]]
+[[Jeremiah 2:17]]
+[[Jeremiah 2:19]]
+[[Jeremiah 4:18]]
+[[Jeremiah 13:18]]
+[[Jeremiah 32:23]]
+[[Lamentations 1:1]]
+[[Lamentations 1:8]]
+[[Lamentations 1:18]]
+[[Lamentations 1:20]]
+[[Lamentations 2:1]]
+[[Lamentations 4:13]]
+[[Ezekiel 7:17]]
+[[Ezekiel 21:26]]
+[[Ezekiel 22:12]]
+[[Micah 6:13]]
+[[2 Peter 2:4]]
+[[Revelation 2:10]]
+[[Revelation 3:11]]
+---
+
+"The crown is fallen from our head: woe unto us, that we have sinned!"

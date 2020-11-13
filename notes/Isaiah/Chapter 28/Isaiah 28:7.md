@@ -1,0 +1,33 @@
+---
+Links:
+[[Leviticus 10:9]]
+[[Psalms 107:27]]
+[[Proverbs 20:1]]
+[[Proverbs 31:4]]
+[[Ecclesiastes 10:17]]
+[[Isaiah 3:12]]
+[[Isaiah 5:11]]
+[[Isaiah 5:22]]
+[[Isaiah 5:23]]
+[[Isaiah 9:15]]
+[[Isaiah 19:14]]
+[[Isaiah 22:13]]
+[[Isaiah 24:2]]
+[[Isaiah 29:11]]
+[[Isaiah 56:10]]
+[[Isaiah 56:12]]
+[[Jeremiah 14:14]]
+[[Jeremiah 23:13]]
+[[Jeremiah 23:16]]
+[[Lamentations 2:4]]
+[[Ezekiel 13:7]]
+[[Ezekiel 44:21]]
+[[Hosea 4:11]]
+[[Hosea 7:5]]
+[[Micah 2:11]]
+[[Matthew 24:29]]
+[[Luke 21:34]]
+[[Ephesians 5:28]]
+---
+
+"But they also have erred through wine, and through strong drink are out of the way; the priest and the prophet have erred through strong drink, they are swallowed up of wine, they are out of the way through strong drink; they err in vision, they stumble in judgment."

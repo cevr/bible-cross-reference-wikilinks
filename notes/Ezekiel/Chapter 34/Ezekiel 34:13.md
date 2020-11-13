@@ -1,0 +1,30 @@
+---
+Links:
+[[Psalms 106:47]]
+[[Isaiah 11:11]]
+[[Isaiah 49:9]]
+[[Isaiah 65:9]]
+[[Isaiah 66:19]]
+[[Jeremiah 23:3]]
+[[Jeremiah 23:8]]
+[[Jeremiah 30:3]]
+[[Jeremiah 30:18]]
+[[Jeremiah 31:8]]
+[[Jeremiah 32:37]]
+[[Jeremiah 33:12]]
+[[Jeremiah 50:19]]
+[[Ezekiel 11:17]]
+[[Ezekiel 20:41]]
+[[Ezekiel 28:25]]
+[[Ezekiel 34:18]]
+[[Ezekiel 36:24]]
+[[Ezekiel 37:21]]
+[[Ezekiel 38:8]]
+[[Ezekiel 39:27]]
+[[Amos 9:14]]
+[[Micah 2:12]]
+[[Micah 7:14]]
+[[Zephaniah 3:19]]
+---
+
+"And I will bring them out from the people, and gather them from the countries, and will bring them to their own land, and feed them upon the mountains of Israel by the rivers, and in all the inhabited places of the country."

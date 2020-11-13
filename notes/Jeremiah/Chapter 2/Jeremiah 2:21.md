@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 18:19]]
+[[Genesis 26:3]]
+[[Genesis 32:28]]
+[[Exodus 15:17]]
+[[Deuteronomy 4:37]]
+[[Deuteronomy 32:32]]
+[[Joshua 24:31]]
+[[Psalms 44:2]]
+[[Psalms 80:8]]
+[[Psalms 80:9]]
+[[Psalms 105:6]]
+[[Isaiah 1:21]]
+[[Isaiah 5:1]]
+[[Isaiah 5:2]]
+[[Isaiah 5:4]]
+[[Isaiah 41:8]]
+[[Isaiah 60:21]]
+[[Isaiah 61:3]]
+[[Jeremiah 5:10]]
+[[Jeremiah 11:16]]
+[[Lamentations 4:1]]
+[[Ezekiel 15:2]]
+[[Matthew 21:33]]
+[[Mark 12:1]]
+[[Luke 20:9]]
+[[John 15:1]]
+---
+
+"Yet I had planted thee a noble vine, wholly a right seed: how then art thou turned into the degenerate plant of a strange vine unto me?"

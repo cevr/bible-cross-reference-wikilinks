@@ -1,6 +1,0 @@
-[[Joshua 10:12]]
-[[2 Kings 20:9]]
-[[2 Kings 20:11]]
-[[2 Chronicles 32:24]]
-[[2 Chronicles 32:31]]
-[[Matthew 16:1]]

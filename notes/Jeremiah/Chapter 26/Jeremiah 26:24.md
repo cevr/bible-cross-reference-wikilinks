@@ -1,0 +1,27 @@
+---
+Links:
+[[1 Kings 18:4]]
+[[2 Kings 22:12]]
+[[2 Kings 25:22]]
+[[2 Chronicles 34:20]]
+[[Isaiah 37:32]]
+[[Jeremiah 1:18]]
+[[Jeremiah 15:15]]
+[[Jeremiah 15:21]]
+[[Jeremiah 29:3]]
+[[Jeremiah 36:10]]
+[[Jeremiah 36:11]]
+[[Jeremiah 36:12]]
+[[Jeremiah 36:19]]
+[[Jeremiah 36:26]]
+[[Jeremiah 39:14]]
+[[Jeremiah 40:5]]
+[[Ezekiel 8:11]]
+[[Acts 23:10]]
+[[Acts 23:20]]
+[[Acts 25:3]]
+[[Acts 27:43]]
+[[Revelation 12:16]]
+---
+
+"Nevertheless the hand of Ahikam the son of Shaphan was with Jeremiah, that they should not give him into the hand of the people to put him to death."

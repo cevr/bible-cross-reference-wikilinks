@@ -1,8 +1,0 @@
-[[Joshua 2:1]]
-[[Joshua 6:1]]
-[[Joshua 15:6]]
-[[Joshua 18:12]]
-[[Joshua 18:19]]
-[[Judges 1:16]]
-[[Luke 10:30]]
-[[Luke 19:1]]

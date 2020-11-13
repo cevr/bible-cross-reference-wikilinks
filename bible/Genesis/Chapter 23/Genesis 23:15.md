@@ -1,5 +1,0 @@
-[[Genesis 33:19]]
-[[Exodus 30:13]]
-[[Exodus 30:15]]
-[[Job 28:1]]
-[[Ezekiel 45:12]]

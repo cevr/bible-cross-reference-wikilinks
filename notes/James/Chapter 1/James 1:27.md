@@ -1,0 +1,30 @@
+---
+Links:
+[[Job 29:12]]
+[[Job 31:15]]
+[[Psalms 68:5]]
+[[Psalms 119:1]]
+[[Isaiah 1:16]]
+[[Isaiah 1:23]]
+[[Isaiah 58:6]]
+[[Matthew 5:8]]
+[[Matthew 25:34]]
+[[Luke 1:6]]
+[[John 17:14]]
+[[Romans 12:2]]
+[[Galatians 1:4]]
+[[Galatians 5:6]]
+[[Galatians 6:9]]
+[[Galatians 6:14]]
+[[Colossians 3:1]]
+[[1 Timothy 1:5]]
+[[1 Timothy 5:4]]
+[[James 3:17]]
+[[James 4:4]]
+[[1 John 2:15]]
+[[1 John 3:17]]
+[[1 John 5:4]]
+[[1 John 5:18]]
+---
+
+"Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world."

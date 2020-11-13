@@ -1,0 +1,32 @@
+---
+Links:
+[[Judges 9:7]]
+[[1 Samuel 26:13]]
+[[2 Chronicles 13:4]]
+[[Ezra 1:1]]
+[[Isaiah 12:2]]
+[[Isaiah 25:9]]
+[[Isaiah 35:3]]
+[[Isaiah 35:4]]
+[[Isaiah 41:27]]
+[[Isaiah 51:7]]
+[[Isaiah 51:12]]
+[[Isaiah 52:6]]
+[[Isaiah 52:7]]
+[[Isaiah 58:4]]
+[[Isaiah 61:1]]
+[[Jeremiah 22:20]]
+[[Luke 24:47]]
+[[Acts 2:14]]
+[[Acts 4:13]]
+[[Acts 4:29]]
+[[Acts 5:41]]
+[[Romans 10:18]]
+[[Ephesians 6:19]]
+[[Philippians 1:28]]
+[[1 Timothy 3:16]]
+[[1 Peter 3:14]]
+[[1 John 5:20]]
+---
+
+"O Zion, that bringest good tidings, get thee up into the high mountain; O Jerusalem, that bringest good tidings, lift up thy voice with strength; lift it up, be not afraid; say unto the cities of Judah, Behold your God!"

@@ -1,6 +1,0 @@
-[[Ezra 10:2]]
-[[Ezra 10:11]]
-[[1 Corinthians 7:6]]
-[[1 Corinthians 7:25]]
-[[1 Corinthians 7:27]]
-[[2 Corinthians 11:17]]

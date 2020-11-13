@@ -1,7 +1,0 @@
-[[1 Kings 18:28]]
-[[Psalms 22:16]]
-[[Proverbs 27:5]]
-[[John 18:35]]
-[[John 19:14]]
-[[Revelation 13:16]]
-[[Revelation 14:11]]

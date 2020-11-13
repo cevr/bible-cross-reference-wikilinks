@@ -1,0 +1,20 @@
+---
+Links:
+[[Acts 11:23]]
+[[Romans 15:24]]
+[[Romans 15:32]]
+[[2 Corinthians 2:1]]
+[[2 Corinthians 7:4]]
+[[2 Corinthians 7:13]]
+[[Ephesians 4:5]]
+[[1 Thessalonians 2:17]]
+[[1 Thessalonians 3:7]]
+[[2 Timothy 1:4]]
+[[Titus 1:4]]
+[[2 Peter 1:1]]
+[[2 John 1:4]]
+[[3 John 1:3]]
+[[Jude 1:3]]
+---
+
+"That is, that I may be comforted together with you by the mutual faith both of you and me."

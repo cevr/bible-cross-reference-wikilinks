@@ -1,0 +1,20 @@
+---
+Links:
+[[2 Samuel 5:11]]
+[[2 Samuel 7:2]]
+[[1 Kings 5:1]]
+[[1 Kings 5:6]]
+[[1 Kings 5:8]]
+[[1 Kings 5:15]]
+[[1 Kings 5:18]]
+[[1 Kings 7:1]]
+[[1 Chronicles 17:1]]
+[[1 Chronicles 22:2]]
+[[2 Chronicles 2:2]]
+[[2 Chronicles 2:3]]
+[[2 Chronicles 2:8]]
+[[Ezra 3:7]]
+[[Jeremiah 22:13]]
+---
+
+"Now Hiram king of Tyre sent messengers to David, and timber of cedars, with masons and carpenters, to build him an house."

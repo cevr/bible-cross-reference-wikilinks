@@ -1,0 +1,29 @@
+---
+Links:
+[[Genesis 39:2]]
+[[Exodus 3:12]]
+[[Deuteronomy 7:24]]
+[[Deuteronomy 20:1]]
+[[Deuteronomy 20:4]]
+[[Deuteronomy 31:6]]
+[[Deuteronomy 31:8]]
+[[Deuteronomy 31:23]]
+[[Joshua 1:9]]
+[[Joshua 1:17]]
+[[Joshua 3:7]]
+[[Joshua 6:27]]
+[[Joshua 10:8]]
+[[Joshua 21:44]]
+[[1 Samuel 10:7]]
+[[Psalms 46:11]]
+[[Isaiah 41:10]]
+[[Isaiah 43:2]]
+[[Matthew 28:20]]
+[[Acts 18:9]]
+[[Romans 8:31]]
+[[Romans 8:37]]
+[[2 Timothy 4:17]]
+[[Hebrews 13:5]]
+---
+
+"There shall not any man be able to stand before thee all the days of thy life: as I was with Moses, so I will be with thee: I will not fail thee, nor forsake thee."

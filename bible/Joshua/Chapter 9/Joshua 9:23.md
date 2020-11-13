@@ -1,5 +1,0 @@
-[[Genesis 9:25]]
-[[Genesis 9:26]]
-[[Leviticus 27:28]]
-[[Joshua 9:21]]
-[[Joshua 9:27]]

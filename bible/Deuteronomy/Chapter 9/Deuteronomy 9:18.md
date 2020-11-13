@@ -1,7 +1,0 @@
-[[Exodus 32:10]]
-[[Exodus 34:28]]
-[[Deuteronomy 9:9]]
-[[Deuteronomy 10:10]]
-[[2 Samuel 12:16]]
-[[Ezra 10:6]]
-[[Psalms 106:23]]

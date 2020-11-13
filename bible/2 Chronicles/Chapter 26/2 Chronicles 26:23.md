@@ -1,7 +1,0 @@
-[[2 Kings 15:6]]
-[[2 Chronicles 21:20]]
-[[2 Chronicles 26:18]]
-[[2 Chronicles 27:1]]
-[[2 Chronicles 28:27]]
-[[2 Chronicles 33:20]]
-[[Isaiah 6:1]]

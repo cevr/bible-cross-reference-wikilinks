@@ -1,7 +1,0 @@
-[[1 Samuel 22:2]]
-[[1 Samuel 25:15]]
-[[1 Samuel 25:21]]
-[[Isaiah 11:6]]
-[[Luke 3:14]]
-[[Philippians 2:15]]
-[[Philippians 4:8]]

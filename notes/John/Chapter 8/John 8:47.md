@@ -1,0 +1,19 @@
+---
+Links:
+[[John 1:12]]
+[[John 6:45]]
+[[John 6:65]]
+[[John 8:37]]
+[[John 8:43]]
+[[John 8:45]]
+[[John 10:26]]
+[[John 17:6]]
+[[John 18:37]]
+[[1 John 3:10]]
+[[1 John 4:1]]
+[[1 John 5:1]]
+[[2 John 1:9]]
+[[3 John 1:11]]
+---
+
+"He that is of God heareth God's words: ye therefore hear them not, because ye are not of God."

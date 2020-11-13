@@ -1,0 +1,22 @@
+---
+Links:
+[[Exodus 29:39]]
+[[1 Chronicles 6:31]]
+[[1 Chronicles 9:33]]
+[[1 Chronicles 16:37]]
+[[1 Chronicles 23:5]]
+[[1 Chronicles 25:1]]
+[[2 Chronicles 29:25]]
+[[2 Chronicles 31:2]]
+[[Ezra 3:10]]
+[[Psalms 92:1]]
+[[Psalms 92:3]]
+[[Psalms 134:1]]
+[[Psalms 135:1]]
+[[Psalms 135:19]]
+[[Psalms 137:2]]
+[[Revelation 5:8]]
+[[Revelation 14:3]]
+---
+
+"And to stand every morning to thank and praise the LORD, and likewise at even;"

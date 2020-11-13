@@ -1,6 +1,0 @@
-[[Genesis 34:19]]
-[[Deuteronomy 21:14]]
-[[Esther 4:11]]
-[[Isaiah 43:1]]
-[[Isaiah 45:4]]
-[[Isaiah 62:4]]

@@ -1,0 +1,32 @@
+---
+Links:
+[[Deuteronomy 29:19]]
+[[Isaiah 11:4]]
+[[Isaiah 24:6]]
+[[Isaiah 43:28]]
+[[Isaiah 61:2]]
+[[Isaiah 65:15]]
+[[Daniel 9:11]]
+[[Daniel 9:26]]
+[[Zechariah 5:3]]
+[[Zechariah 11:6]]
+[[Zechariah 13:8]]
+[[Zechariah 14:2]]
+[[Zechariah 14:12]]
+[[Matthew 22:7]]
+[[Matthew 23:35]]
+[[Matthew 24:27]]
+[[Mark 11:21]]
+[[Mark 13:14]]
+[[Luke 1:16]]
+[[Luke 1:76]]
+[[Luke 19:41]]
+[[Luke 21:22]]
+[[Hebrews 6:8]]
+[[Hebrews 10:26]]
+[[Revelation 19:15]]
+[[Revelation 22:3]]
+[[Revelation 22:20]]
+---
+
+"And he shall turn the heart of the fathers to the children, and the heart of the children to their fathers, lest I come and smite the earth with a curse."

@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 18:21]]
+[[Deuteronomy 18:22]]
+[[Deuteronomy 26:15]]
+[[2 Chronicles 30:27]]
+[[Psalms 11:4]]
+[[Psalms 46:10]]
+[[Psalms 68:5]]
+[[Psalms 78:65]]
+[[Isaiah 14:2]]
+[[Isaiah 19:16]]
+[[Isaiah 26:20]]
+[[Isaiah 42:13]]
+[[Isaiah 51:9]]
+[[Isaiah 57:5]]
+[[Isaiah 57:15]]
+[[Isaiah 63:15]]
+[[Jeremiah 25:30]]
+[[Habakkuk 2:20]]
+[[Zephaniah 1:7]]
+[[Zephaniah 2:9]]
+[[Zephaniah 3:8]]
+[[Zechariah 4:9]]
+[[Zechariah 6:15]]
+[[Romans 3:19]]
+[[Romans 9:20]]
+---
+
+"Be silent, O all flesh, before the LORD: for he is raised up out of his holy habitation."

@@ -1,5 +1,0 @@
-[[1 Chronicles 23:28]]
-[[2 Chronicles 5:11]]
-[[2 Chronicles 29:5]]
-[[2 Chronicles 30:12]]
-[[Nehemiah 13:9]]

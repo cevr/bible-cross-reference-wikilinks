@@ -1,0 +1,30 @@
+---
+Links:
+[[Exodus 10:21]]
+[[Isaiah 13:10]]
+[[Isaiah 24:23]]
+[[Jeremiah 4:23]]
+[[Ezekiel 32:7]]
+[[Joel 2:10]]
+[[Joel 2:31]]
+[[Joel 3:15]]
+[[Amos 8:9]]
+[[Zechariah 13:8]]
+[[Matthew 24:29]]
+[[Matthew 27:45]]
+[[Mark 13:24]]
+[[Mark 15:33]]
+[[Luke 21:25]]
+[[Luke 23:44]]
+[[Acts 2:20]]
+[[2 Corinthians 4:4]]
+[[2 Thessalonians 2:9]]
+[[Revelation 6:12]]
+[[Revelation 8:7]]
+[[Revelation 9:15]]
+[[Revelation 9:18]]
+[[Revelation 12:4]]
+[[Revelation 16:8]]
+---
+
+"And the fourth angel sounded, and the third part of the sun was smitten, and the third part of the moon, and the third part of the stars; so as the third part of them was darkened, and the day shone not for a third part of it, and the night likewise."

@@ -1,7 +1,0 @@
-[[Exodus 23:13]]
-[[Exodus 29:35]]
-[[Ephesians 5:33]]
-[[Colossians 3:20]]
-[[Colossians 3:22]]
-[[Titus 2:7]]
-[[Titus 2:9]]

@@ -1,5 +1,0 @@
-[[Ezra 2:37]]
-[[Ezra 10:2]]
-[[Nehemiah 7:40]]
-[[Nehemiah 10:8]]
-[[Jeremiah 19:2]]

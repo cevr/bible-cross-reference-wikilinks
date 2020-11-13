@@ -1,0 +1,27 @@
+---
+Links:
+[[Leviticus 26:42]]
+[[Leviticus 26:45]]
+[[2 Samuel 23:5]]
+[[Nehemiah 1:5]]
+[[Psalms 105:8]]
+[[Psalms 106:45]]
+[[Isaiah 14:1]]
+[[Isaiah 55:3]]
+[[Isaiah 61:8]]
+[[Jeremiah 2:2]]
+[[Jeremiah 31:31]]
+[[Jeremiah 32:38]]
+[[Jeremiah 33:20]]
+[[Jeremiah 50:5]]
+[[Ezekiel 16:8]]
+[[Ezekiel 37:26]]
+[[Hosea 2:15]]
+[[Hosea 2:19]]
+[[Luke 1:72]]
+[[Hebrews 8:10]]
+[[Hebrews 12:24]]
+[[Hebrews 13:20]]
+---
+
+"Nevertheless I will remember my covenant with thee in the days of thy youth, and I will establish unto thee an everlasting covenant."

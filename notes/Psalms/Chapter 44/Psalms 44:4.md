@@ -1,0 +1,19 @@
+---
+Links:
+[[Exodus 15:6]]
+[[Deuteronomy 7:8]]
+[[Deuteronomy 7:19]]
+[[Joshua 24:12]]
+[[Psalms 42:8]]
+[[Psalms 74:12]]
+[[Psalms 89:18]]
+[[Psalms 111:6]]
+[[Psalms 149:2]]
+[[Isaiah 33:22]]
+[[Mark 1:25]]
+[[Mark 1:31]]
+[[Mark 1:41]]
+[[Mark 9:25]]
+---
+
+"Thou art my King, O God: command deliverances for Jacob."

@@ -1,0 +1,20 @@
+---
+Links:
+[[Psalms 72:16]]
+[[Psalms 110:3]]
+[[Matthew 13:44]]
+[[Luke 5:5]]
+[[John 14:12]]
+[[John 21:11]]
+[[Acts 1:15]]
+[[Acts 2:37]]
+[[Acts 2:47]]
+[[Acts 4:4]]
+[[Acts 8:6]]
+[[Acts 13:48]]
+[[Acts 16:31]]
+[[Galatians 4:14]]
+[[1 Thessalonians 1:6]]
+---
+
+"Then they that gladly received his word were baptized: and the same day there were added unto them about three thousand souls."

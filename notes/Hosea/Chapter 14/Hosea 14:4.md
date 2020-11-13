@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 15:26]]
+[[Numbers 25:4]]
+[[Numbers 25:11]]
+[[Deuteronomy 7:7]]
+[[Psalms 10:14]]
+[[Psalms 20:8]]
+[[Psalms 78:38]]
+[[Isaiah 12:1]]
+[[Isaiah 57:18]]
+[[Jeremiah 3:22]]
+[[Jeremiah 5:6]]
+[[Jeremiah 8:22]]
+[[Jeremiah 14:7]]
+[[Jeremiah 17:14]]
+[[Jeremiah 33:6]]
+[[Hosea 2:19]]
+[[Hosea 6:1]]
+[[Hosea 11:7]]
+[[Zephaniah 3:17]]
+[[Matthew 9:12]]
+[[Romans 3:24]]
+[[2 Corinthians 5:19]]
+[[Ephesians 1:6]]
+[[Ephesians 2:4]]
+[[2 Timothy 1:9]]
+[[Titus 3:4]]
+---
+
+"I will heal their backsliding, I will love them freely: for mine anger is turned away from him."

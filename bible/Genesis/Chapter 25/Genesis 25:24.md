@@ -1,5 +1,0 @@
-[[Genesis 36:1]]
-[[Genesis 38:27]]
-[[Deuteronomy 23:7]]
-[[Joshua 24:4]]
-[[1 Chronicles 1:34]]

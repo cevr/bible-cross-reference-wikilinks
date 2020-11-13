@@ -1,0 +1,29 @@
+---
+Links:
+[[Genesis 26:2]]
+[[Exodus 32:14]]
+[[Deuteronomy 32:36]]
+[[Judges 2:18]]
+[[2 Samuel 24:16]]
+[[Psalms 37:3]]
+[[Psalms 69:35]]
+[[Psalms 102:16]]
+[[Psalms 106:45]]
+[[Jeremiah 18:7]]
+[[Jeremiah 18:8]]
+[[Jeremiah 24:6]]
+[[Jeremiah 26:19]]
+[[Jeremiah 31:28]]
+[[Jeremiah 33:7]]
+[[Ezekiel 36:36]]
+[[Hosea 11:8]]
+[[Joel 2:13]]
+[[Amos 7:3]]
+[[Amos 7:6]]
+[[Jonah 3:4]]
+[[Jonah 3:10]]
+[[Jonah 4:2]]
+[[Acts 15:16]]
+---
+
+"If ye will still abide in this land, then will I build you, and not pull you down, and I will plant you, and not pluck you up: for I repent me of the evil that I have done unto you."

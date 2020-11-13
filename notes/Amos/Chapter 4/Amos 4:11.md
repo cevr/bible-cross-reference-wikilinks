@@ -1,0 +1,26 @@
+---
+Links:
+[[Genesis 19:24]]
+[[Deuteronomy 28:24]]
+[[Isaiah 9:12]]
+[[Isaiah 13:19]]
+[[Jeremiah 5:3]]
+[[Jeremiah 6:28]]
+[[Jeremiah 23:14]]
+[[Jeremiah 49:18]]
+[[Jeremiah 50:40]]
+[[Ezekiel 22:17]]
+[[Ezekiel 24:13]]
+[[Hosea 11:5]]
+[[Hosea 11:8]]
+[[Amos 4:6]]
+[[Haggai 2:17]]
+[[Zechariah 3:2]]
+[[1 Corinthians 3:15]]
+[[2 Peter 2:6]]
+[[Jude 1:7]]
+[[Jude 1:23]]
+[[Revelation 9:20]]
+---
+
+"I have overthrown some of you, as God overthrew Sodom and Gomorrah, and ye were as a firebrand plucked out of the burning: yet have ye not returned unto me, saith the LORD."

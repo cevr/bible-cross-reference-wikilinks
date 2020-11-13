@@ -1,0 +1,20 @@
+---
+Links:
+[[Deuteronomy 32:8]]
+[[1 Kings 8:27]]
+[[2 Chronicles 2:5]]
+[[2 Chronicles 6:18]]
+[[Psalms 7:17]]
+[[Psalms 46:4]]
+[[Psalms 91:1]]
+[[Psalms 91:9]]
+[[Psalms 92:8]]
+[[Isaiah 66:1]]
+[[Daniel 4:17]]
+[[Daniel 4:24]]
+[[Daniel 4:34]]
+[[Hosea 7:16]]
+[[Acts 17:24]]
+---
+
+"Howbeit the most High dwelleth not in temples made with hands; as saith the prophet,"

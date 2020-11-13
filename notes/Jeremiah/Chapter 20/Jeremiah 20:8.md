@@ -1,0 +1,31 @@
+---
+Links:
+[[2 Kings 2:23]]
+[[2 Chronicles 36:16]]
+[[Isaiah 57:4]]
+[[Jeremiah 4:19]]
+[[Jeremiah 5:1]]
+[[Jeremiah 5:6]]
+[[Jeremiah 5:15]]
+[[Jeremiah 6:6]]
+[[Jeremiah 6:7]]
+[[Jeremiah 6:10]]
+[[Jeremiah 7:9]]
+[[Jeremiah 13:13]]
+[[Jeremiah 15:1]]
+[[Jeremiah 15:10]]
+[[Jeremiah 15:13]]
+[[Jeremiah 15:15]]
+[[Jeremiah 17:27]]
+[[Jeremiah 18:16]]
+[[Jeremiah 19:7]]
+[[Jeremiah 20:7]]
+[[Jeremiah 28:8]]
+[[Lamentations 3:61]]
+[[Luke 11:45]]
+[[Hebrews 11:26]]
+[[Hebrews 13:13]]
+[[1 Peter 4:14]]
+---
+
+"For since I spake, I cried out, I cried violence and spoil; because the word of the LORD was made a reproach unto me, and a derision, daily."

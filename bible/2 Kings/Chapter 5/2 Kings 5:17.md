@@ -1,6 +1,0 @@
-[[Exodus 20:24]]
-[[2 Kings 5:12]]
-[[Acts 26:18]]
-[[Romans 14:1]]
-[[1 Thessalonians 1:9]]
-[[1 Peter 4:3]]

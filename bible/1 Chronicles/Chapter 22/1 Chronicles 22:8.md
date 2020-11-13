@@ -1,8 +1,0 @@
-[[Numbers 31:20]]
-[[Numbers 31:24]]
-[[2 Samuel 7:5]]
-[[1 Kings 1:20]]
-[[1 Kings 5:3]]
-[[1 Kings 5:17]]
-[[1 Chronicles 17:4]]
-[[1 Chronicles 28:3]]

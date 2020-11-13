@@ -1,8 +1,0 @@
-[[Genesis 47:17]]
-[[Exodus 5:3]]
-[[Exodus 7:4]]
-[[Exodus 8:19]]
-[[1 Samuel 5:6]]
-[[1 Samuel 6:9]]
-[[Amos 4:10]]
-[[Acts 13:11]]

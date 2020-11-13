@@ -1,7 +1,0 @@
-[[Leviticus 23:34]]
-[[Deuteronomy 11:10]]
-[[Isaiah 60:12]]
-[[Isaiah 66:23]]
-[[Micah 5:8]]
-[[Zechariah 14:12]]
-[[Zechariah 14:15]]

@@ -1,6 +1,0 @@
-[[Joshua 8:4]]
-[[Joshua 8:9]]
-[[1 Kings 15:1]]
-[[2 Chronicles 20:22]]
-[[Proverbs 21:30]]
-[[Jeremiah 4:22]]

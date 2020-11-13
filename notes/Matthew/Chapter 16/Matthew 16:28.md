@@ -1,0 +1,19 @@
+---
+Links:
+[[Matthew 10:23]]
+[[Matthew 24:3]]
+[[Matthew 24:27]]
+[[Matthew 24:42]]
+[[Matthew 26:64]]
+[[Mark 9:1]]
+[[Mark 13:26]]
+[[Luke 2:26]]
+[[Luke 9:27]]
+[[Luke 18:8]]
+[[Luke 21:27]]
+[[John 8:52]]
+[[1 Thessalonians 1:10]]
+[[Hebrews 2:9]]
+---
+
+"Verily I say unto you, There be some standing here, which shall not taste of death, till they see the Son of man coming in his kingdom."

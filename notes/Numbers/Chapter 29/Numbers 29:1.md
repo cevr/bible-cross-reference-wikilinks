@@ -1,0 +1,21 @@
+---
+Links:
+[[Leviticus 23:7]]
+[[Leviticus 23:23]]
+[[Leviticus 23:24]]
+[[Numbers 10:1]]
+[[Numbers 29:35]]
+[[1 Chronicles 15:28]]
+[[Ezra 3:6]]
+[[Nehemiah 7:73]]
+[[Nehemiah 8:2]]
+[[Psalms 81:3]]
+[[Psalms 89:15]]
+[[Isaiah 27:13]]
+[[Zechariah 9:14]]
+[[Mark 16:15]]
+[[Romans 10:14]]
+[[Romans 15:16]]
+---
+
+"And in the seventh month, on the first day of the month, ye shall have an holy convocation; ye shall do no servile work: it is a day of blowing the trumpets unto you."

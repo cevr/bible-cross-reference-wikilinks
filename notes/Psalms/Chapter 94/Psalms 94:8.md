@@ -1,0 +1,17 @@
+---
+Links:
+[[Deuteronomy 32:29]]
+[[Psalms 49:10]]
+[[Psalms 73:22]]
+[[Psalms 92:6]]
+[[Proverbs 1:22]]
+[[Proverbs 8:5]]
+[[Proverbs 12:1]]
+[[Isaiah 27:11]]
+[[Jeremiah 8:6]]
+[[Jeremiah 10:8]]
+[[Romans 3:11]]
+[[Titus 3:3]]
+---
+
+"Understand, ye brutish among the people: and ye fools, when will ye be wise?"

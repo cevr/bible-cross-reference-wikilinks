@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 19:24]]
+[[Deuteronomy 29:23]]
+[[Joshua 8:23]]
+[[Job 18:15]]
+[[Psalms 11:6]]
+[[Isaiah 30:33]]
+[[Isaiah 34:9]]
+[[Ezekiel 24:5]]
+[[Ezekiel 38:22]]
+[[Daniel 2:40]]
+[[Daniel 7:7]]
+[[Daniel 7:19]]
+[[Daniel 7:23]]
+[[Daniel 8:24]]
+[[Daniel 8:26]]
+[[Daniel 11:45]]
+[[2 Thessalonians 2:8]]
+[[Revelation 13:1]]
+[[Revelation 13:11]]
+[[Revelation 14:10]]
+[[Revelation 16:13]]
+[[Revelation 17:3]]
+[[Revelation 17:12]]
+[[Revelation 19:19]]
+[[Revelation 20:10]]
+[[Revelation 20:14]]
+[[Revelation 21:8]]
+[[Revelation 22:15]]
+---
+
+"And the beast was taken, and with him the false prophet that wrought miracles before him, with which he deceived them that had received the mark of the beast, and them that worshipped his image. These both were cast alive into a lake of fire burning with brimstone."

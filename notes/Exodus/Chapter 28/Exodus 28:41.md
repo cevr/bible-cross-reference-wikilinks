@@ -1,0 +1,30 @@
+---
+Links:
+[[Exodus 28:1]]
+[[Exodus 28:4]]
+[[Exodus 29:7]]
+[[Exodus 29:9]]
+[[Exodus 29:24]]
+[[Exodus 29:35]]
+[[Exodus 30:23]]
+[[Exodus 30:25]]
+[[Exodus 30:30]]
+[[Exodus 30:35]]
+[[Exodus 40:15]]
+[[Leviticus 8:1]]
+[[Leviticus 8:12]]
+[[Leviticus 10:7]]
+[[Numbers 3:3]]
+[[Numbers 16:5]]
+[[Isaiah 10:27]]
+[[Isaiah 61:1]]
+[[Ezekiel 43:26]]
+[[John 3:34]]
+[[2 Corinthians 1:21]]
+[[Hebrews 5:4]]
+[[Hebrews 7:28]]
+[[1 John 2:20]]
+[[1 John 2:27]]
+---
+
+"And thou shalt put them upon Aaron thy brother, and his sons with him; and shalt anoint them, and consecrate them, and sanctify them, that they may minister unto me in the priest's office."

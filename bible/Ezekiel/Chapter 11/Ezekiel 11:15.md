@@ -1,5 +1,0 @@
-[[Isaiah 65:5]]
-[[Isaiah 66:5]]
-[[Jeremiah 24:1]]
-[[Ezekiel 33:24]]
-[[John 16:2]]

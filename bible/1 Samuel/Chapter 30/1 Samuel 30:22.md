@@ -1,8 +1,0 @@
-[[Deuteronomy 13:13]]
-[[Judges 19:22]]
-[[1 Samuel 22:2]]
-[[1 Samuel 25:17]]
-[[1 Samuel 25:25]]
-[[1 Kings 21:10]]
-[[1 Kings 21:13]]
-[[Matthew 7:12]]

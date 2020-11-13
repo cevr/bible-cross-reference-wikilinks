@@ -1,0 +1,20 @@
+---
+Links:
+[[Judges 3:15]]
+[[1 Kings 3:9]]
+[[1 Kings 3:28]]
+[[Nehemiah 9:13]]
+[[Psalms 72:1]]
+[[Psalms 119:34]]
+[[Psalms 119:128]]
+[[Psalms 119:160]]
+[[Psalms 119:172]]
+[[Proverbs 2:1]]
+[[Proverbs 8:20]]
+[[Isaiah 11:2]]
+[[Matthew 13:11]]
+[[Philippians 1:9]]
+[[James 3:13]]
+---
+
+"Teach me good judgment and knowledge: for I have believed thy commandments."

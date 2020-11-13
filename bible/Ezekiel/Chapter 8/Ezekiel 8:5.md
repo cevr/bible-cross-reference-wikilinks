@@ -1,7 +1,0 @@
-[[Psalms 48:2]]
-[[Psalms 78:58]]
-[[Jeremiah 3:2]]
-[[Jeremiah 32:34]]
-[[Ezekiel 5:11]]
-[[Ezekiel 8:3]]
-[[Zechariah 5:5]]

@@ -1,0 +1,33 @@
+---
+Links:
+[[1 Samuel 7:3]]
+[[1 Kings 8:47]]
+[[2 Chronicles 29:6]]
+[[Nehemiah 1:8]]
+[[Isaiah 2:20]]
+[[Isaiah 30:22]]
+[[Isaiah 55:6]]
+[[Jeremiah 8:5]]
+[[Jeremiah 13:27]]
+[[Jeremiah 31:18]]
+[[Jeremiah 50:4]]
+[[Lamentations 3:39]]
+[[Ezekiel 8:16]]
+[[Ezekiel 14:4]]
+[[Ezekiel 16:63]]
+[[Ezekiel 18:30]]
+[[Ezekiel 36:31]]
+[[Hosea 14:1]]
+[[Hosea 14:8]]
+[[Jonah 3:7]]
+[[Zephaniah 3:11]]
+[[Zechariah 1:4]]
+[[Matthew 3:8]]
+[[Acts 3:19]]
+[[Acts 17:30]]
+[[Acts 26:20]]
+[[Romans 6:21]]
+[[James 4:8]]
+---
+
+"Therefore say unto the house of Israel, Thus saith the Lord GOD; Repent, and turn yourselves from your idols; and turn away your faces from all your abominations."

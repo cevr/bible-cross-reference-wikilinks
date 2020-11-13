@@ -1,7 +1,0 @@
-[[Joshua 9:17]]
-[[Joshua 18:25]]
-[[Joshua 18:26]]
-[[2 Samuel 3:22]]
-[[2 Samuel 23:37]]
-[[2 Kings 5:2]]
-[[2 Kings 6:23]]

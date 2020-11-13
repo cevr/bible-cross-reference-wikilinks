@@ -1,0 +1,30 @@
+---
+Links:
+[[2 Kings 17:13]]
+[[2 Chronicles 36:15]]
+[[Nehemiah 9:29]]
+[[Job 22:21]]
+[[Job 33:6]]
+[[Job 33:23]]
+[[Proverbs 1:22]]
+[[Proverbs 13:17]]
+[[Isaiah 27:5]]
+[[Isaiah 55:6]]
+[[Jeremiah 13:16]]
+[[Jeremiah 38:20]]
+[[Jeremiah 44:4]]
+[[Ezekiel 18:31]]
+[[Malachi 2:7]]
+[[Luke 10:16]]
+[[Luke 14:23]]
+[[John 20:21]]
+[[Acts 26:17]]
+[[1 Corinthians 4:4]]
+[[2 Corinthians 3:6]]
+[[2 Corinthians 5:11]]
+[[2 Corinthians 6:1]]
+[[Ephesians 6:20]]
+[[1 Thessalonians 4:8]]
+---
+
+"Now then we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead, be ye reconciled to God."

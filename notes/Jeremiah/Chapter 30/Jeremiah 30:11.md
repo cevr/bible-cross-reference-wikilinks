@@ -1,0 +1,30 @@
+---
+Links:
+[[Exodus 34:7]]
+[[2 Samuel 24:12]]
+[[Psalms 6:1]]
+[[Isaiah 8:10]]
+[[Isaiah 27:7]]
+[[Isaiah 43:25]]
+[[Jeremiah 1:8]]
+[[Jeremiah 1:19]]
+[[Jeremiah 4:27]]
+[[Jeremiah 5:10]]
+[[Jeremiah 5:18]]
+[[Jeremiah 10:24]]
+[[Jeremiah 15:20]]
+[[Jeremiah 46:27]]
+[[Ezekiel 11:13]]
+[[Ezekiel 11:16]]
+[[Hosea 11:9]]
+[[Amos 9:8]]
+[[Matthew 1:23]]
+[[Matthew 28:20]]
+[[Acts 18:10]]
+[[Romans 9:27]]
+[[Romans 11:5]]
+[[2 Timothy 4:17]]
+[[2 Timothy 4:22]]
+---
+
+"For I am with thee, saith the LORD, to save thee: though I make a full end of all nations whither I have scattered thee, yet will I not make a full end of thee: but I will correct thee in measure, and will not leave thee altogether unpunished."

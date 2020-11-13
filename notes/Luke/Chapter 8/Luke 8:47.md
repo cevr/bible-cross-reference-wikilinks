@@ -1,0 +1,21 @@
+---
+Links:
+[[1 Samuel 16:4]]
+[[Psalms 2:11]]
+[[Psalms 38:9]]
+[[Psalms 66:16]]
+[[Isaiah 66:2]]
+[[Hosea 5:3]]
+[[Hosea 13:1]]
+[[Habakkuk 3:16]]
+[[Matthew 28:8]]
+[[Mark 5:33]]
+[[Luke 17:15]]
+[[Acts 16:29]]
+[[1 Corinthians 2:3]]
+[[2 Corinthians 7:15]]
+[[Philippians 2:12]]
+[[Hebrews 12:28]]
+---
+
+"And when the woman saw that she was not hid, she came trembling, and falling down before him, she declared unto him before all the people for what cause she had touched him, and how she was healed immediately."

@@ -1,0 +1,27 @@
+---
+Links:
+[[Proverbs 11:18]]
+[[Ecclesiastes 11:4]]
+[[Ecclesiastes 11:6]]
+[[Isaiah 28:24]]
+[[Isaiah 32:20]]
+[[Matthew 3:2]]
+[[Matthew 4:17]]
+[[Matthew 13:3]]
+[[Matthew 13:11]]
+[[Matthew 13:24]]
+[[Matthew 13:31]]
+[[Matthew 13:33]]
+[[Mark 4:3]]
+[[Mark 4:14]]
+[[Luke 8:5]]
+[[Luke 8:11]]
+[[Luke 13:18]]
+[[John 4:36]]
+[[John 12:24]]
+[[1 Corinthians 3:6]]
+[[James 3:18]]
+[[1 Peter 1:23]]
+---
+
+"And he said, So is the kingdom of God, as if a man should cast seed into the ground;"

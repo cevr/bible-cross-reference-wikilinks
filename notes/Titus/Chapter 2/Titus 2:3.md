@@ -1,0 +1,17 @@
+---
+Links:
+[[Romans 16:2]]
+[[Ephesians 5:3]]
+[[1 Timothy 2:9]]
+[[1 Timothy 3:8]]
+[[1 Timothy 3:11]]
+[[1 Timothy 5:5]]
+[[1 Timothy 5:23]]
+[[Titus 1:7]]
+[[Titus 2:4]]
+[[Hebrews 5:12]]
+[[1 Peter 3:3]]
+[[Revelation 2:20]]
+---
+
+"The aged women likewise, that they be in behaviour as becometh holiness, not false accusers, not given to much wine, teachers of good things;"

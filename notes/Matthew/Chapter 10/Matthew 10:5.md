@@ -1,0 +1,28 @@
+---
+Links:
+[[2 Kings 17:24]]
+[[Matthew 4:15]]
+[[Matthew 22:3]]
+[[Luke 9:2]]
+[[Luke 9:52]]
+[[Luke 10:1]]
+[[Luke 10:33]]
+[[Luke 17:16]]
+[[John 4:5]]
+[[John 4:9]]
+[[John 4:20]]
+[[John 4:22]]
+[[John 4:39]]
+[[John 7:35]]
+[[John 8:48]]
+[[John 20:21]]
+[[Acts 1:8]]
+[[Acts 8:1]]
+[[Acts 8:5]]
+[[Acts 10:45]]
+[[Acts 22:21]]
+[[Romans 15:8]]
+[[1 Thessalonians 2:16]]
+---
+
+"These twelve Jesus sent forth, and commanded them, saying, Go not into the way of the Gentiles, and into any city of the Samaritans enter ye not:"

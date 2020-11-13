@@ -1,0 +1,31 @@
+---
+Links:
+[[1 Samuel 12:23]]
+[[1 Kings 18:1]]
+[[1 Kings 18:27]]
+[[1 Kings 18:45]]
+[[2 Chronicles 6:26]]
+[[Psalms 5:8]]
+[[Psalms 25:4]]
+[[Psalms 25:8]]
+[[Psalms 25:12]]
+[[Psalms 27:11]]
+[[Psalms 32:8]]
+[[Psalms 68:9]]
+[[Psalms 68:10]]
+[[Psalms 86:11]]
+[[Psalms 94:12]]
+[[Psalms 119:33]]
+[[Psalms 143:8]]
+[[Isaiah 30:21]]
+[[Isaiah 35:8]]
+[[Jeremiah 6:16]]
+[[Jeremiah 14:22]]
+[[Jeremiah 42:3]]
+[[Joel 2:23]]
+[[Micah 4:2]]
+[[Matthew 22:16]]
+[[James 5:17]]
+---
+
+"Then hear thou in heaven, and forgive the sin of thy servants, and of thy people Israel, that thou teach them the good way wherein they should walk, and give rain upon thy land, which thou hast given to thy people for an inheritance."

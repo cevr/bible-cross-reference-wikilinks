@@ -1,6 +1,0 @@
-[[Leviticus 26:32]]
-[[Leviticus 26:36]]
-[[Deuteronomy 28:33]]
-[[Judges 6:2]]
-[[1 Samuel 13:6]]
-[[1 Samuel 13:7]]

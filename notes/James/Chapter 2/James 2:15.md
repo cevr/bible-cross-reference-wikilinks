@@ -1,0 +1,15 @@
+---
+Links:
+[[Job 31:16]]
+[[Isaiah 58:7]]
+[[Isaiah 58:10]]
+[[Ezekiel 18:7]]
+[[Matthew 25:35]]
+[[Mark 14:7]]
+[[Luke 3:11]]
+[[Acts 9:29]]
+[[Hebrews 11:37]]
+[[James 2:5]]
+---
+
+"If a brother or sister be naked, and destitute of daily food,"

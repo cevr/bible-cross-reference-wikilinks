@@ -1,0 +1,33 @@
+---
+Links:
+[[Isaiah 28:7]]
+[[Isaiah 56:9]]
+[[Isaiah 56:11]]
+[[Isaiah 57:17]]
+[[Jeremiah 2:8]]
+[[Jeremiah 2:26]]
+[[Jeremiah 5:31]]
+[[Jeremiah 8:10]]
+[[Jeremiah 14:18]]
+[[Jeremiah 22:17]]
+[[Jeremiah 23:10]]
+[[Jeremiah 23:11]]
+[[Jeremiah 23:14]]
+[[Jeremiah 26:7]]
+[[Jeremiah 32:32]]
+[[Lamentations 4:13]]
+[[Ezekiel 22:12]]
+[[Ezekiel 22:25]]
+[[Ezekiel 33:31]]
+[[Micah 2:1]]
+[[Micah 3:2]]
+[[Micah 3:5]]
+[[Micah 3:11]]
+[[Zephaniah 3:3]]
+[[Luke 16:14]]
+[[1 Timothy 3:3]]
+[[2 Peter 2:3]]
+[[2 Peter 2:14]]
+---
+
+"For from the least of them even unto the greatest of them every one is given to covetousness; and from the prophet even unto the priest every one dealeth falsely."

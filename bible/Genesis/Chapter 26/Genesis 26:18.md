@@ -1,6 +1,0 @@
-[[Genesis 21:30]]
-[[Genesis 21:31]]
-[[Numbers 32:38]]
-[[Psalms 16:4]]
-[[Hosea 2:17]]
-[[Zechariah 13:2]]

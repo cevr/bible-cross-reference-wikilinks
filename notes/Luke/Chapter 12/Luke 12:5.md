@@ -1,0 +1,20 @@
+---
+Links:
+[[Psalms 9:17]]
+[[Proverbs 14:26]]
+[[Jeremiah 5:22]]
+[[Jeremiah 10:7]]
+[[Matthew 5:22]]
+[[Matthew 10:28]]
+[[Matthew 25:41]]
+[[Matthew 25:46]]
+[[Mark 13:23]]
+[[1 Thessalonians 4:6]]
+[[Hebrews 10:31]]
+[[2 Peter 2:4]]
+[[Revelation 14:7]]
+[[Revelation 15:4]]
+[[Revelation 20:14]]
+---
+
+"But I will forewarn you whom ye shall fear: Fear him, which after he hath killed hath power to cast into hell; yea, I say unto you, Fear him."

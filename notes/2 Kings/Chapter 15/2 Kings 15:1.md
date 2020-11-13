@@ -1,0 +1,16 @@
+---
+Links:
+[[2 Kings 14:16]]
+[[2 Kings 14:21]]
+[[2 Kings 14:23]]
+[[2 Kings 15:8]]
+[[2 Kings 15:13]]
+[[2 Kings 15:17]]
+[[2 Kings 15:27]]
+[[2 Kings 15:30]]
+[[2 Chronicles 26:1]]
+[[2 Chronicles 26:3]]
+[[Isaiah 1:1]]
+---
+
+"In the twenty and seventh year of Jeroboam king of Israel began Azariah son of Amaziah king of Judah to reign."

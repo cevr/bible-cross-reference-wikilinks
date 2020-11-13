@@ -1,0 +1,14 @@
+---
+Links:
+[[Numbers 16:15]]
+[[Luke 8:15]]
+[[Acts 20:33]]
+[[Romans 2:7]]
+[[1 Corinthians 15:58]]
+[[2 Corinthians 12:16]]
+[[Galatians 6:9]]
+[[Philippians 2:20]]
+[[1 Thessalonians 2:5]]
+---
+
+"Yea, also I continued in the work of this wall, neither bought we any land: and all my servants were gathered thither unto the work."

@@ -1,0 +1,28 @@
+---
+Links:
+[[Genesis 17:3]]
+[[Ezekiel 1:28]]
+[[Ezekiel 2:1]]
+[[Ezekiel 6:2]]
+[[Daniel 2:46]]
+[[Daniel 8:15]]
+[[Daniel 8:19]]
+[[Daniel 9:23]]
+[[Daniel 9:27]]
+[[Daniel 10:7]]
+[[Daniel 10:11]]
+[[Daniel 10:16]]
+[[Daniel 11:27]]
+[[Daniel 11:35]]
+[[Daniel 11:40]]
+[[Daniel 12:4]]
+[[Daniel 12:13]]
+[[Habakkuk 2:3]]
+[[Matthew 17:8]]
+[[Mark 9:4]]
+[[Revelation 1:17]]
+[[Revelation 19:9]]
+[[Revelation 22:8]]
+---
+
+"So he came near where I stood: and when he came, I was afraid, and fell upon my face: but he said unto me, Understand, O son of man: for at the time of the end shall be the vision."

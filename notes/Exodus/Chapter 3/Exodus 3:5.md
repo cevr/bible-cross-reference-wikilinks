@@ -1,0 +1,15 @@
+---
+Links:
+[[Genesis 28:16]]
+[[Genesis 28:17]]
+[[Exodus 4:28]]
+[[Exodus 19:12]]
+[[Exodus 19:21]]
+[[Leviticus 10:3]]
+[[Joshua 5:15]]
+[[Ecclesiastes 5:1]]
+[[Acts 7:33]]
+[[Hebrews 12:20]]
+---
+
+"And he said, Draw not nigh hither: put off thy shoes from off thy feet, for the place whereon thou standest is holy ground."

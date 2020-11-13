@@ -1,8 +1,0 @@
-[[Exodus 29:24]]
-[[Leviticus 7:30]]
-[[Leviticus 8:27]]
-[[Leviticus 8:29]]
-[[Numbers 1:49]]
-[[Numbers 3:5]]
-[[Numbers 6:20]]
-[[Deuteronomy 10:8]]

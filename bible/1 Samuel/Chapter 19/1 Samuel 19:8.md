@@ -1,6 +1,0 @@
-[[1 Samuel 18:14]]
-[[1 Samuel 18:30]]
-[[1 Samuel 23:5]]
-[[1 Kings 20:21]]
-[[Psalms 18:32]]
-[[Psalms 27:3]]

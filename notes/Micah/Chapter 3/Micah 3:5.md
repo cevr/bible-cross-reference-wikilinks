@@ -1,0 +1,30 @@
+---
+Links:
+[[Proverbs 28:21]]
+[[Isaiah 3:12]]
+[[Isaiah 9:15]]
+[[Isaiah 56:9]]
+[[Jeremiah 6:4]]
+[[Jeremiah 6:14]]
+[[Jeremiah 14:14]]
+[[Jeremiah 23:9]]
+[[Jeremiah 23:27]]
+[[Jeremiah 23:32]]
+[[Jeremiah 28:15]]
+[[Jeremiah 29:21]]
+[[Lamentations 2:14]]
+[[Ezekiel 13:9]]
+[[Ezekiel 13:10]]
+[[Ezekiel 13:18]]
+[[Ezekiel 13:19]]
+[[Ezekiel 22:25]]
+[[Hosea 4:5]]
+[[Micah 2:11]]
+[[Micah 3:11]]
+[[Malachi 2:8]]
+[[Matthew 7:15]]
+[[Matthew 15:14]]
+[[Romans 16:18]]
+---
+
+"Thus saith the LORD concerning the prophets that make my people err, that bite with their teeth, and cry, Peace; and he that putteth not into their mouths, they even prepare war against him."

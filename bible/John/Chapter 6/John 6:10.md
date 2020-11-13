@@ -1,5 +1,0 @@
-[[Matthew 14:18]]
-[[Matthew 15:35]]
-[[Mark 6:39]]
-[[Mark 8:6]]
-[[Luke 9:14]]

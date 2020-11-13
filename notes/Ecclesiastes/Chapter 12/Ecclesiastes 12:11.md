@@ -1,0 +1,24 @@
+---
+Links:
+[[Genesis 49:24]]
+[[Ezra 9:8]]
+[[Psalms 23:1]]
+[[Psalms 80:1]]
+[[Proverbs 1:6]]
+[[Proverbs 10:21]]
+[[Proverbs 22:17]]
+[[Isaiah 22:23]]
+[[Isaiah 40:11]]
+[[Jeremiah 23:29]]
+[[Ezekiel 34:23]]
+[[Matthew 3:7]]
+[[John 3:10]]
+[[John 10:14]]
+[[Acts 2:37]]
+[[2 Corinthians 10:4]]
+[[Hebrews 4:12]]
+[[Hebrews 13:20]]
+[[1 Peter 5:4]]
+---
+
+"The words of the wise are as goads, and as nails fastened by the masters of assemblies, which are given from one shepherd."

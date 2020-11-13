@@ -1,0 +1,32 @@
+---
+Links:
+[[1 Samuel 15:11]]
+[[Psalms 44:18]]
+[[Proverbs 1:32]]
+[[Proverbs 14:14]]
+[[Mark 16:16]]
+[[Luke 11:26]]
+[[John 3:15]]
+[[John 5:24]]
+[[John 6:40]]
+[[John 17:12]]
+[[John 20:31]]
+[[Acts 16:30]]
+[[Romans 10:9]]
+[[1 Thessalonians 5:9]]
+[[2 Thessalonians 2:3]]
+[[2 Thessalonians 2:12]]
+[[1 Timothy 6:9]]
+[[Hebrews 6:6]]
+[[Hebrews 10:26]]
+[[Hebrews 11:1]]
+[[1 Peter 1:5]]
+[[2 Peter 3:7]]
+[[1 John 5:5]]
+[[1 John 5:16]]
+[[Jude 1:12]]
+[[Revelation 17:8]]
+[[Revelation 17:11]]
+---
+
+"But we are not of them who draw back unto perdition; but of them that believe to the saving of the soul."

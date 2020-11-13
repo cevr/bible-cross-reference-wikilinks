@@ -1,6 +1,0 @@
-[[Genesis 15:11]]
-[[Matthew 13:4]]
-[[Matthew 13:19]]
-[[Mark 4:15]]
-[[Luke 8:5]]
-[[Luke 8:12]]

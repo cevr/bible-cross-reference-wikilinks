@@ -1,7 +1,0 @@
-[[Psalms 14:4]]
-[[Proverbs 30:14]]
-[[Isaiah 3:15]]
-[[Ezekiel 11:3]]
-[[Ezekiel 11:6]]
-[[Amos 8:4]]
-[[Zephaniah 3:3]]

@@ -1,5 +1,0 @@
-[[Hebrews 7:18]]
-[[Hebrews 8:7]]
-[[Hebrews 9:11]]
-[[Hebrews 10:7]]
-[[Hebrews 12:27]]

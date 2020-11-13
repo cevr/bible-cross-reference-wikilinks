@@ -1,6 +1,0 @@
-[[Numbers 14:25]]
-[[1 Samuel 15:19]]
-[[2 Chronicles 24:20]]
-[[Job 4:9]]
-[[Jeremiah 2:37]]
-[[Jeremiah 32:5]]

@@ -1,6 +1,0 @@
-[[Genesis 32:6]]
-[[Genesis 34:11]]
-[[Genesis 47:25]]
-[[Ruth 2:13]]
-[[1 Samuel 25:8]]
-[[2 Samuel 16:4]]

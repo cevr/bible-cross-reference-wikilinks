@@ -1,0 +1,15 @@
+---
+Links:
+[[Genesis 17:7]]
+[[Exodus 15:2]]
+[[1 Chronicles 16:12]]
+[[Psalms 48:10]]
+[[Psalms 63:1]]
+[[Psalms 95:7]]
+[[Psalms 97:8]]
+[[Psalms 100:3]]
+[[Psalms 118:28]]
+[[Isaiah 26:9]]
+---
+
+"He is the LORD our God; his judgments are in all the earth."

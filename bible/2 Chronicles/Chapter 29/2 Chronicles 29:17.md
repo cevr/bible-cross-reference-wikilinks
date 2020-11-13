@@ -1,6 +1,0 @@
-[[Exodus 12:2]]
-[[1 Kings 6:3]]
-[[1 Chronicles 28:11]]
-[[2 Chronicles 3:4]]
-[[2 Chronicles 29:3]]
-[[2 Chronicles 29:7]]

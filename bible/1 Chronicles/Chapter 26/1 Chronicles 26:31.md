@@ -1,6 +1,0 @@
-[[Joshua 21:39]]
-[[1 Kings 2:11]]
-[[1 Chronicles 6:81]]
-[[1 Chronicles 23:19]]
-[[1 Chronicles 29:27]]
-[[Isaiah 16:9]]

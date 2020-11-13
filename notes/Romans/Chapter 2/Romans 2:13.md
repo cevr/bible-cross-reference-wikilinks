@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 4:1]]
+[[Deuteronomy 5:1]]
+[[Deuteronomy 6:3]]
+[[Deuteronomy 30:12]]
+[[Psalms 143:2]]
+[[Ezekiel 20:11]]
+[[Ezekiel 33:30]]
+[[Matthew 7:21]]
+[[Luke 8:21]]
+[[Luke 10:25]]
+[[Luke 18:14]]
+[[Acts 13:39]]
+[[Romans 2:25]]
+[[Romans 3:20]]
+[[Romans 3:23]]
+[[Romans 3:30]]
+[[Romans 4:2]]
+[[Romans 10:5]]
+[[Galatians 2:16]]
+[[Galatians 3:11]]
+[[Galatians 5:4]]
+[[James 1:22]]
+[[James 2:21]]
+[[1 John 2:29]]
+[[1 John 3:7]]
+---
+
+"(For not the hearers of the law are just before God, but the doers of the law shall be justified."

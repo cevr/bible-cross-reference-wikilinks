@@ -1,8 +1,0 @@
-[[Genesis 12:10]]
-[[Genesis 21:10]]
-[[Deuteronomy 23:2]]
-[[Proverbs 2:16]]
-[[Proverbs 5:3]]
-[[Proverbs 5:20]]
-[[Proverbs 6:24]]
-[[Galatians 4:30]]

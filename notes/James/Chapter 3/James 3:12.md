@@ -1,0 +1,14 @@
+---
+Links:
+[[Exodus 15:23]]
+[[2 Kings 2:19]]
+[[Isaiah 5:2]]
+[[Jeremiah 2:21]]
+[[Ezekiel 47:8]]
+[[Matthew 7:16]]
+[[Matthew 12:33]]
+[[Luke 6:43]]
+[[Romans 11:16]]
+---
+
+"Can the fig tree, my brethren, bear olive berries? either a vine, figs? so can no fountain both yield salt water and fresh."

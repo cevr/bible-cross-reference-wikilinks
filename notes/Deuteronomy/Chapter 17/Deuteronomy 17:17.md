@@ -1,0 +1,25 @@
+---
+Links:
+[[Genesis 2:24]]
+[[2 Samuel 3:2]]
+[[2 Samuel 5:13]]
+[[1 Kings 10:21]]
+[[1 Kings 11:1]]
+[[1 Kings 11:3]]
+[[1 Chronicles 14:3]]
+[[2 Chronicles 11:21]]
+[[Nehemiah 13:26]]
+[[Psalms 62:10]]
+[[Proverbs 30:8]]
+[[Proverbs 31:3]]
+[[Malachi 2:15]]
+[[Matthew 6:19]]
+[[Matthew 13:22]]
+[[Matthew 19:5]]
+[[Matthew 19:23]]
+[[Luke 12:15]]
+[[1 Timothy 6:9]]
+[[1 Timothy 6:17]]
+---
+
+"Neither shall he multiply wives to himself, that his heart turn not away: neither shall he greatly multiply to himself silver and gold."

@@ -1,6 +1,0 @@
-[[Deuteronomy 22:23]]
-[[Deuteronomy 24:5]]
-[[Deuteronomy 28:30]]
-[[Matthew 1:18]]
-[[Luke 14:18]]
-[[2 Timothy 2:4]]

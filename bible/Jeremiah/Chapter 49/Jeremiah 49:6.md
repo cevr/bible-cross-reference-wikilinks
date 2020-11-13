@@ -1,6 +1,0 @@
-[[Isaiah 19:18]]
-[[Isaiah 23:18]]
-[[Jeremiah 46:26]]
-[[Jeremiah 48:47]]
-[[Jeremiah 49:39]]
-[[Ezekiel 16:53]]

@@ -1,5 +1,0 @@
-[[Judges 11:4]]
-[[2 Samuel 10:1]]
-[[2 Chronicles 20:1]]
-[[2 Chronicles 26:8]]
-[[Jeremiah 49:1]]

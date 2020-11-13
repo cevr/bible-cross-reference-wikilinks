@@ -1,0 +1,14 @@
+---
+Links:
+[[Ezra 6:10]]
+[[Ezra 7:23]]
+[[Daniel 4:19]]
+[[Daniel 4:27]]
+[[Daniel 6:4]]
+[[Romans 13:1]]
+[[Romans 13:5]]
+[[1 Timothy 2:1]]
+[[1 Peter 2:13]]
+---
+
+"And seek the peace of the city whither I have caused you to be carried away captives, and pray unto the LORD for it: for in the peace thereof shall ye have peace."

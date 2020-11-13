@@ -1,5 +1,0 @@
-[[Deuteronomy 23:3]]
-[[1 Samuel 11:1]]
-[[1 Samuel 22:3]]
-[[Nehemiah 4:3]]
-[[Nehemiah 13:1]]

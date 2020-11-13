@@ -1,6 +1,0 @@
-[[Exodus 14:17]]
-[[Exodus 15:9]]
-[[Exodus 15:19]]
-[[1 Kings 22:20]]
-[[Ecclesiastes 9:3]]
-[[Isaiah 14:24]]

@@ -1,5 +1,0 @@
-[[1 Kings 11:26]]
-[[1 Kings 11:28]]
-[[1 Kings 11:40]]
-[[1 Kings 12:2]]
-[[2 Chronicles 9:29]]

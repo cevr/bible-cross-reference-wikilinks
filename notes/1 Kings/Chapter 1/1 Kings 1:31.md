@@ -1,0 +1,18 @@
+---
+Links:
+[[1 Samuel 20:41]]
+[[2 Samuel 9:6]]
+[[1 Kings 1:25]]
+[[Nehemiah 2:3]]
+[[Esther 3:2]]
+[[Daniel 2:4]]
+[[Daniel 3:9]]
+[[Daniel 5:10]]
+[[Daniel 6:6]]
+[[Daniel 6:21]]
+[[Matthew 21:37]]
+[[Ephesians 5:33]]
+[[Hebrews 12:9]]
+---
+
+"Then Bath-sheba bowed with her face to the earth, and did reverence to the king, and said, Let my lord king David live for ever."

@@ -1,0 +1,16 @@
+---
+Links:
+[[Genesis 7:18]]
+[[Numbers 16:33]]
+[[Psalms 16:10]]
+[[Psalms 88:4]]
+[[Psalms 124:4]]
+[[Isaiah 43:1]]
+[[Jonah 2:2]]
+[[Matthew 12:40]]
+[[Acts 2:24]]
+[[Acts 2:31]]
+[[Revelation 12:15]]
+---
+
+"Let not the waterflood overflow me, neither let the deep swallow me up, and let not the pit shut her mouth upon me."

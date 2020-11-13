@@ -1,6 +1,0 @@
-[[Judges 5:28]]
-[[Proverbs 5:18]]
-[[Proverbs 7:6]]
-[[Ecclesiastes 9:9]]
-[[Songs of Solomon 2:9]]
-[[Isaiah 62:5]]

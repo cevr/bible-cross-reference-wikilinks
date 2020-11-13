@@ -1,0 +1,21 @@
+---
+Links:
+[[Genesis 39:9]]
+[[Psalms 119:104]]
+[[Romans 3:1]]
+[[Romans 5:11]]
+[[Romans 6:5]]
+[[Romans 7:4]]
+[[Romans 7:6]]
+[[2 Corinthians 5:14]]
+[[Galatians 2:19]]
+[[Galatians 6:14]]
+[[Colossians 2:20]]
+[[Colossians 3:3]]
+[[1 Peter 1:14]]
+[[1 Peter 2:24]]
+[[1 Peter 4:1]]
+[[1 John 3:9]]
+---
+
+"God forbid. How shall we, that are dead to sin, live any longer therein?"

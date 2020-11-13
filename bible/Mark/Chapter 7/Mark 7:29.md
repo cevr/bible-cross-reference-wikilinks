@@ -1,5 +1,0 @@
-[[Isaiah 57:15]]
-[[Isaiah 66:2]]
-[[Matthew 5:3]]
-[[Matthew 8:9]]
-[[1 John 3:8]]

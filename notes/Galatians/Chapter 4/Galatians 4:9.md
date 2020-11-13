@@ -1,0 +1,33 @@
+---
+Links:
+[[Exodus 33:17]]
+[[1 Kings 8:43]]
+[[1 Chronicles 28:9]]
+[[Psalms 1:6]]
+[[Psalms 9:10]]
+[[Proverbs 2:5]]
+[[Jeremiah 31:34]]
+[[Habakkuk 2:14]]
+[[Matthew 11:27]]
+[[Luke 5:38]]
+[[John 10:14]]
+[[John 10:27]]
+[[John 17:3]]
+[[Romans 8:3]]
+[[Romans 8:29]]
+[[1 Corinthians 8:3]]
+[[1 Corinthians 13:12]]
+[[1 Corinthians 15:34]]
+[[2 Corinthians 4:6]]
+[[Galatians 3:3]]
+[[Ephesians 1:17]]
+[[Colossians 2:20]]
+[[2 Timothy 2:19]]
+[[Hebrews 7:18]]
+[[Hebrews 10:38]]
+[[2 Peter 2:20]]
+[[1 John 2:3]]
+[[1 John 5:20]]
+---
+
+"But now, after that ye have known God, or rather are known of God, how turn ye again to the weak and beggarly elements, whereunto ye desire again to be in bondage?"

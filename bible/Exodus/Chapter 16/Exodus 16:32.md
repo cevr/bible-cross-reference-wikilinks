@@ -1,5 +1,0 @@
-[[Psalms 103:1]]
-[[Psalms 105:5]]
-[[Psalms 111:4]]
-[[Luke 22:19]]
-[[Hebrews 2:1]]

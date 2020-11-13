@@ -1,6 +1,0 @@
-[[Leviticus 10:3]]
-[[2 Chronicles 5:11]]
-[[2 Chronicles 29:15]]
-[[2 Chronicles 29:34]]
-[[Nehemiah 12:30]]
-[[Joel 2:16]]

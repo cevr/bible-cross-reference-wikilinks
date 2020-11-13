@@ -1,0 +1,33 @@
+---
+Links:
+[[Leviticus 26:33]]
+[[Deuteronomy 4:27]]
+[[Deuteronomy 28:25]]
+[[Deuteronomy 28:36]]
+[[Deuteronomy 28:64]]
+[[Deuteronomy 32:26]]
+[[Nehemiah 1:8]]
+[[Psalms 106:27]]
+[[Ecclesiastes 12:5]]
+[[Jeremiah 7:29]]
+[[Jeremiah 13:24]]
+[[Jeremiah 15:2]]
+[[Jeremiah 24:10]]
+[[Jeremiah 25:27]]
+[[Jeremiah 29:17]]
+[[Jeremiah 44:27]]
+[[Jeremiah 49:36]]
+[[Ezekiel 5:2]]
+[[Ezekiel 5:12]]
+[[Ezekiel 11:17]]
+[[Ezekiel 12:15]]
+[[Ezekiel 14:17]]
+[[Ezekiel 20:23]]
+[[Ezekiel 27:2]]
+[[Amos 5:16]]
+[[Micah 2:4]]
+[[Zechariah 7:14]]
+[[James 1:1]]
+---
+
+"I will scatter them also among the heathen, whom neither they nor their fathers have known: and I will send a sword after them, till I have consumed them."

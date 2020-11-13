@@ -1,0 +1,18 @@
+---
+Links:
+[[Genesis 18:14]]
+[[Matthew 22:29]]
+[[Luke 1:37]]
+[[Luke 18:27]]
+[[John 5:28]]
+[[Acts 4:2]]
+[[Acts 10:40]]
+[[Acts 13:30]]
+[[Acts 17:31]]
+[[Acts 23:6]]
+[[Acts 25:19]]
+[[1 Corinthians 15:12]]
+[[Philippians 3:21]]
+---
+
+"Why should it be thought a thing incredible with you, that God should raise the dead?"

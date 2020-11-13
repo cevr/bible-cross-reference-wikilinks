@@ -1,0 +1,14 @@
+---
+Links:
+[[John 5:34]]
+[[John 5:44]]
+[[John 6:15]]
+[[John 7:18]]
+[[John 8:50]]
+[[John 8:54]]
+[[1 Thessalonians 2:6]]
+[[1 Peter 2:21]]
+[[2 Peter 1:17]]
+---
+
+"I receive not honour from men."

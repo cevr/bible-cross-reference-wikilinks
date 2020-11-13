@@ -1,6 +1,0 @@
-[[Judges 2:19]]
-[[2 Chronicles 25:14]]
-[[Isaiah 2:8]]
-[[Isaiah 44:10]]
-[[Isaiah 45:20]]
-[[Revelation 9:20]]

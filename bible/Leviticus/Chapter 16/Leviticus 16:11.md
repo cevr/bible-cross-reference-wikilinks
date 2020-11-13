@@ -1,5 +1,0 @@
-[[Leviticus 9:7]]
-[[Leviticus 16:3]]
-[[Leviticus 16:6]]
-[[Hebrews 7:27]]
-[[Hebrews 9:7]]

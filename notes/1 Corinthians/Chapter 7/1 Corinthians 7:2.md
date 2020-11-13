@@ -1,0 +1,15 @@
+---
+Links:
+[[Judges 21:22]]
+[[Proverbs 5:18]]
+[[Proverbs 18:22]]
+[[Proverbs 19:14]]
+[[Malachi 2:14]]
+[[1 Corinthians 6:18]]
+[[1 Corinthians 7:9]]
+[[Ephesians 5:28]]
+[[Ephesians 5:33]]
+[[1 Timothy 4:3]]
+---
+
+"Nevertheless, to avoid fornication, let every man have his own wife, and let every woman have her own husband."

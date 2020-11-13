@@ -1,0 +1,30 @@
+---
+Links:
+[[Job 11:17]]
+[[Job 22:28]]
+[[Job 29:3]]
+[[Psalms 37:6]]
+[[Psalms 97:11]]
+[[Psalms 106:1]]
+[[Psalms 116:5]]
+[[Psalms 145:17]]
+[[Proverbs 21:21]]
+[[Isaiah 50:10]]
+[[Isaiah 58:8]]
+[[Isaiah 58:10]]
+[[Micah 7:8]]
+[[Malachi 4:2]]
+[[Luke 6:36]]
+[[John 12:46]]
+[[2 Corinthians 8:8]]
+[[Ephesians 4:32]]
+[[Ephesians 5:9]]
+[[Ephesians 5:15]]
+[[Colossians 3:12]]
+[[Titus 2:11]]
+[[1 John 2:29]]
+[[1 John 3:7]]
+[[1 John 3:10]]
+---
+
+"Unto the upright there ariseth light in the darkness: he is gracious, and full of compassion, and righteous."

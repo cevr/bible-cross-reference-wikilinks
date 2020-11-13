@@ -1,0 +1,19 @@
+---
+Links:
+[[Numbers 25:4]]
+[[Deuteronomy 21:22]]
+[[Deuteronomy 21:23]]
+[[Joshua 8:29]]
+[[Judges 8:21]]
+[[1 Samuel 15:33]]
+[[2 Samuel 21:6]]
+[[2 Samuel 21:9]]
+[[Esther 2:23]]
+[[Esther 7:9]]
+[[Psalms 18:41]]
+[[Psalms 149:7]]
+[[Matthew 27:25]]
+[[Galatians 3:13]]
+---
+
+"And afterward Joshua smote them, and slew them, and hanged them on five trees: and they were hanging upon the trees until the evening."

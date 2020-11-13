@@ -1,0 +1,22 @@
+---
+Links:
+[[Exodus 12:12]]
+[[Isaiah 2:18]]
+[[Isaiah 19:1]]
+[[Isaiah 46:1]]
+[[Isaiah 57:12]]
+[[Jeremiah 10:8]]
+[[Jeremiah 10:11]]
+[[Jeremiah 10:15]]
+[[Jeremiah 18:15]]
+[[Jeremiah 43:12]]
+[[Jeremiah 46:25]]
+[[Jeremiah 48:7]]
+[[Jeremiah 50:2]]
+[[Ezekiel 6:6]]
+[[Jonah 2:8]]
+[[Zephaniah 2:11]]
+[[Acts 14:15]]
+---
+
+"They are vanity, the work of errors: in the time of their visitation they shall perish."

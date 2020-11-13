@@ -1,0 +1,11 @@
+---
+Links:
+[[Genesis 30:6]]
+[[Genesis 30:22]]
+[[Exodus 3:7]]
+[[1 Samuel 1:20]]
+[[1 Samuel 1:26]]
+[[Luke 1:13]]
+---
+
+"And God hearkened unto Leah, and she conceived, and bare Jacob the fifth son."

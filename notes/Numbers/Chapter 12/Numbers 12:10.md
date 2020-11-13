@@ -1,0 +1,18 @@
+---
+Links:
+[[Exodus 4:6]]
+[[Exodus 33:7]]
+[[Leviticus 13:2]]
+[[Leviticus 13:10]]
+[[Leviticus 13:13]]
+[[Deuteronomy 24:9]]
+[[2 Kings 5:27]]
+[[2 Kings 15:5]]
+[[2 Chronicles 26:19]]
+[[Ezekiel 10:4]]
+[[Ezekiel 10:18]]
+[[Hosea 9:12]]
+[[Matthew 25:41]]
+---
+
+"And the cloud departed from off the tabernacle; and, behold, Miriam became leprous, white as snow: and Aaron looked upon Miriam, and, behold, she was leprous."

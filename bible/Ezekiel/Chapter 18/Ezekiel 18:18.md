@@ -1,8 +1,0 @@
-[[Isaiah 3:11]]
-[[Ezekiel 3:18]]
-[[Ezekiel 18:4]]
-[[Ezekiel 18:20]]
-[[Ezekiel 18:24]]
-[[Ezekiel 18:26]]
-[[John 8:21]]
-[[John 8:24]]

@@ -1,5 +1,0 @@
-[[Joshua 18:1]]
-[[Judges 20:18]]
-[[Judges 20:23]]
-[[Psalms 78:60]]
-[[Jeremiah 7:12]]

@@ -1,0 +1,28 @@
+---
+Links:
+[[Genesis 22:12]]
+[[Matthew 9:13]]
+[[Mark 12:6]]
+[[Luke 2:14]]
+[[John 1:14]]
+[[John 1:18]]
+[[John 1:29]]
+[[John 3:15]]
+[[John 3:36]]
+[[John 6:40]]
+[[John 10:28]]
+[[John 11:25]]
+[[Romans 5:8]]
+[[Romans 5:10]]
+[[Romans 8:32]]
+[[2 Corinthians 5:19]]
+[[Ephesians 2:4]]
+[[2 Thessalonians 2:16]]
+[[1 Timothy 1:15]]
+[[Titus 3:4]]
+[[1 John 4:9]]
+[[1 John 4:19]]
+[[Revelation 1:5]]
+---
+
+"For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life."

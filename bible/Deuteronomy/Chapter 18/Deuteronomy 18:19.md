@@ -1,7 +1,0 @@
-[[Joshua 22:23]]
-[[Mark 16:16]]
-[[Acts 3:22]]
-[[Hebrews 2:3]]
-[[Hebrews 3:7]]
-[[Hebrews 10:26]]
-[[Hebrews 12:25]]

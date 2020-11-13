@@ -1,0 +1,29 @@
+---
+Links:
+[[Deuteronomy 4:45]]
+[[2 Kings 11:12]]
+[[Psalms 25:14]]
+[[Proverbs 8:8]]
+[[Isaiah 8:1]]
+[[Isaiah 8:20]]
+[[Isaiah 29:11]]
+[[Isaiah 54:13]]
+[[Daniel 9:24]]
+[[Daniel 12:4]]
+[[Daniel 12:9]]
+[[Matthew 13:11]]
+[[Mark 4:10]]
+[[Mark 4:34]]
+[[Mark 10:10]]
+[[John 3:32]]
+[[1 Corinthians 2:14]]
+[[Hebrews 3:5]]
+[[1 John 5:9]]
+[[Revelation 2:17]]
+[[Revelation 5:1]]
+[[Revelation 5:5]]
+[[Revelation 10:4]]
+[[Revelation 19:10]]
+---
+
+"Bind up the testimony, seal the law among my disciples."

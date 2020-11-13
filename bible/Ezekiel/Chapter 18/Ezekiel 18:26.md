@@ -1,8 +1,0 @@
-[[Leviticus 6:7]]
-[[Proverbs 2:13]]
-[[Ezekiel 3:20]]
-[[Ezekiel 18:18]]
-[[Ezekiel 18:24]]
-[[Ezekiel 33:18]]
-[[Colossians 1:23]]
-[[1 John 5:17]]

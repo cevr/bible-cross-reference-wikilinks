@@ -1,7 +1,0 @@
-[[Exodus 33:8]]
-[[2 Kings 9:30]]
-[[Job 9:4]]
-[[Job 40:10]]
-[[Proverbs 16:18]]
-[[Proverbs 18:12]]
-[[Isaiah 28:14]]

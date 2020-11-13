@@ -1,0 +1,30 @@
+---
+Links:
+[[1 Kings 15:28]]
+[[1 Kings 16:9]]
+[[1 Kings 16:18]]
+[[1 Kings 16:22]]
+[[2 Kings 9:24]]
+[[2 Kings 9:33]]
+[[2 Kings 10:7]]
+[[2 Kings 10:14]]
+[[2 Kings 15:10]]
+[[2 Kings 15:14]]
+[[2 Kings 15:25]]
+[[2 Kings 15:30]]
+[[Job 36:13]]
+[[Psalms 14:4]]
+[[Isaiah 9:13]]
+[[Isaiah 43:22]]
+[[Isaiah 64:4]]
+[[Isaiah 64:6]]
+[[Isaiah 64:7]]
+[[Ezekiel 22:30]]
+[[Daniel 9:13]]
+[[Hosea 5:15]]
+[[Hosea 7:10]]
+[[Hosea 7:14]]
+[[Hosea 8:4]]
+---
+
+"They are all hot as an oven, and have devoured their judges; all their kings are fallen: there is none among them that calleth unto me."

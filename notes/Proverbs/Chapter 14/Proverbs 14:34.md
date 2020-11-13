@@ -1,0 +1,16 @@
+---
+Links:
+[[Deuteronomy 4:6]]
+[[Deuteronomy 28:1]]
+[[Deuteronomy 29:18]]
+[[Judges 2:6]]
+[[2 Chronicles 28:19]]
+[[Psalms 107:34]]
+[[Proverbs 29:4]]
+[[Jeremiah 2:2]]
+[[Ezekiel 16:1]]
+[[Ezekiel 22:1]]
+[[Hosea 13:1]]
+---
+
+"Righteousness exalteth a nation: but sin is a reproach to any people."

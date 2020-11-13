@@ -1,0 +1,17 @@
+---
+Links:
+[[Joshua 2:1]]
+[[Joshua 2:4]]
+[[Joshua 2:6]]
+[[Joshua 2:15]]
+[[Joshua 2:19]]
+[[Joshua 6:17]]
+[[Joshua 6:22]]
+[[Matthew 1:5]]
+[[Matthew 21:31]]
+[[Hebrews 11:31]]
+[[James 2:18]]
+[[James 2:22]]
+---
+
+"Likewise also was not Rahab the harlot justified by works, when she had received the messengers, and had sent them out another way?"

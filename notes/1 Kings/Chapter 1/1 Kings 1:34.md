@@ -1,0 +1,26 @@
+---
+Links:
+[[1 Samuel 10:1]]
+[[1 Samuel 16:3]]
+[[1 Samuel 16:12]]
+[[2 Samuel 2:4]]
+[[2 Samuel 5:3]]
+[[2 Samuel 15:10]]
+[[1 Kings 1:25]]
+[[1 Kings 19:16]]
+[[2 Kings 9:3]]
+[[2 Kings 9:6]]
+[[2 Kings 9:13]]
+[[2 Kings 11:12]]
+[[2 Kings 11:14]]
+[[2 Chronicles 23:11]]
+[[Psalms 45:7]]
+[[Psalms 89:20]]
+[[Psalms 89:36]]
+[[Psalms 98:5]]
+[[Isaiah 45:1]]
+[[Acts 10:38]]
+[[2 Corinthians 1:21]]
+---
+
+"And let Zadok the priest and Nathan the prophet anoint him there king over Israel: and blow ye with the trumpet, and say, God save king Solomon."

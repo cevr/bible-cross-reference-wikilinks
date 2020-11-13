@@ -1,7 +1,0 @@
-[[Genesis 17:19]]
-[[Genesis 17:21]]
-[[1 Samuel 8:7]]
-[[1 Samuel 8:9]]
-[[Isaiah 46:10]]
-[[Romans 9:7]]
-[[Hebrews 11:18]]

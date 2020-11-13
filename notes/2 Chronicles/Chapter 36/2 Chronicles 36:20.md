@@ -1,0 +1,16 @@
+---
+Links:
+[[Deuteronomy 28:47]]
+[[2 Kings 25:11]]
+[[2 Chronicles 36:22]]
+[[Ezra 1:1]]
+[[Ezra 2:1]]
+[[Ezra 5:12]]
+[[Isaiah 47:6]]
+[[Jeremiah 25:11]]
+[[Jeremiah 27:7]]
+[[Ezekiel 19:13]]
+[[Micah 4:10]]
+---
+
+"And them that had escaped from the sword carried he away to Babylon; where they were servants to him and his sons until the reign of the kingdom of Persia:"

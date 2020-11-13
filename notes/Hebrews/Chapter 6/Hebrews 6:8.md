@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 3:17]]
+[[Genesis 4:11]]
+[[Genesis 5:29]]
+[[Deuteronomy 29:22]]
+[[Deuteronomy 29:28]]
+[[2 Samuel 23:7]]
+[[Job 31:40]]
+[[Psalms 107:34]]
+[[Isaiah 5:1]]
+[[Isaiah 27:10]]
+[[Jeremiah 17:6]]
+[[Jeremiah 44:22]]
+[[Ezekiel 15:2]]
+[[Ezekiel 20:47]]
+[[Malachi 4:1]]
+[[Matthew 3:10]]
+[[Matthew 7:19]]
+[[Matthew 25:41]]
+[[Mark 11:14]]
+[[Mark 11:21]]
+[[Luke 13:7]]
+[[John 15:6]]
+[[Hebrews 10:27]]
+[[Hebrews 12:17]]
+[[Revelation 20:15]]
+---
+
+"But that which beareth thorns and briers is rejected, and is nigh unto cursing; whose end is to be burned."

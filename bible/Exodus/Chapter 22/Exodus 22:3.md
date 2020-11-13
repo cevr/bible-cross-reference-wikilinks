@@ -1,8 +1,0 @@
-[[Genesis 44:10]]
-[[Exodus 21:2]]
-[[Exodus 21:34]]
-[[Judges 2:14]]
-[[Judges 10:7]]
-[[Isaiah 40:2]]
-[[Isaiah 50:1]]
-[[Matthew 18:25]]

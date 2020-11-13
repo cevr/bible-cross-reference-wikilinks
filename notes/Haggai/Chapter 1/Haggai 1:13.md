@@ -1,0 +1,33 @@
+---
+Links:
+[[Judges 2:1]]
+[[1 Chronicles 28:20]]
+[[2 Chronicles 15:2]]
+[[2 Chronicles 20:17]]
+[[2 Chronicles 32:8]]
+[[Psalms 46:7]]
+[[Psalms 46:11]]
+[[Isaiah 8:8]]
+[[Isaiah 8:10]]
+[[Isaiah 41:10]]
+[[Isaiah 42:19]]
+[[Isaiah 43:2]]
+[[Isaiah 44:26]]
+[[Jeremiah 15:20]]
+[[Jeremiah 20:11]]
+[[Jeremiah 30:11]]
+[[Ezekiel 3:17]]
+[[Haggai 2:4]]
+[[Malachi 2:7]]
+[[Malachi 3:1]]
+[[Matthew 1:23]]
+[[Matthew 18:20]]
+[[Matthew 28:20]]
+[[Acts 18:9]]
+[[Romans 8:31]]
+[[2 Corinthians 5:20]]
+[[2 Timothy 4:17]]
+[[2 Timothy 4:22]]
+---
+
+"Then spake Haggai the LORD'S messenger in the LORD'S message unto the people, saying, I am with you, saith the LORD."

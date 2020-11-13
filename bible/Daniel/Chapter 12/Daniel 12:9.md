@@ -1,5 +1,0 @@
-[[Isaiah 8:16]]
-[[Isaiah 29:11]]
-[[Daniel 8:26]]
-[[Daniel 12:4]]
-[[Revelation 10:4]]

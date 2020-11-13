@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 29:31]]
+[[Genesis 35:16]]
+[[Genesis 37:11]]
+[[Numbers 11:15]]
+[[Numbers 11:29]]
+[[1 Samuel 1:4]]
+[[1 Samuel 1:10]]
+[[1 Kings 19:4]]
+[[Job 3:1]]
+[[Job 3:11]]
+[[Job 3:20]]
+[[Job 5:2]]
+[[Job 13:19]]
+[[Psalms 106:16]]
+[[Proverbs 14:30]]
+[[Proverbs 30:16]]
+[[Ecclesiastes 4:4]]
+[[Jeremiah 20:14]]
+[[John 4:3]]
+[[John 4:8]]
+[[1 Corinthians 3:3]]
+[[2 Corinthians 7:10]]
+[[Galatians 5:21]]
+[[Titus 3:3]]
+[[James 3:14]]
+[[James 4:5]]
+---
+
+"And when Rachel saw that she bare Jacob no children, Rachel envied her sister; and said unto Jacob, Give me children, or else I die."

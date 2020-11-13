@@ -1,0 +1,20 @@
+---
+Links:
+[[Acts 24:16]]
+[[1 Timothy 1:4]]
+[[1 Timothy 2:10]]
+[[1 Timothy 3:16]]
+[[1 Timothy 6:11]]
+[[1 Timothy 6:20]]
+[[2 Timothy 2:16]]
+[[2 Timothy 2:23]]
+[[2 Timothy 3:12]]
+[[2 Timothy 4:4]]
+[[Titus 1:14]]
+[[Titus 2:12]]
+[[Titus 3:9]]
+[[Hebrews 5:14]]
+[[2 Peter 1:5]]
+---
+
+"But refuse profane and old wives' fables, and exercise thyself rather unto godliness."

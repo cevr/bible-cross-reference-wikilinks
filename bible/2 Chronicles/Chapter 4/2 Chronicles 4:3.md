@@ -1,5 +1,0 @@
-[[1 Kings 7:24]]
-[[Ezekiel 1:10]]
-[[Ezekiel 10:14]]
-[[1 Corinthians 9:9]]
-[[Revelation 4:7]]

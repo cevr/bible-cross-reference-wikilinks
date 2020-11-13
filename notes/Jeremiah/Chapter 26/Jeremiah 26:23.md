@@ -1,0 +1,17 @@
+---
+Links:
+[[2 Kings 23:37]]
+[[Jeremiah 2:30]]
+[[Jeremiah 22:17]]
+[[Jeremiah 22:19]]
+[[Jeremiah 26:15]]
+[[Jeremiah 36:30]]
+[[Ezekiel 19:6]]
+[[Matthew 14:10]]
+[[Matthew 23:34]]
+[[Acts 12:1]]
+[[1 Thessalonians 2:15]]
+[[Revelation 11:7]]
+---
+
+"And they fetched forth Urijah out of Egypt, and brought him unto Jehoiakim the king; who slew him with the sword, and cast his dead body into the graves of the common people."

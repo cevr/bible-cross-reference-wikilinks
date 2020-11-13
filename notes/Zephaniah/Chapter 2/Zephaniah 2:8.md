@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 19:37]]
+[[Genesis 19:38]]
+[[Psalms 83:4]]
+[[Isaiah 15:1]]
+[[Jeremiah 12:14]]
+[[Jeremiah 48:1]]
+[[Jeremiah 48:27]]
+[[Jeremiah 49:1]]
+[[Ezekiel 25:1]]
+[[Ezekiel 25:3]]
+[[Ezekiel 25:8]]
+[[Ezekiel 35:12]]
+[[Ezekiel 36:2]]
+[[Amos 1:13]]
+[[Amos 2:1]]
+---
+
+"I have heard the reproach of Moab, and the revilings of the children of Ammon, whereby they have reproached my people, and magnified themselves against their border."

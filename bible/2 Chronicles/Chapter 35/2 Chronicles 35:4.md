@@ -1,7 +1,0 @@
-[[1 Chronicles 9:10]]
-[[1 Chronicles 23:1]]
-[[1 Chronicles 23:6]]
-[[1 Chronicles 23:23]]
-[[1 Chronicles 24:1]]
-[[2 Chronicles 8:14]]
-[[Nehemiah 11:10]]

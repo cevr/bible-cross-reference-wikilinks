@@ -1,6 +1,0 @@
-[[Exodus 18:18]]
-[[Deuteronomy 1:9]]
-[[Psalms 89:19]]
-[[Isaiah 9:6]]
-[[Zechariah 6:13]]
-[[2 Corinthians 2:16]]

@@ -1,0 +1,11 @@
+---
+Links:
+[[Genesis 12:4]]
+[[Genesis 22:20]]
+[[Genesis 24:10]]
+[[Genesis 29:4]]
+[[Joshua 24:2]]
+[[1 Chronicles 1:26]]
+---
+
+"And Terah lived seventy years, and begat Abram, Nahor, and Haran."

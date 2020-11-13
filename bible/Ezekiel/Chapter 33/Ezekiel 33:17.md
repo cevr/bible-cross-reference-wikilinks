@@ -1,7 +1,0 @@
-[[Job 35:2]]
-[[Job 40:8]]
-[[Ezekiel 18:25]]
-[[Ezekiel 18:29]]
-[[Ezekiel 33:20]]
-[[Matthew 25:24]]
-[[Luke 19:21]]

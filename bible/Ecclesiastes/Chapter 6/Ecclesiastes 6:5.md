@@ -1,6 +1,0 @@
-[[Job 3:10]]
-[[Job 3:11]]
-[[Job 14:1]]
-[[Psalms 58:8]]
-[[Psalms 90:7]]
-[[Ecclesiastes 4:3]]

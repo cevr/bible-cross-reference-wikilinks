@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 11:3]]
+[[Genesis 11:7]]
+[[2 Kings 5:5]]
+[[Psalms 10:6]]
+[[Psalms 14:1]]
+[[Psalms 27:8]]
+[[Psalms 30:6]]
+[[Ecclesiastes 1:16]]
+[[Ecclesiastes 2:10]]
+[[Ecclesiastes 2:15]]
+[[Ecclesiastes 2:25]]
+[[Ecclesiastes 3:17]]
+[[Ecclesiastes 7:4]]
+[[Ecclesiastes 8:15]]
+[[Ecclesiastes 11:9]]
+[[Isaiah 5:5]]
+[[Isaiah 50:5]]
+[[Isaiah 50:11]]
+[[Luke 12:19]]
+[[Luke 16:19]]
+[[Luke 16:23]]
+[[Titus 3:3]]
+[[James 4:13]]
+[[James 5:1]]
+[[James 5:5]]
+[[Revelation 18:7]]
+---
+
+"I said in mine heart, Go to now, I will prove thee with mirth, therefore enjoy pleasure: and, behold, this also is vanity."

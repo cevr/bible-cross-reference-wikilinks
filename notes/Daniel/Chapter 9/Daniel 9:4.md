@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 20:6]]
+[[Exodus 34:6]]
+[[Leviticus 26:40]]
+[[Numbers 14:18]]
+[[Deuteronomy 5:10]]
+[[Deuteronomy 7:9]]
+[[Deuteronomy 7:12]]
+[[Deuteronomy 7:21]]
+[[1 Kings 8:23]]
+[[1 Kings 8:47]]
+[[2 Chronicles 7:14]]
+[[Nehemiah 1:5]]
+[[Nehemiah 9:2]]
+[[Nehemiah 9:32]]
+[[Psalms 32:5]]
+[[Jeremiah 3:13]]
+[[Jeremiah 32:17]]
+[[Jeremiah 32:23]]
+[[Daniel 9:5]]
+[[Micah 7:18]]
+[[Nahum 1:2]]
+[[Luke 1:72]]
+[[Romans 8:28]]
+[[James 1:12]]
+[[James 2:5]]
+[[1 John 1:8]]
+[[1 John 5:2]]
+---
+
+"And I prayed unto the LORD my God, and made my confession, and said, O Lord, the great and dreadful God, keeping the covenant and mercy to them that love him, and to them that keep his commandments;"

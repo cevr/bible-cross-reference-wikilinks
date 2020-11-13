@@ -1,0 +1,32 @@
+---
+Links:
+[[Genesis 17:15]]
+[[2 Chronicles 15:2]]
+[[2 Chronicles 15:4]]
+[[Psalms 24:6]]
+[[Psalms 94:15]]
+[[Psalms 105:3]]
+[[Proverbs 15:9]]
+[[Proverbs 21:21]]
+[[Isaiah 45:19]]
+[[Isaiah 46:3]]
+[[Isaiah 48:1]]
+[[Isaiah 48:12]]
+[[Isaiah 51:4]]
+[[Isaiah 51:7]]
+[[Isaiah 55:2]]
+[[Isaiah 55:6]]
+[[Amos 5:6]]
+[[Zephaniah 2:3]]
+[[Matthew 5:6]]
+[[Matthew 6:33]]
+[[Romans 9:30]]
+[[Romans 14:19]]
+[[Ephesians 2:11]]
+[[Philippians 3:13]]
+[[1 Timothy 6:11]]
+[[2 Timothy 2:22]]
+[[Hebrews 12:14]]
+---
+
+"Hearken to me, ye that follow after righteousness, ye that seek the LORD: look unto the rock whence ye are hewn, and to the hole of the pit whence ye are digged."

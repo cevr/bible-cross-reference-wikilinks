@@ -1,8 +1,0 @@
-[[2 Samuel 7:13]]
-[[1 Kings 9:5]]
-[[2 Chronicles 6:16]]
-[[Psalms 89:28]]
-[[Psalms 132:11]]
-[[Psalms 132:12]]
-[[Jeremiah 33:20]]
-[[Jeremiah 33:25]]

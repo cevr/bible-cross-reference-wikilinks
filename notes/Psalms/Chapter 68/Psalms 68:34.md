@@ -1,0 +1,14 @@
+---
+Links:
+[[Deuteronomy 33:26]]
+[[Deuteronomy 33:27]]
+[[1 Chronicles 16:28]]
+[[Psalms 29:1]]
+[[Psalms 29:4]]
+[[Psalms 96:6]]
+[[Psalms 150:1]]
+[[2 Peter 1:17]]
+[[Revelation 19:6]]
+---
+
+"Ascribe ye strength unto God: his excellency is over Israel, and his strength is in the clouds."

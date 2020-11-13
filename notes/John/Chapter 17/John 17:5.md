@@ -1,0 +1,23 @@
+---
+Links:
+[[Proverbs 8:22]]
+[[Matthew 25:34]]
+[[John 1:1]]
+[[John 1:18]]
+[[John 3:13]]
+[[John 8:58]]
+[[John 10:30]]
+[[John 14:9]]
+[[John 17:24]]
+[[Philippians 2:6]]
+[[Colossians 1:15]]
+[[Hebrews 1:3]]
+[[Hebrews 1:10]]
+[[1 Peter 1:20]]
+[[1 John 1:2]]
+[[Revelation 3:21]]
+[[Revelation 5:9]]
+[[Revelation 13:8]]
+---
+
+"And now, O Father, glorify thou me with thine own self with the glory which I had with thee before the world was."

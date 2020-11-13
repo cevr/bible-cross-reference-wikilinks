@@ -1,8 +1,0 @@
-[[Proverbs 10:19]]
-[[Proverbs 12:13]]
-[[Proverbs 13:3]]
-[[Proverbs 16:17]]
-[[Proverbs 17:27]]
-[[Proverbs 18:21]]
-[[James 1:26]]
-[[James 3:2]]

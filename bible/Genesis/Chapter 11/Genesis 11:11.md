@@ -1,6 +1,0 @@
-[[Genesis 1:28]]
-[[Genesis 5:4]]
-[[Genesis 9:7]]
-[[Psalms 127:3]]
-[[Psalms 128:3]]
-[[Psalms 144:12]]

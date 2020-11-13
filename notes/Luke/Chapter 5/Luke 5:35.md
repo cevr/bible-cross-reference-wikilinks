@@ -1,0 +1,24 @@
+---
+Links:
+[[Isaiah 22:12]]
+[[Daniel 9:26]]
+[[Zechariah 13:7]]
+[[Matthew 6:17]]
+[[Luke 17:22]]
+[[Luke 24:17]]
+[[John 12:8]]
+[[John 13:33]]
+[[John 14:3]]
+[[John 16:4]]
+[[John 16:16]]
+[[John 16:28]]
+[[John 17:11]]
+[[Acts 1:9]]
+[[Acts 3:21]]
+[[Acts 13:2]]
+[[Acts 14:23]]
+[[1 Corinthians 7:5]]
+[[2 Corinthians 11:27]]
+---
+
+"But the days will come, when the bridegroom shall be taken away from them, and then shall they fast in those days."

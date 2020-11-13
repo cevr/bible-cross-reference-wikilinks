@@ -1,0 +1,16 @@
+---
+Links:
+[[Genesis 39:2]]
+[[Genesis 39:4]]
+[[Genesis 39:21]]
+[[Joshua 1:7]]
+[[1 Samuel 2:21]]
+[[1 Samuel 2:26]]
+[[Psalms 111:10]]
+[[Daniel 1:9]]
+[[Luke 2:52]]
+[[Acts 2:47]]
+[[Romans 14:18]]
+---
+
+"So shalt thou find favour and good understanding in the sight of God and man."

@@ -1,7 +1,0 @@
-[[Genesis 31:17]]
-[[Genesis 45:19]]
-[[Genesis 45:21]]
-[[Genesis 45:27]]
-[[Exodus 10:24]]
-[[Exodus 10:26]]
-[[Acts 7:15]]

@@ -1,0 +1,12 @@
+---
+Links:
+[[Exodus 12:7]]
+[[Deuteronomy 11:18]]
+[[Deuteronomy 11:20]]
+[[Job 19:23]]
+[[Isaiah 30:8]]
+[[Isaiah 57:8]]
+[[Habakkuk 2:2]]
+---
+
+"And thou shalt write them upon the posts of thy house, and on thy gates."

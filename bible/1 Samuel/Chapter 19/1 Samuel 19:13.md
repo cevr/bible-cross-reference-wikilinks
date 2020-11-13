@@ -1,5 +1,0 @@
-[[Genesis 31:19]]
-[[Judges 17:5]]
-[[Judges 18:14]]
-[[Judges 18:17]]
-[[Hosea 3:4]]

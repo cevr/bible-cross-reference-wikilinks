@@ -1,0 +1,30 @@
+---
+Links:
+[[Exodus 7:3]]
+[[Exodus 10:27]]
+[[Exodus 11:10]]
+[[Exodus 14:17]]
+[[Deuteronomy 2:30]]
+[[Deuteronomy 29:3]]
+[[Deuteronomy 32:15]]
+[[Psalms 17:10]]
+[[Psalms 119:70]]
+[[Proverbs 16:30]]
+[[Ecclesiastes 3:3]]
+[[Isaiah 19:22]]
+[[Isaiah 28:13]]
+[[Isaiah 29:9]]
+[[Isaiah 29:10]]
+[[Isaiah 63:17]]
+[[Jeremiah 5:21]]
+[[Jeremiah 6:10]]
+[[Ezekiel 3:6]]
+[[Zechariah 7:11]]
+[[Matthew 13:15]]
+[[John 3:19]]
+[[Acts 3:19]]
+[[Acts 28:27]]
+[[2 Corinthians 2:16]]
+---
+
+"Make the heart of this people fat, and make their ears heavy, and shut their eyes; lest they see with their eyes, and hear with their ears, and understand with their heart, and convert, and be healed."

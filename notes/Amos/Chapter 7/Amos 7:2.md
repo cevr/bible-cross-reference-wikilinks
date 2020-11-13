@@ -1,0 +1,24 @@
+---
+Links:
+[[Exodus 10:15]]
+[[Exodus 32:11]]
+[[Exodus 34:9]]
+[[Numbers 14:17]]
+[[Numbers 14:19]]
+[[Psalms 12:1]]
+[[Psalms 44:24]]
+[[Isaiah 37:4]]
+[[Isaiah 51:19]]
+[[Jeremiah 14:7]]
+[[Jeremiah 14:20]]
+[[Jeremiah 42:2]]
+[[Ezekiel 9:8]]
+[[Ezekiel 11:13]]
+[[Daniel 9:19]]
+[[Amos 7:5]]
+[[Zechariah 4:10]]
+[[James 5:15]]
+[[Revelation 9:4]]
+---
+
+"And it came to pass, that when they had made an end of eating the grass of the land, then I said, O Lord GOD, forgive, I beseech thee: by whom shall Jacob arise? for he is small."

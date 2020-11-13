@@ -1,6 +1,0 @@
-[[Exodus 32:4]]
-[[Exodus 32:8]]
-[[Exodus 32:31]]
-[[Deuteronomy 9:12]]
-[[Psalms 106:19]]
-[[Ezekiel 20:7]]

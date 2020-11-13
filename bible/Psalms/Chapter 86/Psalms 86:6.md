@@ -1,5 +1,0 @@
-[[Nehemiah 1:11]]
-[[Psalms 5:1]]
-[[Psalms 17:1]]
-[[Psalms 55:1]]
-[[Psalms 130:2]]

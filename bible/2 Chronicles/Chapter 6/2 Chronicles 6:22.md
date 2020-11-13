@@ -1,6 +1,0 @@
-[[Exodus 22:11]]
-[[Leviticus 5:1]]
-[[Numbers 5:19]]
-[[1 Kings 8:31]]
-[[Proverbs 30:9]]
-[[Matthew 23:18]]

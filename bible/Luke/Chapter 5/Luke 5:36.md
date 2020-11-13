@@ -1,5 +1,0 @@
-[[Leviticus 19:19]]
-[[Deuteronomy 22:11]]
-[[Matthew 9:16]]
-[[Mark 2:21]]
-[[2 Corinthians 6:16]]

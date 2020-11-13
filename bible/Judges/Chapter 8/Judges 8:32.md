@@ -1,7 +1,0 @@
-[[Genesis 15:15]]
-[[Genesis 25:8]]
-[[Joshua 24:29]]
-[[Judges 6:24]]
-[[Judges 8:27]]
-[[Job 5:26]]
-[[Job 42:17]]

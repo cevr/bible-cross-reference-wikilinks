@@ -1,7 +1,0 @@
-[[Numbers 15:33]]
-[[Ezekiel 16:38]]
-[[Ezekiel 23:45]]
-[[Matthew 2:4]]
-[[John 9:13]]
-[[Acts 4:7]]
-[[Romans 7:3]]

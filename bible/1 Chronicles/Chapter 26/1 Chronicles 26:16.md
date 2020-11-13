@@ -1,5 +1,0 @@
-[[1 Kings 10:5]]
-[[1 Chronicles 25:8]]
-[[1 Chronicles 26:10]]
-[[2 Chronicles 9:4]]
-[[Nehemiah 12:24]]

@@ -1,7 +1,0 @@
-[[Numbers 31:22]]
-[[Numbers 31:26]]
-[[Deuteronomy 3:7]]
-[[Joshua 8:2]]
-[[Joshua 11:4]]
-[[Psalms 50:10]]
-[[Matthew 20:15]]

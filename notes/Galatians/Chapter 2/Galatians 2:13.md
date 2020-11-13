@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 12:11]]
+[[Genesis 26:6]]
+[[Genesis 27:24]]
+[[2 Samuel 16:19]]
+[[Job 15:12]]
+[[Ecclesiastes 7:20]]
+[[Ecclesiastes 10:1]]
+[[Acts 4:36]]
+[[1 Corinthians 5:6]]
+[[1 Corinthians 8:9]]
+[[1 Corinthians 12:2]]
+[[1 Corinthians 15:33]]
+[[Galatians 2:1]]
+[[Ephesians 4:14]]
+[[Hebrews 13:9]]
+---
+
+"And the other Jews dissembled likewise with him; insomuch that Barnabas also was carried away with their dissimulation."

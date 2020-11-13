@@ -1,6 +1,0 @@
-[[2 Kings 21:3]]
-[[Job 38:32]]
-[[Jeremiah 8:1]]
-[[Jeremiah 44:17]]
-[[Hosea 10:5]]
-[[Zephaniah 1:4]]

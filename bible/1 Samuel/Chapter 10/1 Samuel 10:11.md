@@ -1,8 +1,0 @@
-[[1 Samuel 19:24]]
-[[Matthew 13:54]]
-[[John 7:15]]
-[[John 9:8]]
-[[Acts 2:7]]
-[[Acts 3:10]]
-[[Acts 4:13]]
-[[Acts 9:21]]

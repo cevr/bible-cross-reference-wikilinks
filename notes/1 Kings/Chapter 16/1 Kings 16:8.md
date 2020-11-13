@@ -1,0 +1,14 @@
+---
+Links:
+[[1 Kings 15:33]]
+[[1 Kings 16:6]]
+[[1 Kings 16:15]]
+[[1 Kings 16:21]]
+[[1 Kings 16:23]]
+[[2 Kings 15:14]]
+[[2 Kings 15:23]]
+[[2 Kings 21:19]]
+[[Proverbs 28:2]]
+---
+
+"In the twenty and sixth year of Asa king of Judah began Elah the son of Baasha to reign over Israel in Tirzah, two years."

@@ -1,7 +1,0 @@
-[[2 Kings 23:31]]
-[[2 Kings 23:34]]
-[[2 Chronicles 36:1]]
-[[Ezekiel 19:6]]
-[[Ezekiel 22:25]]
-[[Ezekiel 32:2]]
-[[Zechariah 11:3]]

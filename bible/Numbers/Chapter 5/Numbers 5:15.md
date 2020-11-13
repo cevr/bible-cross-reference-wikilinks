@@ -1,7 +1,0 @@
-[[Leviticus 1:2]]
-[[Leviticus 2:1]]
-[[Leviticus 5:11]]
-[[1 Kings 17:18]]
-[[Ezekiel 29:16]]
-[[Hosea 3:2]]
-[[Hebrews 10:3]]

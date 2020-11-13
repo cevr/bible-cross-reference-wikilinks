@@ -1,0 +1,23 @@
+---
+Links:
+[[Isaiah 12:1]]
+[[Isaiah 51:12]]
+[[Isaiah 57:15]]
+[[Isaiah 57:18]]
+[[Isaiah 61:1]]
+[[Jeremiah 31:13]]
+[[Matthew 5:4]]
+[[John 14:16]]
+[[Romans 15:5]]
+[[1 Corinthians 16:17]]
+[[2 Corinthians 1:3]]
+[[2 Corinthians 2:13]]
+[[2 Corinthians 7:13]]
+[[Philippians 2:1]]
+[[1 Thessalonians 3:2]]
+[[1 Thessalonians 3:6]]
+[[2 Thessalonians 2:16]]
+[[3 John 1:2]]
+---
+
+"Nevertheless God, that comforteth those that are cast down, comforted us by the coming of Titus;"

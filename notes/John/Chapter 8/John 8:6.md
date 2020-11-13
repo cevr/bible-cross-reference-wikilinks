@@ -1,0 +1,32 @@
+---
+Links:
+[[Genesis 49:9]]
+[[Numbers 14:22]]
+[[Psalms 38:12]]
+[[Psalms 38:14]]
+[[Psalms 39:1]]
+[[Proverbs 26:17]]
+[[Ecclesiastes 3:7]]
+[[Jeremiah 17:13]]
+[[Daniel 5:5]]
+[[Amos 5:10]]
+[[Amos 5:13]]
+[[Matthew 10:16]]
+[[Matthew 15:23]]
+[[Matthew 16:1]]
+[[Matthew 19:3]]
+[[Matthew 22:18]]
+[[Matthew 22:35]]
+[[Matthew 26:63]]
+[[Mark 8:11]]
+[[Mark 10:2]]
+[[Mark 12:15]]
+[[Luke 10:25]]
+[[Luke 11:16]]
+[[Luke 11:53]]
+[[Luke 20:20]]
+[[John 8:2]]
+[[1 Corinthians 10:9]]
+---
+
+"This they said, tempting him, that they might have to accuse him. But Jesus stooped down, and with his finger wrote on the ground, as though he heard them not."

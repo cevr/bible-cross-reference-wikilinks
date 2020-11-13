@@ -1,5 +1,0 @@
-[[Leviticus 25:8]]
-[[Leviticus 25:10]]
-[[Leviticus 25:23]]
-[[Isaiah 61:2]]
-[[Luke 4:18]]

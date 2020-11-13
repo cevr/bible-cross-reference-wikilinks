@@ -1,5 +1,0 @@
-[[1 Samuel 16:6]]
-[[1 Samuel 17:13]]
-[[1 Samuel 17:28]]
-[[1 Chronicles 2:13]]
-[[1 Chronicles 27:18]]

@@ -1,5 +1,0 @@
-[[Proverbs 3:23]]
-[[Jeremiah 31:9]]
-[[Luke 13:31]]
-[[John 9:4]]
-[[John 12:35]]

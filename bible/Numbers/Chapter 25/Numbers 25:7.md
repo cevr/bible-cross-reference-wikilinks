@@ -1,8 +1,0 @@
-[[Exodus 6:25]]
-[[Numbers 31:6]]
-[[Joshua 22:30]]
-[[Judges 20:28]]
-[[1 Samuel 18:10]]
-[[1 Samuel 19:9]]
-[[Ezra 7:5]]
-[[Psalms 106:30]]

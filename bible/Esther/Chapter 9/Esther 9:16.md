@@ -1,6 +1,0 @@
-[[Genesis 34:27]]
-[[Leviticus 26:7]]
-[[Esther 8:11]]
-[[Esther 9:2]]
-[[Psalms 37:15]]
-[[Psalms 149:7]]

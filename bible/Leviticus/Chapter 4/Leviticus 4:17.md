@@ -1,5 +1,0 @@
-[[Leviticus 4:6]]
-[[Leviticus 8:11]]
-[[Leviticus 14:7]]
-[[Leviticus 16:14]]
-[[Numbers 19:4]]

@@ -1,7 +1,0 @@
-[[Exodus 14:21]]
-[[Exodus 15:19]]
-[[Nehemiah 9:11]]
-[[Psalms 77:16]]
-[[Psalms 78:13]]
-[[Isaiah 43:16]]
-[[Isaiah 63:12]]

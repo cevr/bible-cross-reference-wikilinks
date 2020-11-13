@@ -1,6 +1,0 @@
-[[Genesis 17:14]]
-[[Exodus 29:25]]
-[[Leviticus 3:17]]
-[[Leviticus 7:20]]
-[[Leviticus 7:21]]
-[[Leviticus 7:27]]

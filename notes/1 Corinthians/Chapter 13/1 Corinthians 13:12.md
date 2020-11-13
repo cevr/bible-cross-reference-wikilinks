@@ -1,0 +1,22 @@
+---
+Links:
+[[Genesis 32:30]]
+[[Exodus 33:11]]
+[[Numbers 12:8]]
+[[Judges 14:12]]
+[[Ezekiel 17:2]]
+[[Matthew 5:8]]
+[[Matthew 18:10]]
+[[John 10:15]]
+[[Romans 8:18]]
+[[1 Corinthians 8:3]]
+[[1 Corinthians 13:9]]
+[[2 Corinthians 3:18]]
+[[2 Corinthians 5:7]]
+[[Philippians 3:12]]
+[[James 1:23]]
+[[1 John 3:2]]
+[[Revelation 22:4]]
+---
+
+"For now we see through a glass, darkly; but then face to face: now I know in part; but then shall I know even as also I am known."

@@ -1,7 +1,0 @@
-[[Genesis 20:17]]
-[[Genesis 20:18]]
-[[1 Chronicles 16:21]]
-[[1 Chronicles 21:22]]
-[[Job 34:19]]
-[[Psalms 105:14]]
-[[Hebrews 13:4]]

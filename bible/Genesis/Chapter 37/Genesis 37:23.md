@@ -1,5 +1,0 @@
-[[Genesis 37:3]]
-[[Genesis 37:31]]
-[[Genesis 42:21]]
-[[Psalms 22:18]]
-[[Matthew 27:28]]

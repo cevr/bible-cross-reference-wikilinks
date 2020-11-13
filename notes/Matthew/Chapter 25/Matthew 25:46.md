@@ -1,0 +1,32 @@
+---
+Links:
+[[Psalms 16:10]]
+[[Daniel 12:2]]
+[[Matthew 13:43]]
+[[Matthew 19:29]]
+[[Matthew 25:41]]
+[[Mark 9:43]]
+[[Mark 9:44]]
+[[Mark 9:48]]
+[[Luke 16:26]]
+[[John 3:15]]
+[[John 3:36]]
+[[John 5:29]]
+[[John 10:27]]
+[[John 17:2]]
+[[Acts 24:15]]
+[[Romans 2:7]]
+[[Romans 5:21]]
+[[Romans 6:23]]
+[[Galatians 6:8]]
+[[2 Thessalonians 1:9]]
+[[1 John 2:25]]
+[[1 John 5:11]]
+[[Jude 1:21]]
+[[Revelation 14:10]]
+[[Revelation 20:10]]
+[[Revelation 20:15]]
+[[Revelation 21:8]]
+---
+
+"And these shall go away into everlasting punishment: but the righteous into life eternal."

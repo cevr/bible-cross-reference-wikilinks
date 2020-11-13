@@ -1,0 +1,16 @@
+---
+Links:
+[[Ruth 4:11]]
+[[1 Kings 16:31]]
+[[1 Kings 21:24]]
+[[2 Kings 11:1]]
+[[Proverbs 9:13]]
+[[Proverbs 19:13]]
+[[Proverbs 21:9]]
+[[Proverbs 21:19]]
+[[Proverbs 24:3]]
+[[Proverbs 31:10]]
+[[Proverbs 31:16]]
+---
+
+"Every wise woman buildeth her house: but the foolish plucketh it down with her hands."

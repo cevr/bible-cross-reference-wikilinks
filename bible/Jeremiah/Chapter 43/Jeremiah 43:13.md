@@ -1,8 +1,0 @@
-[[Genesis 41:45]]
-[[Isaiah 19:1]]
-[[Isaiah 19:18]]
-[[Jeremiah 10:11]]
-[[Jeremiah 25:19]]
-[[Jeremiah 46:25]]
-[[Ezekiel 30:13]]
-[[Ezekiel 30:17]]

@@ -1,0 +1,31 @@
+---
+Links:
+[[1 Chronicles 16:41]]
+[[1 Chronicles 25:1]]
+[[1 Chronicles 25:3]]
+[[Psalms 25:5]]
+[[Psalms 27:14]]
+[[Psalms 33:20]]
+[[Psalms 37:7]]
+[[Psalms 37:39]]
+[[Psalms 39:1]]
+[[Psalms 40:1]]
+[[Psalms 62:2]]
+[[Psalms 62:5]]
+[[Psalms 65:1]]
+[[Psalms 68:19]]
+[[Psalms 77:1]]
+[[Psalms 121:2]]
+[[Psalms 123:2]]
+[[Psalms 130:5]]
+[[Isaiah 12:2]]
+[[Isaiah 30:18]]
+[[Isaiah 40:31]]
+[[Jeremiah 3:23]]
+[[Lamentations 3:25]]
+[[Lamentations 3:38]]
+[[Luke 2:30]]
+[[James 5:7]]
+---
+
+"Truly my soul waiteth upon God: from him cometh my salvation."

@@ -1,0 +1,22 @@
+---
+Links:
+[[1 Chronicles 9:17]]
+[[1 Chronicles 15:18]]
+[[1 Chronicles 16:38]]
+[[1 Chronicles 16:42]]
+[[1 Chronicles 23:4]]
+[[1 Chronicles 23:5]]
+[[1 Chronicles 26:1]]
+[[1 Chronicles 26:29]]
+[[2 Chronicles 2:10]]
+[[2 Chronicles 2:18]]
+[[2 Chronicles 8:10]]
+[[2 Chronicles 8:14]]
+[[2 Chronicles 19:11]]
+[[Ezra 7:6]]
+[[Nehemiah 4:10]]
+[[Jeremiah 8:8]]
+[[Matthew 26:3]]
+---
+
+"Also they were over the bearers of burdens, and were overseers of all that wrought the work in any manner of service: and of the Levites there were scribes, and officers, and porters."

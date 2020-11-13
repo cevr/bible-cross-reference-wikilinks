@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 7:6]]
+[[Deuteronomy 26:19]]
+[[Deuteronomy 32:36]]
+[[Deuteronomy 32:40]]
+[[Job 27:2]]
+[[Isaiah 62:12]]
+[[Jeremiah 4:2]]
+[[Daniel 4:31]]
+[[Daniel 4:34]]
+[[Daniel 7:21]]
+[[Daniel 7:25]]
+[[Daniel 8:14]]
+[[Daniel 8:24]]
+[[Daniel 11:13]]
+[[Daniel 12:6]]
+[[Daniel 12:11]]
+[[Luke 21:14]]
+[[Luke 21:24]]
+[[1 Peter 2:9]]
+[[Revelation 10:5]]
+[[Revelation 11:2]]
+[[Revelation 11:7]]
+[[Revelation 12:6]]
+[[Revelation 12:14]]
+[[Revelation 13:5]]
+---
+
+"And I heard the man clothed in linen, which was upon the waters of the river, when he held up his right hand and his left hand unto heaven, and sware by him that liveth for ever that it shall be for a time, times, and an half; and when he shall have accomplished to scatter the power of the holy people, all these things shall be finished."

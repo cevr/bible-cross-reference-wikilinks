@@ -1,0 +1,19 @@
+---
+Links:
+[[Romans 3:20]]
+[[Romans 4:4]]
+[[Romans 9:31]]
+[[Romans 10:3]]
+[[Romans 11:6]]
+[[Galatians 1:6]]
+[[Galatians 2:21]]
+[[Galatians 5:2]]
+[[Hebrews 6:4]]
+[[Hebrews 10:38]]
+[[Hebrews 12:15]]
+[[2 Peter 2:20]]
+[[2 Peter 3:17]]
+[[Revelation 2:5]]
+---
+
+"Christ is become of no effect unto you, whosoever of you are justified by the law; ye are fallen from grace."

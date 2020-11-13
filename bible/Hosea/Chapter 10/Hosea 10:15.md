@@ -1,6 +1,0 @@
-[[Isaiah 16:14]]
-[[Hosea 10:3]]
-[[Hosea 10:5]]
-[[Hosea 10:7]]
-[[Amos 7:9]]
-[[Romans 7:13]]

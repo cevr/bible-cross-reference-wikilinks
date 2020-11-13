@@ -1,6 +1,0 @@
-[[Deuteronomy 21:23]]
-[[2 Samuel 21:6]]
-[[2 Samuel 21:9]]
-[[Esther 8:11]]
-[[Esther 9:15]]
-[[Galatians 3:13]]

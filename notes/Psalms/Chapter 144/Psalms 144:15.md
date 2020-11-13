@@ -1,0 +1,12 @@
+---
+Links:
+[[Deuteronomy 33:29]]
+[[2 Chronicles 31:8]]
+[[Psalms 33:12]]
+[[Psalms 65:4]]
+[[Psalms 89:15]]
+[[Psalms 146:5]]
+[[Ephesians 1:3]]
+---
+
+"Happy is that people, that is in such a case: yea, happy is that people, whose God is the LORD."

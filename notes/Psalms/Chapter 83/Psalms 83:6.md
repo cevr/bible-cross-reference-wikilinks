@@ -1,0 +1,14 @@
+---
+Links:
+[[Genesis 25:12]]
+[[Judges 3:13]]
+[[1 Chronicles 5:10]]
+[[1 Chronicles 5:19]]
+[[2 Chronicles 20:1]]
+[[2 Chronicles 20:10]]
+[[Psalms 2:2]]
+[[Psalms 137:7]]
+[[Jeremiah 48:42]]
+---
+
+"The tabernacles of Edom, and the Ishmaelites; of Moab, and the Hagarenes;"

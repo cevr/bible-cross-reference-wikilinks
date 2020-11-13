@@ -1,0 +1,14 @@
+---
+Links:
+[[Deuteronomy 11:12]]
+[[1 Kings 8:29]]
+[[2 Chronicles 6:20]]
+[[2 Chronicles 6:40]]
+[[Nehemiah 1:6]]
+[[Psalms 65:2]]
+[[Psalms 130:2]]
+[[Isaiah 37:17]]
+[[1 Peter 3:12]]
+---
+
+"Now mine eyes shall be open, and mine ears attent unto the prayer that is made in this place."

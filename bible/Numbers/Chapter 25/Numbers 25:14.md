@@ -1,6 +1,0 @@
-[[Numbers 1:23]]
-[[Numbers 25:4]]
-[[Numbers 26:14]]
-[[1 Kings 11:18]]
-[[2 Chronicles 19:7]]
-[[Revelation 7:7]]

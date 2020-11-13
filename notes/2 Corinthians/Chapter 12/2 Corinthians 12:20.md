@@ -1,0 +1,33 @@
+---
+Links:
+[[Psalms 41:7]]
+[[Proverbs 16:28]]
+[[Romans 1:29]]
+[[1 Corinthians 1:11]]
+[[1 Corinthians 3:3]]
+[[1 Corinthians 4:6]]
+[[1 Corinthians 4:18]]
+[[1 Corinthians 5:3]]
+[[1 Corinthians 6:7]]
+[[1 Corinthians 11:16]]
+[[1 Corinthians 14:33]]
+[[1 Corinthians 14:36]]
+[[2 Corinthians 1:23]]
+[[2 Corinthians 10:2]]
+[[2 Corinthians 10:6]]
+[[2 Corinthians 10:8]]
+[[2 Corinthians 12:21]]
+[[2 Corinthians 13:2]]
+[[2 Corinthians 13:9]]
+[[Galatians 5:15]]
+[[Galatians 5:19]]
+[[Galatians 5:26]]
+[[Ephesians 4:31]]
+[[James 3:14]]
+[[James 4:1]]
+[[1 Peter 2:1]]
+[[2 Peter 2:18]]
+[[Jude 1:16]]
+---
+
+"For I fear, lest, when I come, I shall not find you such as I would, and that I shall be found unto you such as ye would not: lest there be debates, envyings, wraths, strifes, backbitings, whisperings, swellings, tumults:"

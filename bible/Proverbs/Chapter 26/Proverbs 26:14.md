@@ -1,5 +1,0 @@
-[[Proverbs 6:9]]
-[[Proverbs 12:24]]
-[[Proverbs 12:27]]
-[[Proverbs 24:33]]
-[[Hebrews 6:12]]

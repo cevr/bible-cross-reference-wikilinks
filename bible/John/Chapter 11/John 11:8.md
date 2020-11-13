@@ -1,8 +1,0 @@
-[[Psalms 11:1]]
-[[Matthew 16:21]]
-[[Matthew 23:7]]
-[[John 8:59]]
-[[John 10:31]]
-[[John 10:39]]
-[[Acts 20:24]]
-[[Acts 21:12]]

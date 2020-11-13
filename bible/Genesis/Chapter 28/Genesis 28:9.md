@@ -1,5 +1,0 @@
-[[Genesis 25:13]]
-[[Genesis 26:34]]
-[[Genesis 36:3]]
-[[Genesis 36:13]]
-[[Genesis 36:18]]

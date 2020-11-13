@@ -1,5 +1,0 @@
-[[Exodus 29:20]]
-[[Leviticus 8:23]]
-[[Leviticus 14:14]]
-[[Psalms 40:6]]
-[[Ecclesiastes 5:1]]

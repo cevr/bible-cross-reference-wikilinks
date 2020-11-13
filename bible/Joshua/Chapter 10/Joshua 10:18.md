@@ -1,6 +1,0 @@
-[[Joshua 10:22]]
-[[Judges 9:46]]
-[[Job 21:30]]
-[[Amos 5:19]]
-[[Amos 9:1]]
-[[Matthew 27:66]]

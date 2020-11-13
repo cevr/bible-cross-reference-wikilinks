@@ -1,5 +1,0 @@
-[[Exodus 28:31]]
-[[Exodus 28:37]]
-[[Exodus 39:30]]
-[[Exodus 39:41]]
-[[Numbers 15:38]]

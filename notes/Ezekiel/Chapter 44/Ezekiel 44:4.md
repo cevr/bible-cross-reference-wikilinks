@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 17:3]]
+[[Numbers 16:42]]
+[[Psalms 89:7]]
+[[Isaiah 6:3]]
+[[Ezekiel 1:28]]
+[[Ezekiel 3:23]]
+[[Ezekiel 10:4]]
+[[Ezekiel 10:18]]
+[[Ezekiel 11:22]]
+[[Ezekiel 40:20]]
+[[Ezekiel 40:40]]
+[[Ezekiel 43:3]]
+[[Haggai 2:7]]
+[[Malachi 3:1]]
+[[Revelation 1:17]]
+---
+
+"Then brought he me the way of the north gate before the house: and I looked, and, behold, the glory of the LORD filled the house of the LORD: and I fell upon my face."

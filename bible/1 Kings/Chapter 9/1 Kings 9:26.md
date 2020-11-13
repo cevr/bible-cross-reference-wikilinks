@@ -1,8 +1,0 @@
-[[Numbers 33:35]]
-[[Deuteronomy 2:8]]
-[[1 Kings 22:48]]
-[[1 Kings 22:49]]
-[[2 Kings 14:22]]
-[[2 Chronicles 8:11]]
-[[2 Chronicles 8:17]]
-[[Proverbs 31:14]]

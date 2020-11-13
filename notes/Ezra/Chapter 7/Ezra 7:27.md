@@ -1,0 +1,20 @@
+---
+Links:
+[[1 Chronicles 29:10]]
+[[2 Chronicles 31:8]]
+[[Ezra 6:22]]
+[[Nehemiah 2:8]]
+[[Nehemiah 2:12]]
+[[Nehemiah 7:5]]
+[[Proverbs 21:1]]
+[[Isaiah 60:13]]
+[[Luke 7:5]]
+[[2 Corinthians 8:16]]
+[[Philippians 4:10]]
+[[Hebrews 8:10]]
+[[Hebrews 10:16]]
+[[James 1:17]]
+[[Revelation 17:17]]
+---
+
+"Blessed be the LORD God of our fathers, which hath put such a thing as this in the king's heart, to beautify the house of the LORD which is in Jerusalem:"

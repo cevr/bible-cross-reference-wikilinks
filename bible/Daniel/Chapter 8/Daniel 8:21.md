@@ -1,6 +1,0 @@
-[[Daniel 2:39]]
-[[Daniel 7:6]]
-[[Daniel 8:5]]
-[[Daniel 10:20]]
-[[Daniel 11:3]]
-[[Zechariah 9:13]]

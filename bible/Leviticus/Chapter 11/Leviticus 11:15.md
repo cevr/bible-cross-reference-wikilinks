@@ -1,5 +1,0 @@
-[[Genesis 8:7]]
-[[1 Kings 17:4]]
-[[1 Kings 17:6]]
-[[Proverbs 30:17]]
-[[Luke 12:24]]

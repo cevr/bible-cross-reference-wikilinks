@@ -1,5 +1,0 @@
-[[Exodus 26:1]]
-[[Exodus 26:29]]
-[[1 Kings 6:20]]
-[[1 Kings 6:29]]
-[[Ezekiel 7:20]]

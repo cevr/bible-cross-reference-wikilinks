@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 9:16]]
+[[1 Samuel 2:8]]
+[[1 Kings 21:25]]
+[[1 Kings 22:19]]
+[[2 Kings 21:6]]
+[[2 Chronicles 28:22]]
+[[Psalms 9:16]]
+[[Psalms 12:8]]
+[[Psalms 75:6]]
+[[Psalms 83:17]]
+[[Psalms 113:7]]
+[[Isaiah 6:3]]
+[[Isaiah 6:8]]
+[[Jeremiah 27:5]]
+[[Ezekiel 7:24]]
+[[Ezekiel 25:17]]
+[[Daniel 2:21]]
+[[Daniel 4:8]]
+[[Daniel 4:13]]
+[[Daniel 4:25]]
+[[Daniel 4:32]]
+[[Daniel 5:18]]
+[[Daniel 11:21]]
+[[1 Corinthians 1:28]]
+[[1 Timothy 5:21]]
+[[Revelation 4:8]]
+---
+
+"This matter is by the decree of the watchers, and the demand by the word of the holy ones: to the intent that the living may know that the most High ruleth in the kingdom of men, and giveth it to whomsoever he will, and setteth up over it the basest of men."

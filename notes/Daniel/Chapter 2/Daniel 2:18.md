@@ -1,0 +1,23 @@
+---
+Links:
+[[Genesis 18:28]]
+[[1 Samuel 17:37]]
+[[Esther 4:15]]
+[[Psalms 50:15]]
+[[Psalms 91:15]]
+[[Psalms 136:26]]
+[[Proverbs 3:5]]
+[[Isaiah 37:4]]
+[[Jeremiah 33:3]]
+[[Daniel 3:17]]
+[[Malachi 3:18]]
+[[Matthew 18:12]]
+[[Matthew 18:19]]
+[[Acts 4:24]]
+[[Acts 12:4]]
+[[Romans 15:30]]
+[[2 Timothy 4:17]]
+[[2 Peter 2:9]]
+---
+
+"That they would desire mercies of the God of heaven concerning this secret; that Daniel and his fellows should not perish with the rest of the wise men of Babylon."

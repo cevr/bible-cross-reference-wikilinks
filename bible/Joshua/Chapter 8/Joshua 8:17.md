@@ -1,7 +1,0 @@
-[[Deuteronomy 2:30]]
-[[Joshua 8:3]]
-[[Joshua 8:24]]
-[[Joshua 11:20]]
-[[Judges 20:31]]
-[[Job 5:13]]
-[[Isaiah 19:11]]

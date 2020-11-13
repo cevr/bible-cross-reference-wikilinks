@@ -1,0 +1,26 @@
+---
+Links:
+[[Leviticus 26:33]]
+[[Numbers 23:9]]
+[[Deuteronomy 4:27]]
+[[Deuteronomy 30:3]]
+[[Deuteronomy 32:26]]
+[[Ezra 4:6]]
+[[Ezra 4:12]]
+[[Ezra 4:15]]
+[[Nehemiah 1:8]]
+[[Jeremiah 50:17]]
+[[Ezekiel 6:8]]
+[[Ezekiel 11:16]]
+[[Daniel 6:14]]
+[[Zechariah 7:14]]
+[[John 7:35]]
+[[Acts 16:20]]
+[[Acts 17:6]]
+[[Acts 24:5]]
+[[Acts 28:22]]
+[[James 1:1]]
+[[1 Peter 1:1]]
+---
+
+"And Haman said unto king Ahasuerus, There is a certain people scattered abroad and dispersed among the people in all the provinces of thy kingdom; and their laws are diverse from all people; neither keep they the king's laws: therefore it is not for the king's profit to suffer them."

@@ -1,0 +1,14 @@
+---
+Links:
+[[1 Samuel 14:50]]
+[[2 Samuel 2:8]]
+[[2 Samuel 3:1]]
+[[2 Kings 10:23]]
+[[2 Chronicles 25:8]]
+[[Proverbs 21:30]]
+[[Isaiah 8:9]]
+[[Joel 3:9]]
+[[Matthew 12:30]]
+---
+
+"And it came to pass, while there was war between the house of Saul and the house of David, that Abner made himself strong for the house of Saul."

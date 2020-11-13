@@ -1,8 +1,0 @@
-[[Judges 6:18]]
-[[Judges 13:15]]
-[[1 Kings 13:7]]
-[[1 Kings 14:3]]
-[[2 Kings 4:42]]
-[[2 Kings 5:5]]
-[[2 Kings 5:15]]
-[[2 Kings 8:8]]

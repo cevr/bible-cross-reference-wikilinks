@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 11:27]]
+[[Genesis 14:14]]
+[[Genesis 45:24]]
+[[Exodus 2:13]]
+[[Judges 9:26]]
+[[Psalms 133:1]]
+[[Proverbs 15:1]]
+[[Proverbs 15:18]]
+[[Proverbs 20:3]]
+[[Matthew 5:9]]
+[[Acts 7:26]]
+[[Romans 12:10]]
+[[1 Corinthians 6:6]]
+[[Ephesians 4:2]]
+[[Philippians 2:14]]
+[[1 Thessalonians 4:9]]
+[[Hebrews 12:14]]
+[[Hebrews 13:1]]
+[[James 3:17]]
+[[1 Peter 1:22]]
+[[1 Peter 2:17]]
+[[1 Peter 3:8]]
+[[1 Peter 4:8]]
+[[2 Peter 1:7]]
+[[1 John 2:9]]
+[[1 John 3:14]]
+[[1 John 4:7]]
+[[1 John 4:20]]
+---
+
+"And Abram said unto Lot, Let there be no strife, I pray thee, between me and thee, and between my herdmen and thy herdmen; for we be brethren."

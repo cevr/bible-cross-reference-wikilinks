@@ -1,8 +1,0 @@
-[[Genesis 22:8]]
-[[Psalms 40:6]]
-[[Psalms 89:19]]
-[[Isaiah 30:21]]
-[[1 Corinthians 5:7]]
-[[1 Corinthians 10:13]]
-[[2 Corinthians 1:9]]
-[[1 Peter 1:19]]

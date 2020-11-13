@@ -1,0 +1,19 @@
+---
+Links:
+[[Genesis 1:28]]
+[[Genesis 9:1]]
+[[Deuteronomy 10:14]]
+[[Deuteronomy 32:8]]
+[[Psalms 8:6]]
+[[Psalms 89:11]]
+[[Psalms 89:12]]
+[[Psalms 144:5]]
+[[Psalms 148:4]]
+[[Isaiah 45:18]]
+[[Isaiah 66:1]]
+[[Jeremiah 27:5]]
+[[Lamentations 3:66]]
+[[John 14:2]]
+---
+
+"The heaven, even the heavens, are the LORD'S: but the earth hath he given to the children of men."

@@ -1,5 +1,0 @@
-[[1 Chronicles 29:14]]
-[[2 Chronicles 31:10]]
-[[Psalms 24:1]]
-[[Hosea 2:8]]
-[[Luke 19:16]]

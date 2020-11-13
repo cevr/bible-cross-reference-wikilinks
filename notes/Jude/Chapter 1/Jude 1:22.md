@@ -1,0 +1,13 @@
+---
+Links:
+[[Ezekiel 34:17]]
+[[2 Corinthians 2:8]]
+[[Galatians 4:20]]
+[[Galatians 6:1]]
+[[Hebrews 6:4]]
+[[James 5:19]]
+[[1 John 5:16]]
+[[Jude 1:4]]
+---
+
+"And of some have compassion, making a difference:"

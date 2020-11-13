@@ -1,8 +1,0 @@
-[[Deuteronomy 26:6]]
-[[2 Kings 3:19]]
-[[2 Kings 3:25]]
-[[Matthew 3:10]]
-[[Matthew 7:15]]
-[[Matthew 21:19]]
-[[Luke 13:7]]
-[[John 15:2]]

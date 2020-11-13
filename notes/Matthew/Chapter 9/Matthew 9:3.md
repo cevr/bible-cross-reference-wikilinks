@@ -1,0 +1,15 @@
+---
+Links:
+[[Leviticus 24:16]]
+[[Matthew 7:29]]
+[[Matthew 26:65]]
+[[Mark 2:6]]
+[[Mark 7:21]]
+[[Mark 14:64]]
+[[Luke 5:21]]
+[[Luke 7:39]]
+[[John 10:33]]
+[[Acts 6:11]]
+---
+
+"And, behold, certain of the scribes said within themselves, This man blasphemeth."

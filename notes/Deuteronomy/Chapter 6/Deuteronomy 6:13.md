@@ -1,0 +1,28 @@
+---
+Links:
+[[Genesis 24:3]]
+[[Exodus 23:25]]
+[[Leviticus 19:12]]
+[[Deuteronomy 5:29]]
+[[Deuteronomy 6:2]]
+[[Deuteronomy 10:12]]
+[[Deuteronomy 10:20]]
+[[Deuteronomy 13:4]]
+[[Deuteronomy 13:5]]
+[[Joshua 2:12]]
+[[Joshua 23:7]]
+[[Joshua 24:14]]
+[[1 Samuel 7:3]]
+[[Psalms 15:4]]
+[[Psalms 63:11]]
+[[Isaiah 45:23]]
+[[Isaiah 65:16]]
+[[Jeremiah 4:2]]
+[[Jeremiah 5:2]]
+[[Jeremiah 5:7]]
+[[Jeremiah 12:16]]
+[[Matthew 4:10]]
+[[Luke 4:8]]
+---
+
+"Thou shalt fear the LORD thy God, and serve him, and shalt swear by his name."

@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 6:6]]
+[[Exodus 32:14]]
+[[Numbers 14:13]]
+[[Numbers 14:16]]
+[[Numbers 14:19]]
+[[Deuteronomy 9:28]]
+[[Deuteronomy 13:17]]
+[[Deuteronomy 32:26]]
+[[Deuteronomy 32:27]]
+[[Deuteronomy 32:36]]
+[[Joshua 7:9]]
+[[Joshua 7:26]]
+[[Ezra 10:14]]
+[[Psalms 74:18]]
+[[Psalms 78:38]]
+[[Psalms 79:9]]
+[[Psalms 85:3]]
+[[Psalms 90:13]]
+[[Psalms 106:45]]
+[[Isaiah 64:7]]
+[[Isaiah 64:8]]
+[[Ezekiel 20:9]]
+[[Ezekiel 20:14]]
+[[Ezekiel 20:22]]
+[[Amos 7:3]]
+[[Amos 7:6]]
+[[Jonah 3:9]]
+[[Zechariah 8:14]]
+---
+
+"Wherefore should the Egyptians speak, and say, For mischief did he bring them out, to slay them in the mountains, and to consume them from the face of the earth? Turn from thy fierce wrath, and repent of this evil against thy people."

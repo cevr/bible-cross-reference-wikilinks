@@ -1,0 +1,33 @@
+---
+Links:
+[[Deuteronomy 6:13]]
+[[Deuteronomy 7:4]]
+[[Deuteronomy 13:10]]
+[[Deuteronomy 17:7]]
+[[Deuteronomy 18:20]]
+[[Deuteronomy 19:19]]
+[[Deuteronomy 22:21]]
+[[Deuteronomy 22:24]]
+[[Deuteronomy 24:7]]
+[[Deuteronomy 26:14]]
+[[Joshua 23:8]]
+[[1 Samuel 12:14]]
+[[1 Kings 13:19]]
+[[1 Kings 18:40]]
+[[2 Chronicles 34:31]]
+[[Isaiah 9:14]]
+[[Isaiah 28:17]]
+[[Jeremiah 7:23]]
+[[Jeremiah 14:15]]
+[[Jeremiah 28:15]]
+[[Jeremiah 29:21]]
+[[Jeremiah 50:6]]
+[[Zechariah 13:3]]
+[[Acts 13:8]]
+[[1 Corinthians 5:13]]
+[[2 Timothy 4:4]]
+[[Hebrews 12:14]]
+[[Revelation 19:20]]
+---
+
+"And that prophet, or that dreamer of dreams, shall be put to death; because he hath spoken to turn you away from the LORD your God, which brought you out of the land of Egypt, and redeemed you out of the house of bondage, to thrust thee out of the way which the LORD thy God commanded thee to walk in. So shalt thou put the evil away from the midst of thee."

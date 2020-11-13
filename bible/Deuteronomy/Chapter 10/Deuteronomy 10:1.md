@@ -1,5 +1,0 @@
-[[Exodus 25:10]]
-[[Exodus 34:1]]
-[[Exodus 34:4]]
-[[Deuteronomy 10:3]]
-[[Hebrews 9:4]]

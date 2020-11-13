@@ -1,0 +1,19 @@
+---
+Links:
+[[Matthew 25:22]]
+[[Acts 11:23]]
+[[Acts 16:9]]
+[[Romans 15:26]]
+[[1 Corinthians 15:10]]
+[[2 Corinthians 8:2]]
+[[2 Corinthians 9:2]]
+[[2 Corinthians 9:4]]
+[[2 Corinthians 9:12]]
+[[2 Corinthians 11:9]]
+[[Ephesians 3:8]]
+[[Colossians 1:29]]
+[[1 Thessalonians 1:7]]
+[[1 Thessalonians 4:10]]
+---
+
+"Moreover, brethren, we do you to wit of the grace of God bestowed on the churches of Macedonia;"

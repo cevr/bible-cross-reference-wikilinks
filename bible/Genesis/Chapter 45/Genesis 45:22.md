@@ -1,6 +1,0 @@
-[[Genesis 43:34]]
-[[Judges 14:12]]
-[[Judges 14:19]]
-[[2 Kings 5:5]]
-[[2 Kings 5:22]]
-[[Revelation 6:11]]

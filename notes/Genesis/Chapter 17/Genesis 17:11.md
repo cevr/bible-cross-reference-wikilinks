@@ -1,0 +1,13 @@
+---
+Links:
+[[Exodus 4:25]]
+[[Exodus 12:48]]
+[[Deuteronomy 10:16]]
+[[Joshua 5:3]]
+[[1 Samuel 18:25]]
+[[2 Samuel 3:14]]
+[[Acts 7:8]]
+[[Romans 4:11]]
+---
+
+"And ye shall circumcise the flesh of your foreskin; and it shall be a token of the covenant betwixt me and you."

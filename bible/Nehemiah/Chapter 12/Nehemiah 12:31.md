@@ -1,7 +1,0 @@
-[[1 Chronicles 13:1]]
-[[1 Chronicles 28:1]]
-[[2 Chronicles 5:2]]
-[[Nehemiah 2:13]]
-[[Nehemiah 3:13]]
-[[Nehemiah 12:38]]
-[[Nehemiah 12:40]]

@@ -1,7 +1,0 @@
-[[Exodus 6:16]]
-[[Exodus 6:20]]
-[[Joshua 21:8]]
-[[Joshua 21:9]]
-[[Joshua 24:33]]
-[[1 Chronicles 6:39]]
-[[1 Chronicles 6:54]]

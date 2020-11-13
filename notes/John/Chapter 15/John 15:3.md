@@ -1,0 +1,9 @@
+---
+Links:
+[[John 13:10]]
+[[John 17:17]]
+[[Ephesians 5:26]]
+[[1 Peter 1:22]]
+---
+
+"Now ye are clean through the word which I have spoken unto you."

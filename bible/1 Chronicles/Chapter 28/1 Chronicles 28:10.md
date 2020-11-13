@@ -1,7 +1,0 @@
-[[1 Kings 1:20]]
-[[1 Kings 2:2]]
-[[1 Chronicles 22:13]]
-[[1 Chronicles 22:16]]
-[[1 Chronicles 28:6]]
-[[1 Chronicles 28:20]]
-[[1 Timothy 4:16]]

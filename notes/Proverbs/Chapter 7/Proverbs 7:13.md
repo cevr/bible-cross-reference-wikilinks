@@ -1,0 +1,18 @@
+---
+Links:
+[[Genesis 39:7]]
+[[Genesis 39:12]]
+[[Numbers 25:1]]
+[[Numbers 25:6]]
+[[Numbers 31:16]]
+[[Proverbs 9:15]]
+[[Proverbs 21:29]]
+[[Isaiah 50:7]]
+[[Ezekiel 2:4]]
+[[Ezekiel 2:6]]
+[[Ezekiel 3:7]]
+[[Ezekiel 16:33]]
+[[Revelation 2:20]]
+---
+
+"So she caught him, and kissed him, and with an impudent face said unto him,"

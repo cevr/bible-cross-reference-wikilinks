@@ -1,5 +1,0 @@
-[[Exodus 30:2]]
-[[Hebrews 9:24]]
-[[Hebrews 10:21]]
-[[Revelation 8:3]]
-[[Revelation 9:1]]

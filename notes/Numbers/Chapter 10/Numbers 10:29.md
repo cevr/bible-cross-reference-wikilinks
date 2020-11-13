@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 12:7]]
+[[Genesis 13:15]]
+[[Genesis 15:18]]
+[[Genesis 17:8]]
+[[Genesis 32:12]]
+[[Exodus 2:18]]
+[[Exodus 2:21]]
+[[Exodus 3:1]]
+[[Exodus 3:8]]
+[[Exodus 6:7]]
+[[Exodus 6:8]]
+[[Exodus 18:1]]
+[[Exodus 18:27]]
+[[Numbers 23:19]]
+[[Judges 1:16]]
+[[Judges 4:11]]
+[[1 Samuel 15:6]]
+[[Psalms 34:8]]
+[[Isaiah 2:3]]
+[[Jeremiah 50:5]]
+[[Zechariah 8:21]]
+[[Acts 7:5]]
+[[Titus 1:2]]
+[[Hebrews 6:18]]
+[[Revelation 22:17]]
+---
+
+"And Moses said unto Hobab, the son of Raguel the Midianite, Moses' father in law, We are journeying unto the place of which the LORD said, I will give it you: come thou with us, and we will do thee good: for the LORD hath spoken good concerning Israel."

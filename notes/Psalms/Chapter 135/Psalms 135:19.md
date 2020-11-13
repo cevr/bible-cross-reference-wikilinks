@@ -1,0 +1,14 @@
+---
+Links:
+[[1 Chronicles 29:20]]
+[[Psalms 115:9]]
+[[Psalms 115:11]]
+[[Psalms 115:12]]
+[[Psalms 118:1]]
+[[Psalms 145:10]]
+[[Psalms 147:19]]
+[[Psalms 148:14]]
+[[Revelation 19:5]]
+---
+
+"Bless the LORD, O house of Israel: bless the LORD, O house of Aaron:"

@@ -1,6 +1,0 @@
-[[Genesis 8:22]]
-[[Genesis 9:9]]
-[[Psalms 74:16]]
-[[Psalms 104:19]]
-[[Jeremiah 31:35]]
-[[Jeremiah 33:20]]

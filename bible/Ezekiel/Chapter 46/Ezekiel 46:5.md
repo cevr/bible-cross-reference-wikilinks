@@ -1,7 +1,0 @@
-[[Leviticus 14:21]]
-[[Numbers 6:21]]
-[[Numbers 28:12]]
-[[Deuteronomy 16:17]]
-[[Ezekiel 45:24]]
-[[Ezekiel 46:7]]
-[[Ezekiel 46:11]]

@@ -1,0 +1,15 @@
+---
+Links:
+[[2 Kings 1:8]]
+[[Isaiah 20:2]]
+[[Jeremiah 2:26]]
+[[Jeremiah 6:15]]
+[[Micah 3:6]]
+[[Micah 3:7]]
+[[Matthew 3:4]]
+[[Matthew 11:8]]
+[[Mark 1:6]]
+[[Revelation 11:3]]
+---
+
+"And it shall come to pass in that day, that the prophets shall be ashamed every one of his vision, when he hath prophesied; neither shall they wear a rough garment to deceive:"

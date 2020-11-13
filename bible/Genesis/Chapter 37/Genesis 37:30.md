@@ -1,6 +1,0 @@
-[[Genesis 37:20]]
-[[Genesis 42:13]]
-[[Genesis 42:32]]
-[[Genesis 42:35]]
-[[Genesis 42:36]]
-[[Jeremiah 31:15]]

@@ -1,0 +1,21 @@
+---
+Links:
+[[Genesis 45:10]]
+[[Genesis 47:12]]
+[[Genesis 47:28]]
+[[Judges 12:14]]
+[[Ruth 2:2]]
+[[Ruth 2:18]]
+[[1 Samuel 22:3]]
+[[Job 18:19]]
+[[Proverbs 31:28]]
+[[Isaiah 14:22]]
+[[Matthew 15:4]]
+[[Mark 7:11]]
+[[Luke 2:51]]
+[[John 19:26]]
+[[Ephesians 6:1]]
+[[1 Timothy 2:3]]
+---
+
+"But if any widow have children or nephews, let them learn first to shew piety at home, and to requite their parents: for that is good and acceptable before God."

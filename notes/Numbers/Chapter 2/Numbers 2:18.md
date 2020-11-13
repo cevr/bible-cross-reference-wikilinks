@@ -1,0 +1,16 @@
+---
+Links:
+[[Genesis 48:5]]
+[[Genesis 48:14]]
+[[Numbers 1:10]]
+[[Numbers 1:32]]
+[[Numbers 7:48]]
+[[Numbers 7:53]]
+[[Numbers 10:22]]
+[[Deuteronomy 33:17]]
+[[1 Chronicles 7:26]]
+[[Psalms 80:1]]
+[[Jeremiah 31:18]]
+---
+
+"On the west side shall be the standard of the camp of Ephraim according to their armies: and the captain of the sons of Ephraim shall be Elishama the son of Ammihud."

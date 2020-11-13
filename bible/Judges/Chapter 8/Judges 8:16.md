@@ -1,5 +1,0 @@
-[[Judges 8:7]]
-[[Ezra 2:6]]
-[[Proverbs 10:13]]
-[[Proverbs 19:29]]
-[[Micah 7:4]]

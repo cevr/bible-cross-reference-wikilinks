@@ -1,0 +1,23 @@
+---
+Links:
+[[Psalms 12:2]]
+[[Psalms 50:17]]
+[[Proverbs 1:7]]
+[[Isaiah 1:4]]
+[[Isaiah 30:9]]
+[[Isaiah 59:14]]
+[[Jeremiah 2:30]]
+[[Jeremiah 5:1]]
+[[Jeremiah 5:3]]
+[[Jeremiah 6:8]]
+[[Jeremiah 6:28]]
+[[Jeremiah 6:29]]
+[[Jeremiah 9:3]]
+[[Jeremiah 32:33]]
+[[Hosea 4:1]]
+[[Micah 7:2]]
+[[Zephaniah 3:2]]
+[[Zephaniah 3:7]]
+---
+
+"But thou shalt say unto them, This is a nation that obeyeth not the voice of the LORD their God, nor receiveth correction: truth is perished, and is cut off from their mouth."

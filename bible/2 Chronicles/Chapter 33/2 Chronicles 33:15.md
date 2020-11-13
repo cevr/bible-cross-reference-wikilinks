@@ -1,8 +1,0 @@
-[[2 Kings 21:7]]
-[[2 Chronicles 33:3]]
-[[2 Chronicles 34:3]]
-[[Isaiah 2:17]]
-[[Ezekiel 18:20]]
-[[Hosea 14:1]]
-[[Matthew 3:8]]
-[[Matthew 25:16]]

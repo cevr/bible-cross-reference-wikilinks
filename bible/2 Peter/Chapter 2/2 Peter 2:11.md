@@ -1,5 +1,0 @@
-[[Psalms 103:20]]
-[[Psalms 104:4]]
-[[Daniel 6:22]]
-[[2 Thessalonians 1:7]]
-[[Jude 1:9]]

@@ -1,0 +1,29 @@
+---
+Links:
+[[Exodus 32:32]]
+[[Psalms 69:28]]
+[[Isaiah 4:3]]
+[[Ezekiel 13:9]]
+[[Daniel 12:1]]
+[[Luke 10:20]]
+[[Acts 9:36]]
+[[Acts 16:14]]
+[[Romans 12:1]]
+[[Romans 16:2]]
+[[Romans 16:9]]
+[[Romans 16:12]]
+[[Philippians 1:27]]
+[[Philippians 2:20]]
+[[Philippians 4:2]]
+[[Colossians 1:7]]
+[[1 Timothy 5:9]]
+[[Philemon 1:8]]
+[[Revelation 3:5]]
+[[Revelation 13:8]]
+[[Revelation 17:8]]
+[[Revelation 20:12]]
+[[Revelation 20:15]]
+[[Revelation 21:27]]
+---
+
+"And I intreat thee also, true yokefellow, help those women which laboured with me in the gospel, with Clement also, and with other my fellowlabourers, whose names are in the book of life."

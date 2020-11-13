@@ -1,7 +1,0 @@
-[[1 Kings 10:24]]
-[[1 Chronicles 29:25]]
-[[2 Chronicles 9:22]]
-[[Ecclesiastes 2:9]]
-[[Matthew 6:33]]
-[[Ephesians 3:20]]
-[[James 1:5]]

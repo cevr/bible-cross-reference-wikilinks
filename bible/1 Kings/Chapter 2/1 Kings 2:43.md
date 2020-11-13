@@ -1,5 +1,0 @@
-[[2 Samuel 21:2]]
-[[2 Chronicles 30:12]]
-[[Ecclesiastes 8:2]]
-[[Ezekiel 17:18]]
-[[Romans 13:5]]

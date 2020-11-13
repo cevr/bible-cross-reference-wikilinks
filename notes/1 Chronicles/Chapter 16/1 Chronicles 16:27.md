@@ -1,0 +1,15 @@
+---
+Links:
+[[Nehemiah 8:10]]
+[[Psalms 8:1]]
+[[Psalms 16:11]]
+[[Psalms 27:4]]
+[[Psalms 28:7]]
+[[Psalms 43:2]]
+[[Psalms 63:2]]
+[[Psalms 96:6]]
+[[Ezekiel 1:27]]
+[[John 17:24]]
+---
+
+"Glory and honour are in his presence; strength and gladness are in his place."

@@ -1,6 +1,0 @@
-[[Genesis 43:27]]
-[[1 Samuel 13:10]]
-[[1 Kings 1:47]]
-[[1 Chronicles 18:10]]
-[[Psalms 129:8]]
-[[Isaiah 39:1]]

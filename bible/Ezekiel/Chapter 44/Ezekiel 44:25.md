@@ -1,6 +1,0 @@
-[[Leviticus 21:1]]
-[[Leviticus 22:4]]
-[[Matthew 8:21]]
-[[Luke 9:59]]
-[[2 Corinthians 5:16]]
-[[1 Thessalonians 4:13]]

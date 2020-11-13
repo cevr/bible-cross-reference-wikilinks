@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 40:34]]
+[[1 Samuel 4:21]]
+[[1 Kings 18:12]]
+[[2 Kings 2:16]]
+[[Psalms 26:8]]
+[[Psalms 72:18]]
+[[Psalms 103:20]]
+[[Psalms 148:2]]
+[[Isaiah 6:3]]
+[[Ezekiel 2:2]]
+[[Ezekiel 3:14]]
+[[Ezekiel 8:3]]
+[[Ezekiel 9:3]]
+[[Ezekiel 10:4]]
+[[Ezekiel 10:18]]
+[[Ezekiel 11:1]]
+[[Ezekiel 11:22]]
+[[Ezekiel 40:1]]
+[[Ezekiel 43:4]]
+[[Ezekiel 43:5]]
+[[Acts 2:2]]
+[[Acts 8:39]]
+[[Revelation 1:10]]
+[[Revelation 1:15]]
+[[Revelation 5:11]]
+[[Revelation 19:6]]
+---
+
+"Then the spirit took me up, and I heard behind me a voice of a great rushing, saying, Blessed be the glory of the LORD from his place."

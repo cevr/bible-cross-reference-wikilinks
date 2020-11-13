@@ -1,6 +1,0 @@
-[[1 Kings 10:21]]
-[[2 Chronicles 9:27]]
-[[Esther 1:7]]
-[[Isaiah 2:22]]
-[[Jeremiah 31:5]]
-[[Daniel 5:2]]

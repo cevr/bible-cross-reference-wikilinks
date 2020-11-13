@@ -1,0 +1,16 @@
+---
+Links:
+[[Isaiah 48:8]]
+[[Jeremiah 3:1]]
+[[Jeremiah 3:8]]
+[[Jeremiah 5:11]]
+[[Ezekiel 16:15]]
+[[Ezekiel 16:25]]
+[[Ezekiel 16:32]]
+[[Hosea 3:1]]
+[[Hosea 5:7]]
+[[Hosea 6:7]]
+[[Malachi 2:11]]
+---
+
+"Surely as a wife treacherously departeth from her husband, so have ye dealt treacherously with me, O house of Israel, saith the LORD."

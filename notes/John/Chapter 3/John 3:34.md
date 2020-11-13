@@ -1,0 +1,33 @@
+---
+Links:
+[[Leviticus 7:35]]
+[[Numbers 11:25]]
+[[2 Kings 2:9]]
+[[Psalms 45:7]]
+[[Isaiah 11:2]]
+[[Isaiah 59:21]]
+[[Isaiah 62:1]]
+[[Matthew 12:18]]
+[[Luke 4:18]]
+[[John 1:16]]
+[[John 3:17]]
+[[John 5:26]]
+[[John 7:16]]
+[[John 7:37]]
+[[John 8:26]]
+[[John 8:40]]
+[[John 8:47]]
+[[John 15:26]]
+[[John 16:7]]
+[[Acts 10:38]]
+[[Romans 8:2]]
+[[Ephesians 3:8]]
+[[Ephesians 4:7]]
+[[Colossians 1:19]]
+[[Colossians 2:9]]
+[[Revelation 21:6]]
+[[Revelation 22:1]]
+[[Revelation 22:16]]
+---
+
+"For he whom God hath sent speaketh the words of God: for God giveth not the Spirit by measure unto him."

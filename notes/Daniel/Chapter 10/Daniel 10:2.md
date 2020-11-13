@@ -1,0 +1,17 @@
+---
+Links:
+[[Ezra 9:4]]
+[[Nehemiah 1:4]]
+[[Psalms 42:9]]
+[[Psalms 43:2]]
+[[Psalms 137:1]]
+[[Isaiah 66:10]]
+[[Jeremiah 9:1]]
+[[Daniel 9:24]]
+[[Matthew 9:15]]
+[[Romans 9:2]]
+[[James 4:9]]
+[[Revelation 11:5]]
+---
+
+"In those days I Daniel was mourning three full weeks."

@@ -1,0 +1,22 @@
+---
+Links:
+[[Genesis 16:2]]
+[[Genesis 20:18]]
+[[Genesis 25:21]]
+[[Genesis 29:31]]
+[[Genesis 31:36]]
+[[Genesis 50:19]]
+[[Exodus 32:19]]
+[[Deuteronomy 7:13]]
+[[1 Samuel 1:5]]
+[[1 Samuel 2:5]]
+[[2 Kings 5:7]]
+[[Psalms 113:9]]
+[[Psalms 127:3]]
+[[Matthew 5:22]]
+[[Mark 3:5]]
+[[Luke 1:42]]
+[[Ephesians 4:26]]
+---
+
+"And Jacob's anger was kindled against Rachel: and he said, Am I in God's stead, who hath withheld from thee the fruit of the womb?"

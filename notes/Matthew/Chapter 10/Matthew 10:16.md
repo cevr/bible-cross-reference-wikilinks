@@ -1,0 +1,24 @@
+---
+Links:
+[[Genesis 3:1]]
+[[Genesis 3:13]]
+[[Nehemiah 4:13]]
+[[Jeremiah 40:16]]
+[[Luke 10:3]]
+[[Luke 21:15]]
+[[Acts 20:29]]
+[[Romans 16:18]]
+[[1 Corinthians 14:20]]
+[[2 Corinthians 1:12]]
+[[2 Corinthians 8:20]]
+[[2 Corinthians 11:3]]
+[[2 Corinthians 11:14]]
+[[Ephesians 5:15]]
+[[Philippians 2:15]]
+[[Colossians 1:9]]
+[[Colossians 4:5]]
+[[1 Thessalonians 2:10]]
+[[1 Thessalonians 5:22]]
+---
+
+"Behold, I send you forth as sheep in the midst of wolves: be ye therefore wise as serpents, and harmless as doves."

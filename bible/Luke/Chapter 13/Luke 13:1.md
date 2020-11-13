@@ -1,5 +1,0 @@
-[[Lamentations 2:20]]
-[[Ezekiel 9:5]]
-[[Matthew 27:2]]
-[[Acts 5:37]]
-[[1 Peter 4:17]]

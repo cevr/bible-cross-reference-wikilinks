@@ -1,0 +1,26 @@
+---
+Links:
+[[Genesis 37:25]]
+[[Judges 6:5]]
+[[Judges 7:12]]
+[[Judges 8:21]]
+[[Judges 8:26]]
+[[1 Chronicles 5:20]]
+[[Job 1:3]]
+[[Psalms 31:13]]
+[[Psalms 120:5]]
+[[Isaiah 13:20]]
+[[Isaiah 60:7]]
+[[Jeremiah 4:20]]
+[[Jeremiah 6:25]]
+[[Jeremiah 10:20]]
+[[Jeremiah 20:3]]
+[[Jeremiah 46:5]]
+[[Jeremiah 49:5]]
+[[Jeremiah 49:24]]
+[[Habakkuk 3:7]]
+[[2 Corinthians 4:8]]
+[[2 Corinthians 7:5]]
+---
+
+"Their tents and their flocks shall they take away: they shall take to themselves their curtains, and all their vessels, and their camels; and they shall cry unto them, Fear is on every side."

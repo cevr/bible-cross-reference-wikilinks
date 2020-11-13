@@ -1,0 +1,16 @@
+---
+Links:
+[[Exodus 14:29]]
+[[Numbers 16:3]]
+[[Deuteronomy 1:35]]
+[[Deuteronomy 4:3]]
+[[Psalms 77:5]]
+[[Psalms 77:11]]
+[[Psalms 77:12]]
+[[Psalms 103:18]]
+[[Psalms 105:5]]
+[[Psalms 143:5]]
+[[2 Peter 2:4]]
+---
+
+"I remembered thy judgments of old, O LORD; and have comforted myself."

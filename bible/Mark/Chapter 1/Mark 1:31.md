@@ -1,7 +1,0 @@
-[[Psalms 103:1]]
-[[Psalms 116:12]]
-[[Matthew 27:55]]
-[[Mark 5:41]]
-[[Mark 15:41]]
-[[Luke 8:2]]
-[[Acts 9:41]]

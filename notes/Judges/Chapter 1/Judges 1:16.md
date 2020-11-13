@@ -1,0 +1,28 @@
+---
+Links:
+[[Exodus 3:1]]
+[[Exodus 4:18]]
+[[Exodus 18:1]]
+[[Exodus 18:7]]
+[[Exodus 18:12]]
+[[Exodus 18:14]]
+[[Exodus 18:27]]
+[[Numbers 10:29]]
+[[Numbers 10:32]]
+[[Numbers 21:1]]
+[[Numbers 24:21]]
+[[Deuteronomy 34:3]]
+[[Deuteronomy 34:4]]
+[[Joshua 12:14]]
+[[Joshua 18:21]]
+[[Judges 3:13]]
+[[Judges 4:11]]
+[[Judges 4:17]]
+[[1 Samuel 15:6]]
+[[1 Chronicles 2:15]]
+[[1 Chronicles 2:55]]
+[[2 Chronicles 28:16]]
+[[Jeremiah 35:2]]
+---
+
+"And the children of the Kenite, Moses' father in law, went up out of the city of palm trees with the children of Judah into the wilderness of Judah, which lieth in the south of Arad; and they went and dwelt among the people."

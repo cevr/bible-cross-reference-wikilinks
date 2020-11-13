@@ -1,6 +1,0 @@
-[[Job 27:15]]
-[[Psalms 78:64]]
-[[Jeremiah 16:4]]
-[[Jeremiah 47:3]]
-[[Ezekiel 24:16]]
-[[Amos 6:9]]

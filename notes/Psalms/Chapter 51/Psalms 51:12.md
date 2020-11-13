@@ -1,0 +1,29 @@
+---
+Links:
+[[Job 29:2]]
+[[Psalms 13:5]]
+[[Psalms 17:5]]
+[[Psalms 19:13]]
+[[Psalms 21:1]]
+[[Psalms 24:4]]
+[[Psalms 35:9]]
+[[Psalms 85:6]]
+[[Psalms 119:116]]
+[[Psalms 119:133]]
+[[Isaiah 41:10]]
+[[Isaiah 49:13]]
+[[Isaiah 57:17]]
+[[Isaiah 61:10]]
+[[Jeremiah 10:23]]
+[[Jeremiah 31:9]]
+[[Luke 1:47]]
+[[Romans 5:2]]
+[[Romans 8:15]]
+[[Romans 14:4]]
+[[2 Corinthians 3:17]]
+[[Galatians 4:6]]
+[[1 Peter 1:5]]
+[[Jude 1:24]]
+---
+
+"Restore unto me the joy of thy salvation; and uphold me with thy free spirit."

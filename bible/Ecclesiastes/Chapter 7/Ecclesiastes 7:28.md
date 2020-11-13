@@ -1,5 +1,0 @@
-[[1 Kings 11:1]]
-[[Job 33:23]]
-[[Psalms 12:1]]
-[[Ecclesiastes 7:23]]
-[[Isaiah 26:9]]

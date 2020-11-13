@@ -1,7 +1,0 @@
-[[Exodus 9:11]]
-[[Exodus 15:26]]
-[[Leviticus 26:3]]
-[[Deuteronomy 28:27]]
-[[Deuteronomy 28:60]]
-[[Psalms 91:10]]
-[[Psalms 105:36]]

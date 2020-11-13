@@ -1,8 +1,0 @@
-[[Genesis 39:2]]
-[[Genesis 40:3]]
-[[Genesis 49:23]]
-[[1 Samuel 2:30]]
-[[Psalms 1:3]]
-[[Psalms 37:3]]
-[[Isaiah 43:2]]
-[[Daniel 6:22]]

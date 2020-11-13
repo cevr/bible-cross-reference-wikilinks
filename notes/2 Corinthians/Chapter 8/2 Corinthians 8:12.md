@@ -1,0 +1,23 @@
+---
+Links:
+[[Exodus 25:2]]
+[[Exodus 35:5]]
+[[Exodus 35:21]]
+[[Exodus 35:24]]
+[[Exodus 35:29]]
+[[1 Chronicles 29:3]]
+[[2 Chronicles 6:8]]
+[[Proverbs 19:22]]
+[[Matthew 25:17]]
+[[Matthew 25:22]]
+[[Mark 12:42]]
+[[Mark 14:7]]
+[[Luke 7:44]]
+[[Luke 12:47]]
+[[Luke 16:10]]
+[[Luke 21:1]]
+[[2 Corinthians 9:7]]
+[[1 Peter 4:10]]
+---
+
+"For if there be first a willing mind, it is accepted according to that a man hath, and not according to that he hath not."

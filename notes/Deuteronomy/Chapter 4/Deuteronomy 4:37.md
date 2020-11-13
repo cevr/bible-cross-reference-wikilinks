@@ -1,0 +1,33 @@
+---
+Links:
+[[Exodus 12:41]]
+[[Exodus 12:51]]
+[[Exodus 13:3]]
+[[Exodus 13:9]]
+[[Exodus 13:14]]
+[[Exodus 33:14]]
+[[Numbers 20:16]]
+[[Deuteronomy 4:34]]
+[[Deuteronomy 7:6]]
+[[Deuteronomy 7:7]]
+[[Deuteronomy 7:8]]
+[[Deuteronomy 9:5]]
+[[Deuteronomy 10:15]]
+[[2 Chronicles 16:9]]
+[[Psalms 32:8]]
+[[Psalms 34:15]]
+[[Psalms 105:6]]
+[[Psalms 114:1]]
+[[Psalms 136:10]]
+[[Isaiah 41:8]]
+[[Isaiah 43:4]]
+[[Isaiah 51:9]]
+[[Isaiah 63:9]]
+[[Isaiah 63:11]]
+[[Jeremiah 31:1]]
+[[Malachi 1:2]]
+[[Luke 1:72]]
+[[Romans 9:5]]
+---
+
+"And because he loved thy fathers, therefore he chose their seed after them, and brought thee out in his sight with his mighty power out of Egypt;"

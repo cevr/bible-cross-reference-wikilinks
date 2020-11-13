@@ -1,0 +1,30 @@
+---
+Links:
+[[Exodus 10:3]]
+[[Exodus 16:28]]
+[[Exodus 23:21]]
+[[Numbers 14:23]]
+[[Numbers 14:27]]
+[[Deuteronomy 1:32]]
+[[Deuteronomy 9:7]]
+[[Deuteronomy 9:22]]
+[[Psalms 78:22]]
+[[Psalms 78:32]]
+[[Psalms 78:41]]
+[[Psalms 95:8]]
+[[Psalms 106:24]]
+[[Proverbs 1:22]]
+[[Jeremiah 4:14]]
+[[Hosea 8:5]]
+[[Zechariah 8:14]]
+[[Matthew 17:17]]
+[[Mark 9:19]]
+[[John 10:38]]
+[[John 12:37]]
+[[John 15:24]]
+[[Hebrews 3:8]]
+[[Hebrews 3:16]]
+[[Hebrews 3:18]]
+---
+
+"And the LORD said unto Moses, How long will this people provoke me? and how long will it be ere they believe me, for all the signs which I have shewed among them?"

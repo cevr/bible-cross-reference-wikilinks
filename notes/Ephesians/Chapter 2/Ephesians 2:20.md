@@ -1,0 +1,20 @@
+---
+Links:
+[[1 Kings 7:11]]
+[[Psalms 118:22]]
+[[Isaiah 28:16]]
+[[Matthew 16:18]]
+[[Matthew 21:42]]
+[[Mark 12:10]]
+[[Luke 20:17]]
+[[Acts 4:11]]
+[[1 Corinthians 3:9]]
+[[1 Corinthians 12:28]]
+[[Galatians 2:9]]
+[[Ephesians 4:11]]
+[[1 Peter 2:4]]
+[[1 Peter 2:7]]
+[[Revelation 21:14]]
+---
+
+"And are built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone;"

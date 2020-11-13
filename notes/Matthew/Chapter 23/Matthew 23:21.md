@@ -1,0 +1,13 @@
+---
+Links:
+[[1 Kings 8:13]]
+[[1 Kings 8:27]]
+[[2 Chronicles 6:2]]
+[[2 Chronicles 7:2]]
+[[Psalms 26:8]]
+[[Psalms 132:13]]
+[[Ephesians 2:22]]
+[[Colossians 2:9]]
+---
+
+"And whoso shall swear by the temple, sweareth by it, and by him that dwelleth therein."

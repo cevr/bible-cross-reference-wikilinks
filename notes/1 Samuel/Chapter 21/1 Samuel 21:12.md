@@ -1,0 +1,14 @@
+---
+Links:
+[[Genesis 12:11]]
+[[Genesis 26:7]]
+[[1 Samuel 18:7]]
+[[1 Samuel 21:10]]
+[[Psalms 34:4]]
+[[Psalms 56:3]]
+[[Psalms 119:11]]
+[[Luke 2:19]]
+[[Luke 2:51]]
+---
+
+"And David laid up these words in his heart, and was sore afraid of Achish the king of Gath."

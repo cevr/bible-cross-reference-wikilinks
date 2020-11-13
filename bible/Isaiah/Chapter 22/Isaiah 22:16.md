@@ -1,7 +1,0 @@
-[[2 Samuel 18:18]]
-[[2 Chronicles 16:14]]
-[[Job 3:14]]
-[[Isaiah 14:18]]
-[[Isaiah 52:5]]
-[[Micah 2:10]]
-[[Matthew 27:60]]

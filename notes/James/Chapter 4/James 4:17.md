@@ -1,0 +1,14 @@
+---
+Links:
+[[Luke 12:47]]
+[[John 9:41]]
+[[John 13:17]]
+[[John 15:22]]
+[[Romans 1:20]]
+[[Romans 1:32]]
+[[Romans 2:17]]
+[[Romans 7:13]]
+[[2 Peter 2:21]]
+---
+
+"Therefore to him that knoweth to do good, and doeth it not, to him it is sin."

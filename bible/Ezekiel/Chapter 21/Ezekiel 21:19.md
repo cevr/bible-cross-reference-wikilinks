@@ -1,6 +1,0 @@
-[[Jeremiah 1:10]]
-[[Ezekiel 4:1]]
-[[Ezekiel 5:1]]
-[[Ezekiel 6:11]]
-[[Ezekiel 21:11]]
-[[Ezekiel 22:13]]

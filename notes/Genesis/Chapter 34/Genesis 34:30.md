@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 12:2]]
+[[Genesis 12:6]]
+[[Genesis 12:12]]
+[[Genesis 13:7]]
+[[Genesis 28:13]]
+[[Genesis 46:27]]
+[[Genesis 49:5]]
+[[Exodus 5:21]]
+[[Deuteronomy 4:17]]
+[[Deuteronomy 7:7]]
+[[Joshua 7:25]]
+[[1 Samuel 13:4]]
+[[1 Samuel 16:2]]
+[[1 Samuel 27:1]]
+[[1 Samuel 27:12]]
+[[2 Samuel 10:6]]
+[[2 Samuel 16:21]]
+[[1 Kings 11:25]]
+[[1 Kings 18:18]]
+[[1 Chronicles 2:7]]
+[[1 Chronicles 16:12]]
+[[1 Chronicles 16:19]]
+[[1 Chronicles 19:6]]
+[[Psalms 105:12]]
+[[Proverbs 11:17]]
+[[Proverbs 11:29]]
+[[Proverbs 15:27]]
+[[Romans 4:18]]
+---
+
+"And Jacob said to Simeon and Levi, Ye have troubled me to make me to stink among the inhabitants of the land, among the Canaanites and the Perizzites: and I being few in number, they shall gather themselves together against me, and slay me; and I shall be destroyed, I and my house."

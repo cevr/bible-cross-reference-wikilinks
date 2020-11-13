@@ -1,0 +1,29 @@
+---
+Links:
+[[Leviticus 6:30]]
+[[2 Chronicles 29:24]]
+[[Ezekiel 45:20]]
+[[Daniel 9:24]]
+[[John 5:26]]
+[[John 6:40]]
+[[John 6:57]]
+[[John 10:28]]
+[[John 11:25]]
+[[John 14:19]]
+[[Romans 5:11]]
+[[Romans 8:7]]
+[[Romans 8:32]]
+[[Romans 8:34]]
+[[Romans 11:28]]
+[[2 Corinthians 4:10]]
+[[2 Corinthians 5:18]]
+[[2 Corinthians 5:21]]
+[[Ephesians 2:16]]
+[[Colossians 1:20]]
+[[Colossians 3:3]]
+[[Hebrews 2:17]]
+[[Hebrews 7:25]]
+[[Revelation 1:18]]
+---
+
+"For if, when we were enemies, we were reconciled to God by the death of his Son, much more, being reconciled, we shall be saved by his life."

@@ -1,7 +1,0 @@
-[[Isaiah 60:1]]
-[[Matthew 5:15]]
-[[Luke 8:16]]
-[[Luke 11:33]]
-[[1 Corinthians 12:7]]
-[[Ephesians 5:3]]
-[[Philippians 2:15]]

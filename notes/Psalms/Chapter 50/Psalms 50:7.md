@@ -1,0 +1,27 @@
+---
+Links:
+[[Exodus 19:5]]
+[[Exodus 20:2]]
+[[Deuteronomy 26:17]]
+[[Deuteronomy 31:19]]
+[[1 Samuel 12:22]]
+[[1 Kings 18:39]]
+[[2 Kings 17:13]]
+[[2 Chronicles 28:5]]
+[[Nehemiah 9:29]]
+[[Psalms 49:1]]
+[[Psalms 81:8]]
+[[Psalms 81:9]]
+[[Psalms 81:10]]
+[[Isaiah 1:18]]
+[[Jeremiah 2:4]]
+[[Jeremiah 2:9]]
+[[Ezekiel 20:5]]
+[[Ezekiel 20:7]]
+[[Ezekiel 20:19]]
+[[Micah 6:1]]
+[[Zechariah 13:9]]
+[[Malachi 3:5]]
+---
+
+"Hear, O my people, and I will speak; O Israel, and I will testify against thee: I am God, even thy God."

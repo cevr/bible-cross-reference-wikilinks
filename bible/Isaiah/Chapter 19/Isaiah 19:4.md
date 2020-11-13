@@ -1,7 +1,0 @@
-[[1 Samuel 23:7]]
-[[Psalms 31:8]]
-[[Isaiah 19:2]]
-[[Isaiah 20:3]]
-[[Isaiah 20:4]]
-[[Jeremiah 46:26]]
-[[Ezekiel 29:19]]

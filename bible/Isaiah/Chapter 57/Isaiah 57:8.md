@@ -1,5 +1,0 @@
-[[Ezekiel 8:8]]
-[[Ezekiel 16:25]]
-[[Ezekiel 16:32]]
-[[Ezekiel 23:2]]
-[[Ezekiel 23:41]]

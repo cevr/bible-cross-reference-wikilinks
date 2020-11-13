@@ -1,0 +1,32 @@
+---
+Links:
+[[Deuteronomy 26:15]]
+[[1 Kings 8:27]]
+[[2 Chronicles 30:27]]
+[[Psalms 25:6]]
+[[Psalms 33:14]]
+[[Psalms 77:7]]
+[[Psalms 77:10]]
+[[Psalms 80:14]]
+[[Psalms 80:15]]
+[[Psalms 89:49]]
+[[Psalms 102:19]]
+[[Psalms 113:5]]
+[[Psalms 123:1]]
+[[Isaiah 9:7]]
+[[Isaiah 26:11]]
+[[Isaiah 49:15]]
+[[Isaiah 51:9]]
+[[Isaiah 57:15]]
+[[Isaiah 59:17]]
+[[Isaiah 63:9]]
+[[Isaiah 66:1]]
+[[Jeremiah 31:20]]
+[[Lamentations 3:50]]
+[[Hosea 11:8]]
+[[Luke 1:78]]
+[[Philippians 2:1]]
+[[1 John 3:17]]
+---
+
+"Look down from heaven, and behold from the habitation of thy holiness and of thy glory: where is thy zeal and thy strength, the sounding of thy bowels and of thy mercies toward me? are they restrained?"

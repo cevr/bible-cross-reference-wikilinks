@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 40:20]]
+[[1 Kings 3:15]]
+[[Ezra 1:2]]
+[[Esther 1:14]]
+[[Esther 2:18]]
+[[Esther 3:7]]
+[[Isaiah 21:2]]
+[[Jeremiah 51:11]]
+[[Daniel 3:2]]
+[[Daniel 5:1]]
+[[Daniel 5:28]]
+[[Daniel 6:1]]
+[[Daniel 6:6]]
+[[Daniel 8:20]]
+[[Mark 6:21]]
+---
+
+"In the third year of his reign, he made a feast unto all his princes and his servants; the power of Persia and Media, the nobles and princes of the provinces, being before him:"

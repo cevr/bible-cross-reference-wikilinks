@@ -1,0 +1,22 @@
+---
+Links:
+[[Genesis 2:21]]
+[[Genesis 34:3]]
+[[Deuteronomy 4:4]]
+[[Deuteronomy 10:20]]
+[[Deuteronomy 11:22]]
+[[1 Samuel 18:1]]
+[[1 Samuel 25:43]]
+[[2 Samuel 1:26]]
+[[1 Kings 11:2]]
+[[Psalms 45:10]]
+[[Psalms 63:8]]
+[[Mark 10:5]]
+[[Romans 12:9]]
+[[1 Corinthians 6:16]]
+[[1 Corinthians 7:2]]
+[[1 Corinthians 7:4]]
+[[Ephesians 5:31]]
+---
+
+"And said, For this cause shall a man leave father and mother, and shall cleave to his wife: and they twain shall be one flesh?"

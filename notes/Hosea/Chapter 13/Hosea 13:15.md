@@ -1,0 +1,27 @@
+---
+Links:
+[[Genesis 41:23]]
+[[Genesis 41:52]]
+[[Genesis 48:19]]
+[[Genesis 49:22]]
+[[Deuteronomy 33:17]]
+[[Job 18:16]]
+[[Psalms 1:4]]
+[[Psalms 109:13]]
+[[Isaiah 14:21]]
+[[Isaiah 17:13]]
+[[Isaiah 41:16]]
+[[Jeremiah 4:11]]
+[[Jeremiah 20:5]]
+[[Jeremiah 51:36]]
+[[Ezekiel 17:10]]
+[[Ezekiel 19:12]]
+[[Daniel 11:8]]
+[[Hosea 4:19]]
+[[Hosea 9:11]]
+[[Hosea 10:1]]
+[[Jonah 4:8]]
+[[Nahum 2:9]]
+---
+
+"Though he be fruitful among his brethren, an east wind shall come, the wind of the LORD shall come up from the wilderness, and his spring shall become dry, and his fountain shall be dried up: he shall spoil the treasure of all pleasant vessels."

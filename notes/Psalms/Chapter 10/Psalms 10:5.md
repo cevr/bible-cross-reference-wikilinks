@@ -1,0 +1,28 @@
+---
+Links:
+[[Genesis 6:12]]
+[[Judges 9:27]]
+[[Judges 9:38]]
+[[2 Samuel 5:6]]
+[[1 Kings 20:10]]
+[[1 Kings 20:13]]
+[[Job 24:23]]
+[[Psalms 12:5]]
+[[Psalms 73:3]]
+[[Psalms 92:5]]
+[[Proverbs 1:19]]
+[[Proverbs 2:13]]
+[[Proverbs 2:15]]
+[[Proverbs 15:24]]
+[[Proverbs 24:1]]
+[[Isaiah 5:12]]
+[[Isaiah 10:1]]
+[[Isaiah 26:11]]
+[[Isaiah 28:15]]
+[[Isaiah 42:25]]
+[[Hosea 9:9]]
+[[Hosea 14:9]]
+[[Romans 3:16]]
+---
+
+"His ways are always grievous; thy judgments are far above out of his sight: as for all his enemies, he puffeth at them."

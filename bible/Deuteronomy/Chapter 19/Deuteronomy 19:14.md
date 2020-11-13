@@ -1,8 +1,0 @@
-[[Exodus 21:13]]
-[[Deuteronomy 3:18]]
-[[Deuteronomy 4:41]]
-[[Deuteronomy 27:17]]
-[[Job 24:2]]
-[[Proverbs 22:28]]
-[[Proverbs 23:10]]
-[[Hosea 5:10]]

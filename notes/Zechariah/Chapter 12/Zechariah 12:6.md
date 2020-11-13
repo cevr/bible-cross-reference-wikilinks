@@ -1,0 +1,30 @@
+---
+Links:
+[[Nehemiah 11:1]]
+[[Psalms 149:6]]
+[[Isaiah 9:20]]
+[[Isaiah 10:16]]
+[[Isaiah 41:15]]
+[[Isaiah 54:3]]
+[[Jeremiah 30:18]]
+[[Jeremiah 31:38]]
+[[Ezekiel 48:30]]
+[[Daniel 2:34]]
+[[Daniel 2:44]]
+[[Obadiah 1:18]]
+[[Micah 4:13]]
+[[Micah 5:5]]
+[[Zechariah 1:16]]
+[[Zechariah 2:4]]
+[[Zechariah 2:12]]
+[[Zechariah 8:3]]
+[[Zechariah 9:15]]
+[[Zechariah 11:1]]
+[[Zechariah 14:10]]
+[[Zechariah 14:11]]
+[[2 Corinthians 6:7]]
+[[Revelation 19:19]]
+[[Revelation 20:9]]
+---
+
+"In that day will I make the governors of Judah like an hearth of fire among the wood, and like a torch of fire in a sheaf; and they shall devour all the people round about, on the right hand and on the left: and Jerusalem shall be inhabited again in her own place, even in Jerusalem."

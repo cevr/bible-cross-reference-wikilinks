@@ -1,6 +1,0 @@
-[[Ecclesiastes 3:3]]
-[[Matthew 9:21]]
-[[Matthew 14:36]]
-[[John 14:12]]
-[[Acts 19:11]]
-[[Acts 28:9]]

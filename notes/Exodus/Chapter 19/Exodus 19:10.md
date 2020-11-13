@@ -1,0 +1,26 @@
+---
+Links:
+[[Genesis 35:2]]
+[[Exodus 19:14]]
+[[Leviticus 11:25]]
+[[Leviticus 11:44]]
+[[Leviticus 15:5]]
+[[Numbers 8:7]]
+[[Numbers 8:21]]
+[[Numbers 11:18]]
+[[Numbers 31:23]]
+[[Numbers 31:24]]
+[[Joshua 3:5]]
+[[Joshua 7:13]]
+[[1 Samuel 16:5]]
+[[2 Chronicles 29:5]]
+[[2 Chronicles 29:34]]
+[[2 Chronicles 30:17]]
+[[Job 1:5]]
+[[Zechariah 3:3]]
+[[1 Corinthians 6:11]]
+[[Hebrews 10:22]]
+[[Revelation 7:14]]
+---
+
+"And the LORD said unto Moses, Go unto the people, and sanctify them to day and to morrow, and let them wash their clothes,"

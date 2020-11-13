@@ -1,0 +1,32 @@
+---
+Links:
+[[Psalms 98:2]]
+[[Isaiah 24:15]]
+[[Micah 7:20]]
+[[Matthew 15:24]]
+[[Matthew 20:28]]
+[[Luke 1:54]]
+[[Luke 1:70]]
+[[John 1:11]]
+[[John 10:16]]
+[[Acts 3:25]]
+[[Acts 13:46]]
+[[Romans 3:3]]
+[[Romans 3:26]]
+[[Romans 4:16]]
+[[Romans 9:4]]
+[[Romans 9:23]]
+[[Romans 11:22]]
+[[Romans 11:30]]
+[[Romans 15:16]]
+[[1 Corinthians 1:12]]
+[[1 Corinthians 10:19]]
+[[1 Corinthians 10:29]]
+[[1 Corinthians 15:50]]
+[[2 Corinthians 1:20]]
+[[Galatians 4:4]]
+[[Ephesians 2:12]]
+[[1 Peter 2:9]]
+---
+
+"Now I say that Jesus Christ was a minister of the circumcision for the truth of God, to confirm the promises made unto the fathers:"

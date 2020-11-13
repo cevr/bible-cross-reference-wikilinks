@@ -1,7 +1,0 @@
-[[Joshua 21:45]]
-[[2 Samuel 7:12]]
-[[2 Samuel 7:16]]
-[[1 Kings 8:15]]
-[[2 Chronicles 6:14]]
-[[2 Chronicles 6:15]]
-[[Psalms 138:2]]

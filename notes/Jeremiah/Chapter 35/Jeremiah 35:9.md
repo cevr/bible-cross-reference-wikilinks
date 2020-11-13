@@ -1,0 +1,10 @@
+---
+Links:
+[[Numbers 16:14]]
+[[2 Kings 5:26]]
+[[Psalms 37:16]]
+[[Jeremiah 35:7]]
+[[1 Timothy 6:6]]
+---
+
+"Nor to build houses for us to dwell in: neither have we vineyard, nor field, nor seed:"

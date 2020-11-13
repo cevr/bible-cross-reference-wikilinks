@@ -1,0 +1,12 @@
+---
+Links:
+[[Isaiah 6:9]]
+[[Isaiah 42:18]]
+[[Isaiah 59:10]]
+[[John 8:43]]
+[[John 8:47]]
+[[Romans 11:7]]
+[[2 Corinthians 4:3]]
+---
+
+"They understood not that he spake to them of the Father."

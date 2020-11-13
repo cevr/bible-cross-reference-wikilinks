@@ -1,5 +1,0 @@
-[[Numbers 21:16]]
-[[Joshua 18:25]]
-[[1 Kings 15:20]]
-[[2 Kings 15:29]]
-[[2 Chronicles 16:4]]

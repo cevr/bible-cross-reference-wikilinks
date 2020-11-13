@@ -1,5 +1,0 @@
-[[2 Samuel 20:15]]
-[[Jeremiah 6:6]]
-[[Jeremiah 32:24]]
-[[Jeremiah 52:4]]
-[[Ezekiel 21:22]]

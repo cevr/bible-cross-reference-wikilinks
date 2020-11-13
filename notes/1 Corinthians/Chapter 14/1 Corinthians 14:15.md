@@ -1,0 +1,18 @@
+---
+Links:
+[[Psalms 47:7]]
+[[John 4:23]]
+[[Romans 1:9]]
+[[Romans 3:5]]
+[[Romans 8:31]]
+[[Romans 12:1]]
+[[1 Corinthians 10:19]]
+[[1 Corinthians 14:19]]
+[[Ephesians 5:17]]
+[[Ephesians 6:18]]
+[[Philippians 1:18]]
+[[Colossians 3:16]]
+[[Jude 1:20]]
+---
+
+"What is it then? I will pray with the spirit, and I will pray with the understanding also: I will sing with the spirit, and I will sing with the understanding also."

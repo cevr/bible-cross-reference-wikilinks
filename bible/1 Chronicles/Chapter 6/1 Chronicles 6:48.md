@@ -1,8 +1,0 @@
-[[Numbers 3:1]]
-[[Numbers 8:5]]
-[[Numbers 16:9]]
-[[Numbers 18:1]]
-[[Joshua 21:34]]
-[[1 Chronicles 6:62]]
-[[1 Chronicles 23:2]]
-[[1 Chronicles 25:1]]

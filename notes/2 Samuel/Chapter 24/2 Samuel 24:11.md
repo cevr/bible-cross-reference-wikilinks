@@ -1,0 +1,10 @@
+---
+Links:
+[[1 Samuel 9:9]]
+[[1 Samuel 22:5]]
+[[2 Samuel 12:1]]
+[[1 Chronicles 2:19]]
+[[1 Chronicles 29:29]]
+---
+
+"For when David was up in the morning, the word of the LORD came unto the prophet Gad, David's seer, saying,"

@@ -1,0 +1,23 @@
+---
+Links:
+[[1 Samuel 24:14]]
+[[Psalms 3:1]]
+[[Psalms 17:1]]
+[[Psalms 18:17]]
+[[Psalms 27:13]]
+[[Psalms 38:19]]
+[[Psalms 44:24]]
+[[Psalms 46:2]]
+[[Psalms 57:3]]
+[[Psalms 59:3]]
+[[Psalms 79:8]]
+[[Psalms 91:2]]
+[[Psalms 116:6]]
+[[Psalms 136:23]]
+[[Psalms 143:3]]
+[[Psalms 143:7]]
+[[Romans 8:33]]
+[[Romans 8:37]]
+---
+
+"Attend unto my cry; for I am brought very low: deliver me from my persecutors; for they are stronger than I."

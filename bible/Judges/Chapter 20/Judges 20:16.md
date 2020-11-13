@@ -1,6 +1,0 @@
-[[Judges 3:15]]
-[[1 Samuel 17:40]]
-[[1 Samuel 17:49]]
-[[1 Samuel 25:29]]
-[[1 Chronicles 12:2]]
-[[2 Chronicles 26:14]]

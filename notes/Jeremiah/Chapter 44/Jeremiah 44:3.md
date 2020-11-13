@@ -1,0 +1,32 @@
+---
+Links:
+[[Deuteronomy 13:6]]
+[[Deuteronomy 29:25]]
+[[Deuteronomy 29:26]]
+[[Deuteronomy 32:17]]
+[[Ezra 9:6]]
+[[Nehemiah 9:33]]
+[[Jeremiah 2:17]]
+[[Jeremiah 4:17]]
+[[Jeremiah 5:19]]
+[[Jeremiah 5:29]]
+[[Jeremiah 7:19]]
+[[Jeremiah 9:12]]
+[[Jeremiah 11:17]]
+[[Jeremiah 16:10]]
+[[Jeremiah 16:11]]
+[[Jeremiah 19:3]]
+[[Jeremiah 19:4]]
+[[Jeremiah 22:9]]
+[[Jeremiah 29:19]]
+[[Jeremiah 44:8]]
+[[Lamentations 1:8]]
+[[Lamentations 4:13]]
+[[Ezekiel 8:17]]
+[[Ezekiel 9:9]]
+[[Ezekiel 22:25]]
+[[Daniel 9:5]]
+[[Zechariah 7:12]]
+---
+
+"Because of their wickedness which they have committed to provoke me to anger, in that they went to burn incense, and to serve other gods, whom they knew not, neither they, ye, nor your fathers."

@@ -1,0 +1,23 @@
+---
+Links:
+[[Deuteronomy 13:13]]
+[[1 Samuel 2:12]]
+[[1 Samuel 11:12]]
+[[2 Samuel 8:2]]
+[[2 Samuel 20:1]]
+[[1 Kings 4:21]]
+[[1 Kings 5:1]]
+[[1 Kings 10:25]]
+[[2 Chronicles 13:7]]
+[[2 Chronicles 17:5]]
+[[Psalms 38:13]]
+[[Psalms 72:10]]
+[[Ecclesiastes 7:21]]
+[[Isaiah 36:21]]
+[[Matthew 2:11]]
+[[Matthew 27:12]]
+[[Acts 7:35]]
+[[Acts 7:51]]
+---
+
+"But the children of Belial said, How shall this man save us? And they despised him, and brought him no presents. But he held his peace."

@@ -1,6 +1,0 @@
-[[Jeremiah 22:8]]
-[[Ezekiel 16:37]]
-[[Ezekiel 23:29]]
-[[Ezekiel 23:48]]
-[[Hosea 2:3]]
-[[Hosea 2:10]]

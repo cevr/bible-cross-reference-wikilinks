@@ -1,7 +1,0 @@
-[[Joshua 7:5]]
-[[Joshua 8:6]]
-[[Judges 20:32]]
-[[1 Samuel 14:14]]
-[[1 Samuel 22:1]]
-[[1 Samuel 23:22]]
-[[1 Samuel 24:3]]

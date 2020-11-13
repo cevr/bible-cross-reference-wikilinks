@@ -1,0 +1,14 @@
+---
+Links:
+[[Genesis 14:20]]
+[[Deuteronomy 2:36]]
+[[Deuteronomy 3:3]]
+[[Joshua 10:12]]
+[[Joshua 21:44]]
+[[Judges 1:4]]
+[[Judges 11:21]]
+[[1 Samuel 23:7]]
+[[2 Chronicles 16:8]]
+---
+
+"And the children of Israel fled before Judah: and God delivered them into their hand."

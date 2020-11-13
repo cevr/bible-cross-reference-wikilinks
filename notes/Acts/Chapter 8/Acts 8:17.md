@@ -1,0 +1,19 @@
+---
+Links:
+[[Numbers 8:10]]
+[[Numbers 27:18]]
+[[Acts 2:4]]
+[[Acts 6:6]]
+[[Acts 8:18]]
+[[Acts 9:17]]
+[[Acts 13:3]]
+[[Acts 19:6]]
+[[Romans 1:11]]
+[[Galatians 3:2]]
+[[1 Timothy 4:14]]
+[[1 Timothy 5:22]]
+[[2 Timothy 1:6]]
+[[Hebrews 6:2]]
+---
+
+"Then laid they their hands on them, and they received the Holy Ghost."

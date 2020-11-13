@@ -1,0 +1,17 @@
+---
+Links:
+[[Deuteronomy 17:9]]
+[[Deuteronomy 24:8]]
+[[Matthew 21:23]]
+[[Luke 3:15]]
+[[John 2:18]]
+[[John 5:10]]
+[[John 5:33]]
+[[John 6:41]]
+[[John 6:52]]
+[[John 10:24]]
+[[Acts 13:25]]
+[[Acts 19:4]]
+---
+
+"And this is the record of John, when the Jews sent priests and Levites from Jerusalem to ask him, Who art thou?"

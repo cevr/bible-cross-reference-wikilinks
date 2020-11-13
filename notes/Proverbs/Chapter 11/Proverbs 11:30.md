@@ -1,0 +1,15 @@
+---
+Links:
+[[Proverbs 3:18]]
+[[Proverbs 12:12]]
+[[Proverbs 15:4]]
+[[Daniel 12:3]]
+[[Matthew 4:19]]
+[[Luke 5:9]]
+[[John 4:36]]
+[[1 Corinthians 9:19]]
+[[1 Thessalonians 2:19]]
+[[James 5:20]]
+---
+
+"The fruit of the righteous is a tree of life; and he that winneth souls is wise."

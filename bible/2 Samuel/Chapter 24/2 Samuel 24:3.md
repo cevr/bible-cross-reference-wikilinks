@@ -1,6 +1,0 @@
-[[Deuteronomy 1:11]]
-[[2 Samuel 10:12]]
-[[1 Chronicles 21:3]]
-[[Psalms 115:14]]
-[[Proverbs 14:28]]
-[[Isaiah 60:5]]

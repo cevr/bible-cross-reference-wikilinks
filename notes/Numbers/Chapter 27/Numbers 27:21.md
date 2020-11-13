@@ -1,0 +1,23 @@
+---
+Links:
+[[Exodus 28:30]]
+[[Leviticus 8:8]]
+[[Numbers 27:2]]
+[[Numbers 27:17]]
+[[Deuteronomy 31:3]]
+[[Deuteronomy 33:8]]
+[[Joshua 9:14]]
+[[Judges 1:1]]
+[[Judges 20:18]]
+[[Judges 20:23]]
+[[Judges 20:26]]
+[[1 Samuel 14:19]]
+[[1 Samuel 22:10]]
+[[1 Samuel 23:9]]
+[[1 Samuel 28:6]]
+[[1 Samuel 30:7]]
+[[Ezra 2:63]]
+[[Nehemiah 7:65]]
+---
+
+"And he shall stand before Eleazar the priest, who shall ask counsel for him after the judgment of Urim before the LORD: at his word shall they go out, and at his word they shall come in, both he, and all the children of Israel with him, even all the congregation."

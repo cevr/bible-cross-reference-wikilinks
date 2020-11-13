@@ -1,6 +1,0 @@
-[[Exodus 20:16]]
-[[Exodus 23:1]]
-[[Deuteronomy 22:19]]
-[[Proverbs 18:8]]
-[[Proverbs 18:21]]
-[[1 Timothy 5:14]]

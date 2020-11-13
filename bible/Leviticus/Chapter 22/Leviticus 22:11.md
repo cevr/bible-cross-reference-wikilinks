@@ -1,5 +1,0 @@
-[[Genesis 17:13]]
-[[Exodus 12:44]]
-[[Leviticus 21:22]]
-[[Numbers 18:9]]
-[[Numbers 18:11]]

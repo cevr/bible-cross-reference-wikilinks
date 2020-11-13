@@ -1,6 +1,0 @@
-[[Isaiah 52:3]]
-[[Ezekiel 16:24]]
-[[Ezekiel 16:33]]
-[[Ezekiel 16:39]]
-[[Ezekiel 20:29]]
-[[Hosea 12:11]]

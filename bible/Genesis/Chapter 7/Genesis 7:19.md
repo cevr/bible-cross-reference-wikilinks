@@ -1,5 +1,0 @@
-[[Job 12:15]]
-[[Psalms 46:2]]
-[[Psalms 104:6]]
-[[Jeremiah 3:23]]
-[[2 Peter 3:6]]

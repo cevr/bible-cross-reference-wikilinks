@@ -1,6 +1,0 @@
-[[Psalms 8:1]]
-[[Psalms 8:9]]
-[[Psalms 31:20]]
-[[Psalms 57:5]]
-[[Psalms 59:17]]
-[[Revelation 15:3]]

@@ -1,0 +1,23 @@
+---
+Links:
+[[Proverbs 15:2]]
+[[Proverbs 15:14]]
+[[Jeremiah 23:1]]
+[[Jeremiah 23:9]]
+[[Jeremiah 23:28]]
+[[Lamentations 2:14]]
+[[Ezekiel 13:6]]
+[[Ezekiel 13:18]]
+[[Ezekiel 34:2]]
+[[Hosea 9:7]]
+[[Zechariah 11:15]]
+[[Matthew 23:13]]
+[[Luke 11:40]]
+[[Luke 11:42]]
+[[Luke 11:52]]
+[[1 Corinthians 9:16]]
+[[1 Timothy 6:4]]
+[[2 Timothy 3:9]]
+---
+
+"Thus saith the Lord GOD; Woe unto the foolish prophets, that follow their own spirit, and have seen nothing!"

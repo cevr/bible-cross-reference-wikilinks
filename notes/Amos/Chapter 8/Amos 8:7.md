@@ -1,0 +1,23 @@
+---
+Links:
+[[Exodus 17:16]]
+[[Deuteronomy 33:26]]
+[[1 Samuel 15:2]]
+[[Job 24:23]]
+[[Psalms 10:11]]
+[[Psalms 47:4]]
+[[Psalms 47:5]]
+[[Psalms 68:34]]
+[[Isaiah 22:14]]
+[[Isaiah 43:25]]
+[[Jeremiah 17:1]]
+[[Jeremiah 31:34]]
+[[Jeremiah 44:21]]
+[[Hosea 7:2]]
+[[Hosea 8:13]]
+[[Hosea 9:9]]
+[[Amos 6:8]]
+[[Luke 2:32]]
+---
+
+"The LORD hath sworn by the excellency of Jacob, Surely I will never forget any of their works."

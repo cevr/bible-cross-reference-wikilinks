@@ -1,0 +1,32 @@
+---
+Links:
+[[Job 3:5]]
+[[Job 10:21]]
+[[Job 15:22]]
+[[Job 15:30]]
+[[Job 19:8]]
+[[Job 33:30]]
+[[Job 36:8]]
+[[Job 42:10]]
+[[Psalms 68:6]]
+[[Psalms 102:20]]
+[[Psalms 105:19]]
+[[Psalms 107:10]]
+[[Psalms 116:16]]
+[[Psalms 146:7]]
+[[Isaiah 42:16]]
+[[Isaiah 49:9]]
+[[Isaiah 60:1]]
+[[Isaiah 61:1]]
+[[Jeremiah 52:31]]
+[[Zechariah 9:11]]
+[[Luke 13:16]]
+[[Acts 5:19]]
+[[Acts 5:25]]
+[[Acts 12:7]]
+[[Acts 16:26]]
+[[Ephesians 5:8]]
+[[1 Peter 2:9]]
+---
+
+"He brought them out of darkness and the shadow of death, and brake their bands in sunder."

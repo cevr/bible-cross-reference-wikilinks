@@ -1,0 +1,18 @@
+---
+Links:
+[[Leviticus 10:2]]
+[[Numbers 14:12]]
+[[Numbers 16:35]]
+[[Numbers 16:49]]
+[[Numbers 20:3]]
+[[Numbers 22:33]]
+[[Numbers 25:9]]
+[[Psalms 91:7]]
+[[Jeremiah 28:16]]
+[[Jeremiah 29:32]]
+[[1 Corinthians 10:10]]
+[[Hebrews 3:17]]
+[[Jude 1:5]]
+---
+
+"Even those men that did bring up the evil report upon the land, died by the plague before the LORD."

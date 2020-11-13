@@ -1,0 +1,31 @@
+---
+Links:
+[[Matthew 28:2]]
+[[John 1:4]]
+[[John 4:10]]
+[[John 4:14]]
+[[John 5:26]]
+[[John 10:28]]
+[[John 11:25]]
+[[John 14:6]]
+[[John 17:2]]
+[[Acts 1:22]]
+[[Acts 2:24]]
+[[Acts 2:32]]
+[[Acts 5:31]]
+[[Acts 10:40]]
+[[Acts 13:30]]
+[[Romans 8:1]]
+[[1 Corinthians 15:45]]
+[[Ephesians 1:20]]
+[[Colossians 3:3]]
+[[Hebrews 2:10]]
+[[Hebrews 5:9]]
+[[1 John 5:11]]
+[[1 John 5:20]]
+[[Revelation 21:6]]
+[[Revelation 22:1]]
+[[Revelation 22:17]]
+---
+
+"And killed the Prince of life, whom God hath raised from the dead; whereof we are witnesses."

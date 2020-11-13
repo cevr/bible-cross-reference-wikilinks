@@ -1,0 +1,15 @@
+---
+Links:
+[[Leviticus 26:33]]
+[[Deuteronomy 4:25]]
+[[Deuteronomy 4:27]]
+[[Deuteronomy 28:64]]
+[[Deuteronomy 32:26]]
+[[1 Kings 9:6]]
+[[Psalms 119:49]]
+[[Ezekiel 5:10]]
+[[Ezekiel 6:8]]
+[[Luke 1:72]]
+---
+
+"Remember, I beseech thee, the word that thou commandedst thy servant Moses, saying, If ye transgress, I will scatter you abroad among the nations:"

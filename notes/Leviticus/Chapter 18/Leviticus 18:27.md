@@ -1,0 +1,17 @@
+---
+Links:
+[[Leviticus 18:24]]
+[[Deuteronomy 20:18]]
+[[Deuteronomy 23:18]]
+[[Deuteronomy 25:16]]
+[[Deuteronomy 27:15]]
+[[1 Kings 14:24]]
+[[2 Kings 16:3]]
+[[2 Kings 21:2]]
+[[2 Chronicles 36:14]]
+[[Ezekiel 16:50]]
+[[Ezekiel 22:11]]
+[[Hosea 9:10]]
+---
+
+"(For all these abominations have the men of the land done, which were before you, and the land is defiled;)"

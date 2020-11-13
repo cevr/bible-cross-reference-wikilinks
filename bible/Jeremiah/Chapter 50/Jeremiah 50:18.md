@@ -1,8 +1,0 @@
-[[Deuteronomy 32:41]]
-[[Isaiah 10:12]]
-[[Isaiah 37:36]]
-[[Jeremiah 27:7]]
-[[Ezekiel 31:3]]
-[[Nahum 1:1]]
-[[Habakkuk 2:8]]
-[[Zephaniah 2:13]]

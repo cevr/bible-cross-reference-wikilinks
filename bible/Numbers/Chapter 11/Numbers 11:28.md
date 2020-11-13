@@ -1,8 +1,0 @@
-[[Exodus 17:9]]
-[[Exodus 24:13]]
-[[Exodus 33:11]]
-[[Joshua 1:1]]
-[[1 Chronicles 7:27]]
-[[Mark 9:38]]
-[[Luke 9:49]]
-[[John 3:26]]

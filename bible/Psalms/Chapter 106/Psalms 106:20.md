@@ -1,6 +1,0 @@
-[[Exodus 20:4]]
-[[Exodus 32:4]]
-[[Psalms 89:17]]
-[[Isaiah 40:18]]
-[[Jeremiah 2:11]]
-[[Romans 1:22]]

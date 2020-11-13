@@ -1,7 +1,0 @@
-[[Leviticus 11:2]]
-[[Leviticus 11:29]]
-[[Deuteronomy 14:3]]
-[[Isaiah 1:28]]
-[[Isaiah 13:9]]
-[[Isaiah 65:3]]
-[[Isaiah 65:4]]

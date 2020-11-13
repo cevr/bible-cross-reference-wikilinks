@@ -1,6 +1,0 @@
-[[Psalms 37:36]]
-[[Jeremiah 51:64]]
-[[Ezekiel 26:14]]
-[[Ezekiel 27:36]]
-[[Ezekiel 28:19]]
-[[Revelation 18:21]]

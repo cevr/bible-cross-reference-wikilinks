@@ -1,0 +1,19 @@
+---
+Links:
+[[Proverbs 1:23]]
+[[Isaiah 32:15]]
+[[Isaiah 44:3]]
+[[Ezekiel 36:25]]
+[[Joel 2:28]]
+[[Matthew 3:11]]
+[[Acts 1:5]]
+[[Acts 2:4]]
+[[Acts 2:17]]
+[[Acts 10:45]]
+[[Acts 11:15]]
+[[Acts 19:4]]
+[[1 Corinthians 12:13]]
+[[Titus 3:5]]
+---
+
+"I indeed have baptized you with water: but he shall baptize you with the Holy Ghost."

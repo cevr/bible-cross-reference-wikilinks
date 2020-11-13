@@ -1,8 +1,0 @@
-[[Genesis 24:22]]
-[[Genesis 24:53]]
-[[Psalms 45:9]]
-[[Psalms 45:13]]
-[[Isaiah 3:21]]
-[[Isaiah 62:3]]
-[[Ezekiel 16:10]]
-[[Ephesians 5:26]]

@@ -1,0 +1,18 @@
+---
+Links:
+[[Job 16:10]]
+[[Psalms 7:2]]
+[[Psalms 17:12]]
+[[Psalms 22:7]]
+[[Psalms 22:21]]
+[[Psalms 35:17]]
+[[Psalms 35:21]]
+[[Lamentations 2:16]]
+[[Lamentations 3:46]]
+[[Ezekiel 22:27]]
+[[Matthew 26:3]]
+[[Matthew 26:59]]
+[[1 Peter 5:8]]
+---
+
+"They gaped upon me with their mouths, as a ravening and a roaring lion."

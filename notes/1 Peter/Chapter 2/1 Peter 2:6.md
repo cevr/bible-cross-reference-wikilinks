@@ -1,0 +1,28 @@
+---
+Links:
+[[Psalms 40:14]]
+[[Psalms 89:19]]
+[[Isaiah 28:16]]
+[[Isaiah 41:11]]
+[[Isaiah 42:1]]
+[[Isaiah 45:16]]
+[[Isaiah 50:7]]
+[[Isaiah 54:4]]
+[[Daniel 10:21]]
+[[Zechariah 10:4]]
+[[Matthew 12:18]]
+[[Mark 12:10]]
+[[Luke 23:35]]
+[[John 7:38]]
+[[Acts 1:16]]
+[[Romans 9:32]]
+[[Romans 10:11]]
+[[Ephesians 1:4]]
+[[Ephesians 2:20]]
+[[2 Timothy 3:16]]
+[[1 Peter 2:4]]
+[[2 Peter 1:20]]
+[[2 Peter 3:16]]
+---
+
+"Wherefore also it is contained in the scripture, Behold, I lay in Sion a chief corner stone, elect, precious: and he that believeth on him shall not be confounded."

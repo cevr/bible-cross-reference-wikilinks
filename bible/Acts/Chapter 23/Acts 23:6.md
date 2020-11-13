@@ -1,8 +1,0 @@
-[[Matthew 10:16]]
-[[Matthew 22:23]]
-[[Acts 22:5]]
-[[Acts 24:15]]
-[[Acts 24:21]]
-[[Acts 26:5]]
-[[Acts 28:20]]
-[[Philippians 3:5]]

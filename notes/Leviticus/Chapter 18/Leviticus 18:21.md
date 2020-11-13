@@ -1,0 +1,33 @@
+---
+Links:
+[[Leviticus 19:12]]
+[[Leviticus 20:2]]
+[[Leviticus 20:3]]
+[[Leviticus 21:6]]
+[[Leviticus 22:2]]
+[[Leviticus 22:32]]
+[[Leviticus 24:15]]
+[[Deuteronomy 12:31]]
+[[Deuteronomy 18:10]]
+[[1 Kings 11:7]]
+[[1 Kings 11:33]]
+[[2 Kings 16:3]]
+[[2 Kings 17:31]]
+[[2 Kings 21:6]]
+[[2 Kings 23:10]]
+[[Psalms 106:37]]
+[[Psalms 106:38]]
+[[Jeremiah 7:31]]
+[[Jeremiah 19:5]]
+[[Ezekiel 20:31]]
+[[Ezekiel 23:37]]
+[[Ezekiel 36:20]]
+[[Amos 2:7]]
+[[Amos 5:26]]
+[[Malachi 1:12]]
+[[Acts 7:43]]
+[[Romans 1:23]]
+[[Romans 2:24]]
+---
+
+"And thou shalt not let any of thy seed pass through the fire to Molech, neither shalt thou profane the name of thy God: I am the LORD."

@@ -1,7 +1,0 @@
-[[Leviticus 27:28]]
-[[Judges 5:23]]
-[[Judges 21:1]]
-[[Judges 21:18]]
-[[1 Samuel 11:7]]
-[[1 Samuel 14:24]]
-[[Jeremiah 48:10]]

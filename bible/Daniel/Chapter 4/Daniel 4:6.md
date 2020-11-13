@@ -1,8 +1,0 @@
-[[Genesis 41:7]]
-[[Isaiah 8:19]]
-[[Isaiah 47:12]]
-[[Daniel 1:17]]
-[[Daniel 2:2]]
-[[Daniel 2:48]]
-[[Daniel 4:15]]
-[[Daniel 5:11]]

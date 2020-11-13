@@ -1,0 +1,26 @@
+---
+Links:
+[[Genesis 3:15]]
+[[Psalms 21:8]]
+[[Psalms 50:18]]
+[[Psalms 73:27]]
+[[Isaiah 57:3]]
+[[Jeremiah 2:2]]
+[[Jeremiah 9:2]]
+[[Hosea 3:1]]
+[[Matthew 6:24]]
+[[Matthew 12:39]]
+[[Matthew 16:4]]
+[[Luke 19:27]]
+[[John 7:7]]
+[[John 15:19]]
+[[John 15:23]]
+[[John 17:14]]
+[[Romans 5:10]]
+[[Romans 8:7]]
+[[Galatians 1:10]]
+[[James 1:27]]
+[[1 John 2:15]]
+---
+
+"Ye adulterers and adulteresses, know ye not that the friendship of the world is enmity with God? whosoever therefore will be a friend of the world is the enemy of God."

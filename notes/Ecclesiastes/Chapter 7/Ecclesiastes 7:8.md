@@ -1,0 +1,24 @@
+---
+Links:
+[[Psalms 126:5]]
+[[Proverbs 13:10]]
+[[Proverbs 14:29]]
+[[Proverbs 15:18]]
+[[Proverbs 16:32]]
+[[Proverbs 28:25]]
+[[Isaiah 10:24]]
+[[Isaiah 10:28]]
+[[Luke 16:25]]
+[[Luke 21:19]]
+[[Romans 2:7]]
+[[Galatians 5:22]]
+[[Ephesians 4:2]]
+[[Hebrews 10:36]]
+[[James 5:8]]
+[[James 5:11]]
+[[1 Peter 1:13]]
+[[1 Peter 2:20]]
+[[1 Peter 5:5]]
+---
+
+"Better is the end of a thing than the beginning thereof: and the patient in spirit is better than the proud in spirit."

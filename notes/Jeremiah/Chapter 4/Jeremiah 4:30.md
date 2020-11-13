@@ -1,0 +1,31 @@
+---
+Links:
+[[2 Kings 9:30]]
+[[Proverbs 7:10]]
+[[Isaiah 10:3]]
+[[Isaiah 20:6]]
+[[Isaiah 33:14]]
+[[Jeremiah 5:31]]
+[[Jeremiah 13:21]]
+[[Jeremiah 22:20]]
+[[Jeremiah 22:23]]
+[[Jeremiah 30:14]]
+[[Lamentations 1:2]]
+[[Lamentations 1:19]]
+[[Lamentations 4:17]]
+[[Ezekiel 16:36]]
+[[Ezekiel 23:9]]
+[[Ezekiel 23:22]]
+[[Ezekiel 23:28]]
+[[Ezekiel 23:40]]
+[[Ezekiel 28:9]]
+[[Ezekiel 28:13]]
+[[Obadiah 1:7]]
+[[Hebrews 2:3]]
+[[Revelation 17:2]]
+[[Revelation 17:4]]
+[[Revelation 17:13]]
+[[Revelation 17:16]]
+---
+
+"And when thou art spoiled, what wilt thou do? Though thou clothest thyself with crimson, though thou deckest thee with ornaments of gold, though thou rentest thy face with painting, in vain shalt thou make thyself fair; thy lovers will despise thee, they will seek thy life."

@@ -1,0 +1,24 @@
+---
+Links:
+[[Job 16:3]]
+[[Job 33:13]]
+[[Job 36:23]]
+[[Job 38:2]]
+[[Job 40:2]]
+[[Job 40:5]]
+[[Job 40:8]]
+[[Job 42:2]]
+[[Isaiah 29:16]]
+[[Isaiah 45:9]]
+[[Isaiah 64:8]]
+[[Micah 6:8]]
+[[Matthew 20:15]]
+[[Romans 2:1]]
+[[1 Corinthians 1:20]]
+[[1 Corinthians 7:16]]
+[[1 Timothy 6:5]]
+[[Titus 2:9]]
+[[James 2:20]]
+---
+
+"Nay but, O man, who art thou that repliest against God? Shall the thing formed say to him that formed it, Why hast thou made me thus?"

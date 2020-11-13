@@ -1,0 +1,21 @@
+---
+Links:
+[[1 Chronicles 29:20]]
+[[Psalms 40:10]]
+[[Psalms 71:15]]
+[[Psalms 72:17]]
+[[Psalms 103:1]]
+[[Psalms 103:20]]
+[[Psalms 145:1]]
+[[Psalms 145:2]]
+[[Psalms 145:10]]
+[[Isaiah 40:9]]
+[[Isaiah 52:7]]
+[[Mark 16:15]]
+[[Acts 13:26]]
+[[Romans 10:14]]
+[[Ephesians 1:3]]
+[[Revelation 5:13]]
+---
+
+"Sing unto the LORD, bless his name; shew forth his salvation from day to day."

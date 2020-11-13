@@ -1,0 +1,25 @@
+---
+Links:
+[[2 Kings 15:19]]
+[[2 Kings 16:7]]
+[[2 Kings 17:3]]
+[[Proverbs 6:32]]
+[[Proverbs 15:32]]
+[[Proverbs 17:16]]
+[[Isaiah 30:1]]
+[[Isaiah 31:1]]
+[[Jeremiah 2:18]]
+[[Jeremiah 2:36]]
+[[Ezekiel 23:4]]
+[[Hosea 4:11]]
+[[Hosea 5:13]]
+[[Hosea 8:8]]
+[[Hosea 9:3]]
+[[Hosea 11:11]]
+[[Hosea 12:1]]
+[[Hosea 12:2]]
+[[Hosea 14:3]]
+[[Obadiah 1:7]]
+---
+
+"Ephraim also is like a silly dove without heart: they call to Egypt, they go to Assyria."

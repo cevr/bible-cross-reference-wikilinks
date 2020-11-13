@@ -1,0 +1,30 @@
+---
+Links:
+[[Exodus 23:31]]
+[[Exodus 23:32]]
+[[Exodus 23:33]]
+[[Exodus 34:12]]
+[[Numbers 13:17]]
+[[Deuteronomy 1:7]]
+[[Deuteronomy 2:34]]
+[[Deuteronomy 7:2]]
+[[Deuteronomy 7:24]]
+[[Deuteronomy 20:16]]
+[[Deuteronomy 26:16]]
+[[Joshua 6:17]]
+[[Joshua 8:2]]
+[[Joshua 8:27]]
+[[Joshua 9:24]]
+[[Joshua 10:35]]
+[[Joshua 10:37]]
+[[Joshua 12:8]]
+[[Joshua 15:21]]
+[[Joshua 18:21]]
+[[Joshua 19:40]]
+[[1 Kings 15:29]]
+[[Nehemiah 9:24]]
+[[Psalms 9:17]]
+[[2 Thessalonians 1:7]]
+---
+
+"So Joshua smote all the country of the hills, and of the south, and of the vale, and of the springs, and all their kings: he left none remaining, but utterly destroyed all that breathed, as the LORD God of Israel commanded."

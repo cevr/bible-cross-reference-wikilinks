@@ -1,5 +1,0 @@
-[[1 Kings 12:1]]
-[[1 Kings 12:21]]
-[[Psalms 33:10]]
-[[Psalms 33:16]]
-[[Proverbs 21:30]]

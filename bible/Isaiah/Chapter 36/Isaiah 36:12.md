@@ -1,8 +1,0 @@
-[[Leviticus 26:29]]
-[[Deuteronomy 28:53]]
-[[2 Kings 6:25]]
-[[2 Kings 18:27]]
-[[Isaiah 9:20]]
-[[Jeremiah 19:9]]
-[[Lamentations 4:9]]
-[[Ezekiel 4:16]]

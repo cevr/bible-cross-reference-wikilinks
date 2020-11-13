@@ -1,0 +1,25 @@
+---
+Links:
+[[Job 22:2]]
+[[Job 35:7]]
+[[Psalms 16:2]]
+[[Psalms 78:22]]
+[[Proverbs 21:28]]
+[[Matthew 20:4]]
+[[John 5:24]]
+[[John 12:44]]
+[[Acts 12:15]]
+[[Romans 4:5]]
+[[2 Corinthians 4:13]]
+[[2 Corinthians 9:12]]
+[[1 Timothy 1:15]]
+[[Titus 1:9]]
+[[Titus 2:14]]
+[[Titus 3:1]]
+[[Titus 3:14]]
+[[Philemon 1:11]]
+[[1 Peter 1:21]]
+[[1 John 5:10]]
+---
+
+"This is a faithful saying, and these things I will that thou affirm constantly, that they which have believed in God might be careful to maintain good works. These things are good and profitable unto men."

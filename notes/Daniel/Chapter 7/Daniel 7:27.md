@@ -1,0 +1,30 @@
+---
+Links:
+[[Psalms 2:6]]
+[[Psalms 22:27]]
+[[Psalms 72:11]]
+[[Psalms 86:9]]
+[[Psalms 145:13]]
+[[Psalms 149:5]]
+[[Isaiah 9:7]]
+[[Isaiah 49:23]]
+[[Isaiah 54:3]]
+[[Isaiah 60:11]]
+[[Daniel 2:44]]
+[[Daniel 4:34]]
+[[Daniel 7:14]]
+[[Daniel 7:18]]
+[[Daniel 7:22]]
+[[Obadiah 1:21]]
+[[Zephaniah 3:19]]
+[[Zechariah 14:9]]
+[[Luke 1:33]]
+[[John 12:34]]
+[[Revelation 11:15]]
+[[Revelation 17:14]]
+[[Revelation 19:16]]
+[[Revelation 20:4]]
+[[Revelation 22:5]]
+---
+
+"And the kingdom and dominion, and the greatness of the kingdom under the whole heaven, shall be given to the people of the saints of the most High, whose kingdom is an everlasting kingdom, and all dominions shall serve and obey him."

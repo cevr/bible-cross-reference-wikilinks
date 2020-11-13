@@ -1,8 +1,0 @@
-[[Genesis 13:9]]
-[[Genesis 13:14]]
-[[Genesis 19:17]]
-[[Psalms 16:3]]
-[[Psalms 119:63]]
-[[Proverbs 27:10]]
-[[Hebrews 10:25]]
-[[1 Peter 2:17]]

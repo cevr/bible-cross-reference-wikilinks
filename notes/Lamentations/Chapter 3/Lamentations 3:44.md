@@ -1,0 +1,13 @@
+---
+Links:
+[[Psalms 80:4]]
+[[Psalms 80:5]]
+[[Psalms 97:2]]
+[[Jeremiah 14:11]]
+[[Jeremiah 15:1]]
+[[Lamentations 2:1]]
+[[Lamentations 3:8]]
+[[Zechariah 7:13]]
+---
+
+"Thou hast covered thyself with a cloud, that our prayer should not pass through."

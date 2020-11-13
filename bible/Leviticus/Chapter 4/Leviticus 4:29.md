@@ -1,8 +1,0 @@
-[[Leviticus 1:4]]
-[[Leviticus 4:4]]
-[[Leviticus 4:15]]
-[[Leviticus 4:24]]
-[[Leviticus 4:33]]
-[[2 Kings 12:16]]
-[[2 Chronicles 29:23]]
-[[Hebrews 10:4]]

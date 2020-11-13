@@ -1,7 +1,0 @@
-[[Exodus 26:29]]
-[[Exodus 30:1]]
-[[Exodus 30:3]]
-[[1 Kings 6:2]]
-[[1 Kings 6:22]]
-[[1 Kings 7:48]]
-[[Ezekiel 41:4]]

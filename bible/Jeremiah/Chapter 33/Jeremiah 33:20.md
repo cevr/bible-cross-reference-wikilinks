@@ -1,7 +1,0 @@
-[[Genesis 8:22]]
-[[Psalms 89:37]]
-[[Psalms 104:19]]
-[[Isaiah 54:9]]
-[[Isaiah 66:22]]
-[[Jeremiah 31:35]]
-[[Jeremiah 33:25]]

@@ -1,6 +1,0 @@
-[[Deuteronomy 13:12]]
-[[Deuteronomy 13:13]]
-[[Deuteronomy 13:15]]
-[[Deuteronomy 19:18]]
-[[Proverbs 25:2]]
-[[John 7:51]]

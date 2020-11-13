@@ -1,0 +1,16 @@
+---
+Links:
+[[Genesis 17:7]]
+[[Ezra 9:12]]
+[[Job 27:16]]
+[[Job 27:17]]
+[[Psalms 25:12]]
+[[Psalms 37:25]]
+[[Psalms 102:28]]
+[[Psalms 112:2]]
+[[Psalms 128:6]]
+[[Proverbs 28:8]]
+[[Ecclesiastes 2:26]]
+---
+
+"A good man leaveth an inheritance to his children's children: and the wealth of the sinner is laid up for the just."

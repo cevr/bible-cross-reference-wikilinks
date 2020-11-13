@@ -1,8 +1,0 @@
-[[Deuteronomy 28:47]]
-[[2 Samuel 13:15]]
-[[Lamentations 1:8]]
-[[Ezekiel 16:36]]
-[[Ezekiel 16:39]]
-[[Ezekiel 23:18]]
-[[Ezekiel 23:25]]
-[[Ezekiel 23:45]]

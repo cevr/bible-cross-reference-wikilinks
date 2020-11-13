@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 29:20]]
+[[Job 4:18]]
+[[Job 21:30]]
+[[Psalms 78:50]]
+[[Isaiah 14:12]]
+[[Ezekiel 5:11]]
+[[Ezekiel 7:4]]
+[[Ezekiel 7:9]]
+[[Matthew 8:29]]
+[[Matthew 25:41]]
+[[Mark 5:7]]
+[[Luke 8:31]]
+[[Luke 10:18]]
+[[John 8:44]]
+[[Romans 8:32]]
+[[Romans 11:21]]
+[[2 Peter 2:5]]
+[[2 Peter 2:9]]
+[[2 Peter 2:11]]
+[[1 John 3:8]]
+[[Jude 1:6]]
+[[Jude 1:13]]
+[[Revelation 12:7]]
+[[Revelation 20:1]]
+[[Revelation 20:10]]
+---
+
+"For if God spared not the angels that sinned, but cast them down to hell, and delivered them into chains of darkness, to be reserved unto judgment;"

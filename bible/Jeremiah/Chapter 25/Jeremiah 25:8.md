@@ -1,6 +1,0 @@
-[[2 Chronicles 24:19]]
-[[Isaiah 42:24]]
-[[Jeremiah 19:15]]
-[[Jeremiah 22:21]]
-[[Jeremiah 29:19]]
-[[Zechariah 1:4]]

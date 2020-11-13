@@ -1,6 +1,0 @@
-[[Genesis 14:18]]
-[[Genesis 17:1]]
-[[Numbers 24:4]]
-[[2 Samuel 23:1]]
-[[1 Corinthians 8:1]]
-[[1 Corinthians 13:2]]

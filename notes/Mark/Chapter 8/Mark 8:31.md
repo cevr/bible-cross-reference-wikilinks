@@ -1,0 +1,31 @@
+---
+Links:
+[[1 Samuel 8:7]]
+[[1 Samuel 10:19]]
+[[Psalms 118:22]]
+[[Isaiah 53:3]]
+[[Hosea 6:2]]
+[[Jonah 1:17]]
+[[Matthew 12:40]]
+[[Matthew 16:21]]
+[[Matthew 17:22]]
+[[Matthew 20:17]]
+[[Matthew 21:42]]
+[[Mark 9:31]]
+[[Mark 10:33]]
+[[Mark 12:10]]
+[[Luke 9:22]]
+[[Luke 17:25]]
+[[Luke 18:31]]
+[[Luke 24:6]]
+[[Luke 24:26]]
+[[Luke 24:44]]
+[[John 2:19]]
+[[John 12:48]]
+[[Acts 3:13]]
+[[Acts 7:35]]
+[[Acts 7:51]]
+[[1 Corinthians 15:4]]
+---
+
+"And he began to teach them, that the Son of man must suffer many things, and be rejected of the elders, and of the chief priests, and scribes, and be killed, and after three days rise again."

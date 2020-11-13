@@ -1,8 +1,0 @@
-[[Genesis 27:33]]
-[[Numbers 23:20]]
-[[Deuteronomy 15:6]]
-[[1 Kings 2:33]]
-[[1 Kings 2:45]]
-[[Psalms 72:17]]
-[[Romans 11:29]]
-[[Ephesians 1:3]]

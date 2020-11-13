@@ -1,0 +1,17 @@
+---
+Links:
+[[Exodus 11:8]]
+[[Exodus 12:30]]
+[[1 Samuel 2:36]]
+[[Esther 8:17]]
+[[Job 42:8]]
+[[Isaiah 43:4]]
+[[Isaiah 45:14]]
+[[Isaiah 49:23]]
+[[Isaiah 60:14]]
+[[Zechariah 8:20]]
+[[Acts 16:37]]
+[[Revelation 2:9]]
+---
+
+"Behold, I will make them of the synagogue of Satan, which say they are Jews, and are not, but do lie; behold, I will make them to come and worship before thy feet, and to know that I have loved thee."

@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 13:13]]
+[[Exodus 32:31]]
+[[Leviticus 26:40]]
+[[1 Kings 8:47]]
+[[2 Chronicles 28:9]]
+[[Ezra 9:13]]
+[[Ezra 9:15]]
+[[Nehemiah 1:6]]
+[[Job 40:4]]
+[[Job 42:6]]
+[[Psalms 38:4]]
+[[Psalms 38:5]]
+[[Isaiah 1:18]]
+[[Isaiah 59:12]]
+[[Jeremiah 3:3]]
+[[Jeremiah 3:24]]
+[[Jeremiah 3:25]]
+[[Jeremiah 6:15]]
+[[Jeremiah 8:12]]
+[[Jeremiah 31:19]]
+[[Lamentations 3:42]]
+[[Ezekiel 16:63]]
+[[Daniel 9:7]]
+[[Luke 15:21]]
+[[Romans 6:21]]
+[[Revelation 18:5]]
+---
+
+"And said, O my God, I am ashamed and blush to lift up my face to thee, my God: for our iniquities are increased over our head, and our trespass is grown up unto the heavens."

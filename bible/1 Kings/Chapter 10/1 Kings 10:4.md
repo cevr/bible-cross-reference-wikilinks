@@ -1,6 +1,0 @@
-[[1 Kings 3:28]]
-[[1 Kings 4:29]]
-[[1 Kings 6:1]]
-[[2 Chronicles 9:3]]
-[[Ecclesiastes 12:9]]
-[[Matthew 12:42]]

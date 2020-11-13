@@ -1,0 +1,31 @@
+---
+Links:
+[[Leviticus 26:33]]
+[[Numbers 34:8]]
+[[Deuteronomy 4:26]]
+[[Deuteronomy 28:36]]
+[[Deuteronomy 28:64]]
+[[2 Samuel 8:9]]
+[[2 Kings 17:20]]
+[[2 Kings 17:23]]
+[[2 Kings 23:27]]
+[[2 Kings 25:20]]
+[[Isaiah 6:11]]
+[[Isaiah 24:3]]
+[[Isaiah 27:10]]
+[[Isaiah 32:13]]
+[[Isaiah 43:28]]
+[[Jeremiah 6:13]]
+[[Jeremiah 20:4]]
+[[Jeremiah 21:7]]
+[[Jeremiah 24:9]]
+[[Jeremiah 25:9]]
+[[Jeremiah 39:10]]
+[[Jeremiah 52:9]]
+[[Ezekiel 8:11]]
+[[Ezekiel 11:1]]
+[[Ezekiel 33:28]]
+[[Micah 4:10]]
+---
+
+"And the king of Babylon smote them, and put them to death in Riblah in the land of Hamath. Thus Judah was carried away captive out of his own land."

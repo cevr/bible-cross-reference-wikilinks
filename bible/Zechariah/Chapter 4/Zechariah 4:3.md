@@ -1,6 +1,0 @@
-[[Judges 9:9]]
-[[Zechariah 4:11]]
-[[Zechariah 4:14]]
-[[Romans 11:17]]
-[[Romans 11:24]]
-[[Revelation 11:4]]

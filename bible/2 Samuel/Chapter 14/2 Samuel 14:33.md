@@ -1,5 +1,0 @@
-[[Genesis 27:26]]
-[[Genesis 33:4]]
-[[Genesis 45:15]]
-[[1 Kings 1:53]]
-[[Luke 15:20]]

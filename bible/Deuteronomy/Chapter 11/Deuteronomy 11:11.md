@@ -1,7 +1,0 @@
-[[Genesis 27:28]]
-[[Deuteronomy 8:7]]
-[[Psalms 65:12]]
-[[Psalms 104:10]]
-[[Isaiah 28:1]]
-[[Jeremiah 2:7]]
-[[Hebrews 6:7]]

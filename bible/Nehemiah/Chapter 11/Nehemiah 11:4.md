@@ -1,5 +1,0 @@
-[[Genesis 38:29]]
-[[Ruth 4:18]]
-[[1 Chronicles 9:3]]
-[[Matthew 1:3]]
-[[Luke 3:33]]

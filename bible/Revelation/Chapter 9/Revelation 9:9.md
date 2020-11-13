@@ -1,7 +1,0 @@
-[[Job 39:25]]
-[[Job 40:18]]
-[[Job 41:23]]
-[[Isaiah 9:5]]
-[[Joel 2:5]]
-[[Nahum 2:4]]
-[[Revelation 9:17]]

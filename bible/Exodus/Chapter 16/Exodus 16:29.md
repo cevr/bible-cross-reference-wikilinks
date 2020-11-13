@@ -1,7 +1,0 @@
-[[Exodus 31:13]]
-[[Leviticus 25:21]]
-[[Nehemiah 9:14]]
-[[Isaiah 58:13]]
-[[Ezekiel 20:12]]
-[[Matthew 24:20]]
-[[Luke 23:56]]

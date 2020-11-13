@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 3:13]]
+[[Numbers 30:2]]
+[[Deuteronomy 23:21]]
+[[1 Kings 22:21]]
+[[1 Chronicles 21:1]]
+[[Job 22:13]]
+[[Psalms 94:7]]
+[[Proverbs 20:25]]
+[[Ecclesiastes 5:4]]
+[[Isaiah 29:15]]
+[[Jeremiah 23:24]]
+[[Hosea 11:12]]
+[[Matthew 4:3]]
+[[Matthew 13:19]]
+[[Luke 22:3]]
+[[John 13:2]]
+[[John 13:27]]
+[[Acts 5:2]]
+[[Acts 5:4]]
+[[Acts 5:9]]
+[[Romans 2:21]]
+[[Ephesians 6:11]]
+[[James 4:7]]
+[[1 Peter 5:8]]
+[[Revelation 12:9]]
+---
+
+"But Peter said, Ananias, why hath Satan filled thine heart to lie to the Holy Ghost, and to keep back part of the price of the land?"

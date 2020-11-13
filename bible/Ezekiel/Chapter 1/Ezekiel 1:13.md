@@ -1,8 +1,0 @@
-[[Genesis 15:17]]
-[[Psalms 104:4]]
-[[Ezekiel 1:7]]
-[[Daniel 10:5]]
-[[Matthew 28:3]]
-[[Revelation 4:5]]
-[[Revelation 10:1]]
-[[Revelation 18:1]]

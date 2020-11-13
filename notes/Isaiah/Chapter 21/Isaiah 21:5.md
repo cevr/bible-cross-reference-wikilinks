@@ -1,0 +1,16 @@
+---
+Links:
+[[2 Samuel 1:21]]
+[[Isaiah 13:2]]
+[[Isaiah 13:17]]
+[[Isaiah 22:13]]
+[[Isaiah 45:1]]
+[[Jeremiah 51:11]]
+[[Jeremiah 51:27]]
+[[Jeremiah 51:39]]
+[[Jeremiah 51:57]]
+[[Daniel 5:1]]
+[[1 Corinthians 15:32]]
+---
+
+"Prepare the table, watch in the watchtower, eat, drink: arise, ye princes, and anoint the shield."

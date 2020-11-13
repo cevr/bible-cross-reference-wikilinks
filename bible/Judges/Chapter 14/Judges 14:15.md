@@ -1,8 +1,0 @@
-[[Genesis 3:1]]
-[[Judges 12:1]]
-[[Judges 15:6]]
-[[Judges 16:5]]
-[[Proverbs 1:11]]
-[[Proverbs 5:3]]
-[[Proverbs 6:26]]
-[[Micah 7:5]]

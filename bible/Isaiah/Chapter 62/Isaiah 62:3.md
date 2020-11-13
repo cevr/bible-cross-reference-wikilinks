@@ -1,5 +1,0 @@
-[[Job 31:36]]
-[[Isaiah 28:5]]
-[[Zechariah 9:16]]
-[[Luke 2:14]]
-[[1 Thessalonians 2:19]]

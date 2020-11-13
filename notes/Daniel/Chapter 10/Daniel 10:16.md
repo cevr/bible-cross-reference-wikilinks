@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 4:10]]
+[[Exodus 4:13]]
+[[Joshua 5:14]]
+[[Judges 6:13]]
+[[Judges 6:15]]
+[[Judges 13:8]]
+[[Ecclesiastes 1:18]]
+[[Isaiah 6:7]]
+[[Jeremiah 1:9]]
+[[Ezekiel 1:26]]
+[[Ezekiel 3:27]]
+[[Ezekiel 33:22]]
+[[Daniel 7:15]]
+[[Daniel 7:28]]
+[[Daniel 8:15]]
+[[Daniel 8:17]]
+[[Daniel 8:27]]
+[[Daniel 9:21]]
+[[Daniel 10:5]]
+[[Daniel 10:8]]
+[[Daniel 10:17]]
+[[Daniel 12:8]]
+[[Luke 1:64]]
+[[Luke 21:15]]
+[[John 20:28]]
+[[Philippians 2:7]]
+[[Revelation 1:13]]
+---
+
+"And, behold, one like the similitude of the sons of men touched my lips: then I opened my mouth, and spake, and said unto him that stood before me, O my lord, by the vision my sorrows are turned upon me, and I have retained no strength."

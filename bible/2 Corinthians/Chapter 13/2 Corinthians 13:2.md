@@ -1,7 +1,0 @@
-[[1 Corinthians 4:19]]
-[[1 Corinthians 5:5]]
-[[2 Corinthians 1:23]]
-[[2 Corinthians 10:1]]
-[[2 Corinthians 10:8]]
-[[2 Corinthians 12:20]]
-[[2 Corinthians 13:10]]

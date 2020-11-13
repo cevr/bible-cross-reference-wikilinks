@@ -1,7 +1,0 @@
-[[2 Kings 23:7]]
-[[2 Chronicles 28:24]]
-[[Jeremiah 2:10]]
-[[Ezekiel 7:20]]
-[[Ezekiel 23:1]]
-[[Hosea 2:8]]
-[[Hosea 2:10]]

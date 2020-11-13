@@ -1,5 +1,0 @@
-[[2 Kings 23:14]]
-[[2 Kings 23:16]]
-[[Jeremiah 7:32]]
-[[Jeremiah 8:1]]
-[[Jeremiah 8:2]]

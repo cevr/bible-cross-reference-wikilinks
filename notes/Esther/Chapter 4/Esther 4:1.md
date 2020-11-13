@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 27:34]]
+[[Genesis 37:34]]
+[[Joshua 7:6]]
+[[2 Samuel 1:11]]
+[[2 Samuel 13:19]]
+[[Esther 3:8]]
+[[Esther 4:3]]
+[[Job 1:20]]
+[[Job 2:8]]
+[[Job 42:6]]
+[[Isaiah 15:4]]
+[[Isaiah 22:4]]
+[[Isaiah 37:1]]
+[[Isaiah 37:2]]
+[[Isaiah 58:5]]
+[[Ezekiel 21:6]]
+[[Ezekiel 21:11]]
+[[Ezekiel 27:30]]
+[[Daniel 9:3]]
+[[Jonah 3:4]]
+[[Jonah 3:6]]
+[[Micah 1:8]]
+[[Zephaniah 1:14]]
+[[Matthew 11:21]]
+[[Acts 14:14]]
+[[Revelation 18:17]]
+---
+
+"When Mordecai perceived all that was done, Mordecai rent his clothes, and put on sackcloth with ashes, and went out into the midst of the city, and cried with a loud and a bitter cry;"

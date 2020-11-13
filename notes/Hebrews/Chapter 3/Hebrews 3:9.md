@@ -1,0 +1,21 @@
+---
+Links:
+[[Exodus 19:4]]
+[[Exodus 20:22]]
+[[Numbers 14:33]]
+[[Deuteronomy 4:3]]
+[[Deuteronomy 4:9]]
+[[Deuteronomy 8:2]]
+[[Deuteronomy 8:4]]
+[[Deuteronomy 11:7]]
+[[Deuteronomy 29:2]]
+[[Joshua 5:6]]
+[[Joshua 23:3]]
+[[Joshua 24:7]]
+[[Amos 2:10]]
+[[Luke 7:22]]
+[[Acts 7:36]]
+[[Acts 13:8]]
+---
+
+"When your fathers tempted me, proved me, and saw my works forty years."

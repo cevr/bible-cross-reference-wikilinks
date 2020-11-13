@@ -1,0 +1,12 @@
+---
+Links:
+[[Job 3:16]]
+[[Psalms 58:8]]
+[[Psalms 88:4]]
+[[1 Corinthians 15:8]]
+[[Ephesians 2:1]]
+[[Colossians 2:13]]
+[[1 Timothy 5:6]]
+---
+
+"Let her not be as one dead, of whom the flesh is half consumed when he cometh out of his mother's womb."

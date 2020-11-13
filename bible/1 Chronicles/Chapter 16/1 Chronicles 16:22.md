@@ -1,7 +1,0 @@
-[[Genesis 20:7]]
-[[Genesis 27:39]]
-[[Genesis 48:19]]
-[[Genesis 49:8]]
-[[1 Kings 19:16]]
-[[Psalms 105:15]]
-[[1 John 2:27]]

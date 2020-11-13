@@ -1,0 +1,30 @@
+---
+Links:
+[[Numbers 32:13]]
+[[Joshua 22:17]]
+[[2 Kings 18:20]]
+[[Psalms 78:31]]
+[[Jeremiah 23:14]]
+[[Jeremiah 29:8]]
+[[Jeremiah 29:31]]
+[[Ezekiel 13:10]]
+[[Micah 3:5]]
+[[Matthew 24:4]]
+[[Matthew 24:24]]
+[[Mark 13:5]]
+[[Mark 13:22]]
+[[Romans 1:18]]
+[[Galatians 6:7]]
+[[Ephesians 2:2]]
+[[Colossians 2:4]]
+[[Colossians 2:8]]
+[[Colossians 2:18]]
+[[Colossians 3:6]]
+[[2 Thessalonians 2:3]]
+[[2 Thessalonians 2:10]]
+[[Hebrews 3:19]]
+[[1 Peter 2:8]]
+[[1 John 4:1]]
+---
+
+"Let no man deceive you with vain words: for because of these things cometh the wrath of God upon the children of disobedience."

@@ -1,0 +1,21 @@
+---
+Links:
+[[1 Samuel 10:5]]
+[[1 Samuel 16:16]]
+[[1 Samuel 18:6]]
+[[2 Kings 3:15]]
+[[1 Chronicles 13:8]]
+[[1 Chronicles 15:10]]
+[[2 Chronicles 20:28]]
+[[Psalms 47:5]]
+[[Psalms 68:25]]
+[[Psalms 150:3]]
+[[Daniel 3:5]]
+[[Daniel 3:7]]
+[[Daniel 3:10]]
+[[Daniel 3:15]]
+[[Amos 5:23]]
+[[Amos 6:5]]
+---
+
+"And David and all the house of Israel played before the LORD on all manner of instruments made of fir wood, even on harps, and on psalteries, and on timbrels, and on cornets, and on cymbals."

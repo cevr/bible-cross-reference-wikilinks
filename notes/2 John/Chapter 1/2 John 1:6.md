@@ -1,0 +1,16 @@
+---
+Links:
+[[John 14:15]]
+[[John 14:21]]
+[[John 15:10]]
+[[John 15:14]]
+[[Romans 13:8]]
+[[Galatians 5:13]]
+[[1 John 2:5]]
+[[1 John 2:24]]
+[[1 John 5:3]]
+[[1 John 5:15]]
+[[2 John 1:5]]
+---
+
+"And this is love, that we walk after his commandments. This is the commandment, That, as ye have heard from the beginning, ye should walk in it."

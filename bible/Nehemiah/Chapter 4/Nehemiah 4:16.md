@@ -1,5 +1,0 @@
-[[Exodus 28:32]]
-[[Nehemiah 4:23]]
-[[Nehemiah 5:15]]
-[[Psalms 101:6]]
-[[Songs of Solomon 3:8]]

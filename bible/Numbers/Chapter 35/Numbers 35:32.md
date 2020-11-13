@@ -1,5 +1,0 @@
-[[Acts 4:12]]
-[[Galatians 2:21]]
-[[Galatians 3:10]]
-[[Galatians 3:22]]
-[[Revelation 5:9]]

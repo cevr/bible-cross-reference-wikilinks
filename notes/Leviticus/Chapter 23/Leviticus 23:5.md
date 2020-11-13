@@ -1,0 +1,19 @@
+---
+Links:
+[[Exodus 12:2]]
+[[Exodus 12:11]]
+[[Exodus 12:18]]
+[[Exodus 13:3]]
+[[Exodus 23:15]]
+[[Numbers 9:2]]
+[[Numbers 28:16]]
+[[Deuteronomy 16:1]]
+[[Joshua 5:10]]
+[[2 Chronicles 35:18]]
+[[Matthew 26:17]]
+[[Mark 14:12]]
+[[Luke 22:7]]
+[[1 Corinthians 5:7]]
+---
+
+"In the fourteenth day of the first month at even is the LORD'S passover."

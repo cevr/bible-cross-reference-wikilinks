@@ -1,6 +1,0 @@
-[[Genesis 29:14]]
-[[Judges 8:30]]
-[[2 Samuel 19:13]]
-[[1 Chronicles 11:1]]
-[[Ephesians 5:30]]
-[[Hebrews 2:14]]

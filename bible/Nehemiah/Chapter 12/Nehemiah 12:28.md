@@ -1,6 +1,0 @@
-[[1 Chronicles 2:54]]
-[[1 Chronicles 9:16]]
-[[Nehemiah 3:22]]
-[[Nehemiah 6:2]]
-[[Nehemiah 7:26]]
-[[Nehemiah 13:10]]

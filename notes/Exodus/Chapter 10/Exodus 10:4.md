@@ -1,0 +1,17 @@
+---
+Links:
+[[Exodus 4:23]]
+[[Exodus 5:1]]
+[[Exodus 8:10]]
+[[Exodus 8:23]]
+[[Exodus 9:5]]
+[[Exodus 9:18]]
+[[Exodus 11:4]]
+[[Proverbs 30:27]]
+[[Joel 1:4]]
+[[Joel 2:2]]
+[[Joel 2:25]]
+[[Revelation 9:3]]
+---
+
+"Else, if thou refuse to let my people go, behold, to morrow will I bring the locusts into thy coast:"

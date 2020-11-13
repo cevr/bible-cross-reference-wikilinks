@@ -1,5 +1,0 @@
-[[Zechariah 1:9]]
-[[Zechariah 1:14]]
-[[Zechariah 1:19]]
-[[Zechariah 2:3]]
-[[Zechariah 4:5]]

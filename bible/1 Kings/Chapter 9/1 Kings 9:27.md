@@ -1,5 +1,0 @@
-[[1 Kings 5:6]]
-[[1 Kings 5:9]]
-[[1 Kings 10:11]]
-[[1 Kings 22:49]]
-[[2 Chronicles 20:36]]

@@ -1,8 +1,0 @@
-[[2 Samuel 15:10]]
-[[1 Kings 1:7]]
-[[1 Kings 1:18]]
-[[1 Kings 1:25]]
-[[1 Kings 1:34]]
-[[Nehemiah 6:12]]
-[[Proverbs 26:24]]
-[[Acts 23:15]]

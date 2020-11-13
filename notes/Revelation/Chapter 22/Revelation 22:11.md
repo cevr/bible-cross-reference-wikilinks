@@ -1,0 +1,26 @@
+---
+Links:
+[[Job 17:9]]
+[[Psalms 81:12]]
+[[Proverbs 1:24]]
+[[Proverbs 4:18]]
+[[Proverbs 14:32]]
+[[Ecclesiastes 11:3]]
+[[Ezekiel 3:27]]
+[[Daniel 12:10]]
+[[Matthew 5:6]]
+[[Matthew 15:14]]
+[[Matthew 21:19]]
+[[Matthew 25:10]]
+[[John 8:21]]
+[[Ephesians 5:27]]
+[[Colossians 1:22]]
+[[2 Timothy 3:13]]
+[[Jude 1:24]]
+[[Revelation 7:13]]
+[[Revelation 16:8]]
+[[Revelation 16:21]]
+[[Revelation 22:3]]
+---
+
+"He that is unjust, let him be unjust still: and he which is filthy, let him be filthy still: and he that is righteous, let him be righteous still: and he that is holy, let him be holy still."

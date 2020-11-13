@@ -1,0 +1,20 @@
+---
+Links:
+[[1 Samuel 2:1]]
+[[Psalms 9:14]]
+[[Psalms 9:15]]
+[[Psalms 13:5]]
+[[Psalms 21:1]]
+[[Psalms 33:21]]
+[[Psalms 48:11]]
+[[Psalms 58:10]]
+[[Psalms 68:1]]
+[[Psalms 104:34]]
+[[Isaiah 61:10]]
+[[Habakkuk 3:18]]
+[[Luke 1:46]]
+[[Galatians 5:22]]
+[[Philippians 3:1]]
+---
+
+"And my soul shall be joyful in the LORD: it shall rejoice in his salvation."

@@ -1,0 +1,25 @@
+---
+Links:
+[[Numbers 16:30]]
+[[Numbers 16:33]]
+[[Job 30:3]]
+[[Psalms 27:13]]
+[[Psalms 28:1]]
+[[Psalms 88:3]]
+[[Isaiah 4:5]]
+[[Isaiah 14:11]]
+[[Isaiah 59:10]]
+[[Lamentations 3:6]]
+[[Ezekiel 28:25]]
+[[Ezekiel 32:18]]
+[[Ezekiel 34:1]]
+[[Ezekiel 39:7]]
+[[Ezekiel 39:25]]
+[[Amos 9:2]]
+[[Jonah 2:2]]
+[[Jonah 2:6]]
+[[Zechariah 2:8]]
+[[Luke 10:15]]
+---
+
+"When I shall bring thee down with them that descend into the pit, with the people of old time, and shall set thee in the low parts of the earth, in places desolate of old, with them that go down to the pit, that thou be not inhabited; and I shall set glory in the land of the living;"

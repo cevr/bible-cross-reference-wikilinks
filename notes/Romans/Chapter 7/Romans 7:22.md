@@ -1,0 +1,32 @@
+---
+Links:
+[[Leviticus 13:39]]
+[[Job 23:12]]
+[[Psalms 1:2]]
+[[Psalms 19:8]]
+[[Psalms 40:8]]
+[[Psalms 119:16]]
+[[Psalms 119:24]]
+[[Psalms 119:35]]
+[[Psalms 119:47]]
+[[Psalms 119:72]]
+[[Psalms 119:92]]
+[[Psalms 119:97]]
+[[Psalms 119:111]]
+[[Psalms 119:113]]
+[[Psalms 119:127]]
+[[Psalms 119:167]]
+[[Psalms 119:174]]
+[[Songs of Solomon 5:3]]
+[[Isaiah 51:7]]
+[[John 4:34]]
+[[Romans 2:29]]
+[[Romans 8:7]]
+[[2 Corinthians 4:16]]
+[[Ephesians 3:16]]
+[[Colossians 3:9]]
+[[Hebrews 8:10]]
+[[1 Peter 3:4]]
+---
+
+"For I delight in the law of God after the inward man:"

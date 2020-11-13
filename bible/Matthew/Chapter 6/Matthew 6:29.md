@@ -1,5 +1,0 @@
-[[1 Kings 10:4]]
-[[2 Chronicles 9:4]]
-[[2 Chronicles 9:20]]
-[[1 Timothy 2:9]]
-[[1 Peter 3:2]]

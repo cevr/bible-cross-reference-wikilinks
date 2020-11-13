@@ -1,0 +1,30 @@
+---
+Links:
+[[Judges 14:10]]
+[[Psalms 45:9]]
+[[Songs of Solomon 3:11]]
+[[Songs of Solomon 4:8]]
+[[Songs of Solomon 5:1]]
+[[Isaiah 54:5]]
+[[Isaiah 62:4]]
+[[Isaiah 66:11]]
+[[Jeremiah 2:2]]
+[[Ezekiel 16:8]]
+[[Hosea 2:19]]
+[[Matthew 9:15]]
+[[Matthew 22:2]]
+[[Matthew 25:1]]
+[[Luke 2:10]]
+[[Luke 15:6]]
+[[John 16:24]]
+[[John 17:13]]
+[[2 Corinthians 11:2]]
+[[Ephesians 5:25]]
+[[Philippians 2:2]]
+[[1 John 1:4]]
+[[2 John 1:12]]
+[[Revelation 19:7]]
+[[Revelation 21:9]]
+---
+
+"He that hath the bride is the bridegroom: but the friend of the bridegroom, which standeth and heareth him, rejoiceth greatly because of the bridegroom's voice: this my joy therefore is fulfilled."

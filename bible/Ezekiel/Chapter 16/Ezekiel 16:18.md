@@ -1,5 +1,0 @@
-[[Deuteronomy 32:38]]
-[[Jeremiah 1:16]]
-[[Ezekiel 16:10]]
-[[Ezekiel 23:41]]
-[[Hosea 2:7]]

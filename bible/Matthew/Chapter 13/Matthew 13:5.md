@@ -1,5 +1,0 @@
-[[Ezekiel 11:19]]
-[[Ezekiel 36:26]]
-[[Amos 6:12]]
-[[Zechariah 7:12]]
-[[Matthew 13:20]]

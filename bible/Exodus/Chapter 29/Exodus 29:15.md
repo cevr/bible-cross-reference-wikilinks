@@ -1,6 +1,0 @@
-[[Exodus 29:3]]
-[[Exodus 29:10]]
-[[Exodus 29:19]]
-[[Leviticus 1:4]]
-[[Leviticus 3:2]]
-[[Leviticus 8:18]]

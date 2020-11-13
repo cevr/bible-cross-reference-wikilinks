@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 20:5]]
+[[2 Chronicles 19:2]]
+[[Job 15:13]]
+[[Psalms 53:1]]
+[[Jeremiah 13:23]]
+[[Ezekiel 14:5]]
+[[Matthew 5:19]]
+[[Matthew 12:34]]
+[[John 7:7]]
+[[John 15:23]]
+[[Romans 1:28]]
+[[Romans 1:30]]
+[[Romans 3:31]]
+[[Romans 5:10]]
+[[Romans 7:7]]
+[[Romans 7:22]]
+[[Romans 8:4]]
+[[1 Corinthians 2:14]]
+[[1 Corinthians 9:21]]
+[[Galatians 5:22]]
+[[Ephesians 4:18]]
+[[Colossians 1:21]]
+[[2 Timothy 3:4]]
+[[Hebrews 8:10]]
+[[James 4:4]]
+[[2 Peter 2:14]]
+[[1 John 2:15]]
+---
+
+"Because the carnal mind is enmity against God: for it is not subject to the law of God, neither indeed can be."

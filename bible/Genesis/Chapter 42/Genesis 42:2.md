@@ -1,7 +1,0 @@
-[[Genesis 43:2]]
-[[Genesis 43:4]]
-[[Genesis 43:8]]
-[[Genesis 45:9]]
-[[Psalms 118:17]]
-[[Isaiah 38:1]]
-[[Matthew 4:4]]

@@ -1,0 +1,15 @@
+---
+Links:
+[[Psalms 19:7]]
+[[Psalms 119:130]]
+[[Proverbs 1:22]]
+[[Proverbs 6:32]]
+[[Proverbs 8:5]]
+[[Proverbs 9:16]]
+[[Isaiah 35:8]]
+[[Matthew 11:25]]
+[[Revelation 3:17]]
+[[Revelation 22:17]]
+---
+
+"Whoso is simple, let him turn in hither: as for him that wanteth understanding, she saith to him,"

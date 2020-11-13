@@ -1,0 +1,30 @@
+---
+Links:
+[[Psalms 138:2]]
+[[Luke 2:10]]
+[[Luke 2:14]]
+[[Romans 2:16]]
+[[1 Corinthians 4:1]]
+[[1 Corinthians 9:17]]
+[[2 Corinthians 3:8]]
+[[2 Corinthians 4:4]]
+[[2 Corinthians 4:6]]
+[[2 Corinthians 5:18]]
+[[Galatians 2:7]]
+[[Ephesians 1:6]]
+[[Ephesians 1:12]]
+[[Ephesians 2:7]]
+[[Ephesians 3:10]]
+[[Colossians 1:25]]
+[[1 Thessalonians 2:4]]
+[[1 Timothy 2:7]]
+[[1 Timothy 6:15]]
+[[1 Timothy 6:20]]
+[[2 Timothy 1:11]]
+[[2 Timothy 1:14]]
+[[2 Timothy 2:2]]
+[[Titus 1:3]]
+[[1 Peter 1:11]]
+---
+
+"According to the glorious gospel of the blessed God, which was committed to my trust."

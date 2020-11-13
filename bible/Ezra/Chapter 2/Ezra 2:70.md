@@ -1,6 +1,0 @@
-[[1 Chronicles 9:2]]
-[[1 Chronicles 11:2]]
-[[Ezra 2:1]]
-[[Ezra 6:16]]
-[[Nehemiah 7:73]]
-[[Nehemiah 11:3]]

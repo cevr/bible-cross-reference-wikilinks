@@ -1,6 +1,0 @@
-[[Isaiah 26:21]]
-[[Isaiah 34:8]]
-[[Isaiah 59:18]]
-[[Isaiah 65:5]]
-[[Joel 3:7]]
-[[Amos 1:2]]

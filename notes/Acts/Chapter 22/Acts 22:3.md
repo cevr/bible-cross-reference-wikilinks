@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 33:3]]
+[[2 Samuel 21:2]]
+[[2 Kings 4:38]]
+[[Luke 2:46]]
+[[Luke 8:35]]
+[[Luke 10:39]]
+[[Acts 5:34]]
+[[Acts 6:9]]
+[[Acts 9:11]]
+[[Acts 9:30]]
+[[Acts 11:25]]
+[[Acts 15:23]]
+[[Acts 15:41]]
+[[Acts 21:20]]
+[[Acts 21:39]]
+[[Acts 23:6]]
+[[Acts 23:34]]
+[[Acts 26:5]]
+[[Romans 10:2]]
+[[Romans 11:1]]
+[[2 Corinthians 11:22]]
+[[Galatians 1:14]]
+[[Galatians 1:21]]
+[[Galatians 4:17]]
+[[Philippians 3:5]]
+---
+
+"I am verily a man which am a Jew, born in Tarsus, a city in Cilicia, yet brought up in this city at the feet of Gamaliel, and taught according to the perfect manner of the law of the fathers, and was zealous toward God, as ye all are this day."

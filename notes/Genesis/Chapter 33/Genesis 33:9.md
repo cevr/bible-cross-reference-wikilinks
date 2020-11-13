@@ -1,0 +1,16 @@
+---
+Links:
+[[Genesis 4:9]]
+[[Genesis 27:39]]
+[[Genesis 27:41]]
+[[Judges 20:23]]
+[[Proverbs 16:7]]
+[[Proverbs 30:15]]
+[[Ecclesiastes 4:8]]
+[[Acts 9:17]]
+[[Acts 21:20]]
+[[Philemon 1:7]]
+[[Philemon 1:16]]
+---
+
+"And Esau said, I have enough, my brother; keep that thou hast unto thyself."

@@ -1,5 +1,0 @@
-[[Genesis 2:2]]
-[[Genesis 2:8]]
-[[Job 31:33]]
-[[Psalms 128:2]]
-[[Ephesians 4:28]]

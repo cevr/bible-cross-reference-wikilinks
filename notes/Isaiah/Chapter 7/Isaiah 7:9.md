@@ -1,0 +1,16 @@
+---
+Links:
+[[1 Kings 16:24]]
+[[2 Kings 15:27]]
+[[2 Chronicles 20:20]]
+[[Isaiah 8:6]]
+[[Isaiah 28:1]]
+[[Isaiah 30:12]]
+[[Acts 27:11]]
+[[Acts 27:25]]
+[[Romans 11:20]]
+[[Hebrews 11:6]]
+[[1 John 5:10]]
+---
+
+"And the head of Ephraim is Samaria, and the head of Samaria is Remaliah's son. If ye will not believe, surely ye shall not be established."

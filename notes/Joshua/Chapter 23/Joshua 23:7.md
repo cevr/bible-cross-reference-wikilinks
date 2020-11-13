@@ -1,0 +1,25 @@
+---
+Links:
+[[Exodus 20:5]]
+[[Exodus 23:13]]
+[[Exodus 23:33]]
+[[Numbers 32:38]]
+[[Numbers 33:55]]
+[[Deuteronomy 6:13]]
+[[Deuteronomy 6:14]]
+[[Deuteronomy 7:2]]
+[[Joshua 23:12]]
+[[2 Kings 5:18]]
+[[2 Kings 17:12]]
+[[2 Chronicles 7:19]]
+[[Psalms 16:4]]
+[[Proverbs 4:14]]
+[[Jeremiah 5:7]]
+[[Hosea 2:17]]
+[[Zephaniah 1:5]]
+[[1 Corinthians 15:33]]
+[[2 Corinthians 6:14]]
+[[Ephesians 5:11]]
+---
+
+"That ye come not among these nations, these that remain among you; neither make mention of the name of their gods, nor cause to swear by them, neither serve them, nor bow yourselves unto them:"

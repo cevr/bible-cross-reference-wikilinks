@@ -1,6 +1,0 @@
-[[Joshua 21:4]]
-[[Joshua 21:20]]
-[[1 Chronicles 6:1]]
-[[1 Chronicles 6:18]]
-[[1 Chronicles 6:33]]
-[[1 Chronicles 6:66]]

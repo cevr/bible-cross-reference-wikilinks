@@ -1,7 +1,0 @@
-[[1 Chronicles 16:36]]
-[[1 Chronicles 29:10]]
-[[Psalms 41:13]]
-[[Psalms 72:18]]
-[[Psalms 89:52]]
-[[Psalms 105:45]]
-[[1 Corinthians 14:16]]

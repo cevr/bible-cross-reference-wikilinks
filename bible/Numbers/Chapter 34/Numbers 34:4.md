@@ -1,8 +1,0 @@
-[[Numbers 13:21]]
-[[Numbers 13:26]]
-[[Numbers 20:1]]
-[[Numbers 32:8]]
-[[Numbers 33:36]]
-[[Numbers 34:3]]
-[[Joshua 15:3]]
-[[Judges 1:36]]

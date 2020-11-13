@@ -1,0 +1,20 @@
+---
+Links:
+[[Leviticus 26:4]]
+[[Leviticus 26:5]]
+[[Leviticus 26:6]]
+[[Deuteronomy 12:10]]
+[[1 Kings 5:5]]
+[[Psalms 67:6]]
+[[Psalms 85:12]]
+[[Proverbs 1:33]]
+[[Isaiah 1:19]]
+[[Isaiah 30:23]]
+[[Isaiah 65:21]]
+[[Ezekiel 34:25]]
+[[Ezekiel 36:30]]
+[[Joel 2:24]]
+[[Joel 2:26]]
+---
+
+"And the land shall yield her fruit, and ye shall eat your fill, and dwell therein in safety."

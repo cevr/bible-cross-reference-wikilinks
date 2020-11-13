@@ -1,0 +1,30 @@
+---
+Links:
+[[1 Samuel 2:29]]
+[[Psalms 23:5]]
+[[Psalms 72:12]]
+[[Psalms 102:19]]
+[[Jeremiah 13:18]]
+[[Jeremiah 21:13]]
+[[Jeremiah 39:6]]
+[[Jeremiah 50:31]]
+[[Jeremiah 52:9]]
+[[Jeremiah 52:24]]
+[[Ezekiel 3:18]]
+[[Ezekiel 3:20]]
+[[Ezekiel 5:8]]
+[[Ezekiel 13:8]]
+[[Ezekiel 13:23]]
+[[Ezekiel 21:3]]
+[[Ezekiel 33:6]]
+[[Ezekiel 34:2]]
+[[Ezekiel 34:8]]
+[[Ezekiel 34:22]]
+[[Ezekiel 35:3]]
+[[Nahum 2:13]]
+[[Zechariah 10:3]]
+[[Hebrews 13:17]]
+[[1 Peter 3:12]]
+---
+
+"Thus saith the Lord GOD; Behold, I am against the shepherds; and I will require my flock at their hand, and cause them to cease from feeding the flock; neither shall the shepherds feed themselves any more; for I will deliver my flock from their mouth, that they may not be meat for them."

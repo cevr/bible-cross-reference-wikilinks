@@ -1,0 +1,18 @@
+---
+Links:
+[[Psalms 2:8]]
+[[Psalms 65:5]]
+[[Proverbs 8:15]]
+[[Isaiah 59:19]]
+[[Ezekiel 2:9]]
+[[Matthew 28:18]]
+[[Ephesians 1:20]]
+[[Philippians 2:10]]
+[[Revelation 5:1]]
+[[Revelation 6:1]]
+[[Revelation 6:3]]
+[[Revelation 10:5]]
+[[Revelation 10:8]]
+---
+
+"And he had in his hand a little book open: and he set his right foot upon the sea, and his left foot on the earth,"

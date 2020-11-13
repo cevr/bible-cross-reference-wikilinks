@@ -1,6 +1,0 @@
-[[1 Samuel 22:7]]
-[[1 Kings 4:7]]
-[[1 Kings 4:22]]
-[[1 Kings 4:27]]
-[[1 Chronicles 27:1]]
-[[2 Chronicles 32:28]]

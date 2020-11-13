@@ -1,0 +1,33 @@
+---
+Links:
+[[Exodus 33:17]]
+[[Psalms 23:2]]
+[[Psalms 78:52]]
+[[Psalms 80:1]]
+[[Songs of Solomon 8:13]]
+[[Isaiah 40:11]]
+[[Isaiah 42:16]]
+[[Isaiah 49:9]]
+[[Isaiah 53:10]]
+[[Jeremiah 31:8]]
+[[Jeremiah 50:4]]
+[[Ezekiel 34:11]]
+[[John 6:37]]
+[[John 6:45]]
+[[John 10:4]]
+[[John 10:14]]
+[[John 10:16]]
+[[John 10:26]]
+[[Romans 8:30]]
+[[1 Corinthians 16:9]]
+[[Philippians 4:3]]
+[[Colossians 4:3]]
+[[2 Timothy 2:19]]
+[[1 Peter 1:12]]
+[[Revelation 3:7]]
+[[Revelation 3:20]]
+[[Revelation 7:17]]
+[[Revelation 20:15]]
+---
+
+"To him the porter openeth; and the sheep hear his voice: and he calleth his own sheep by name, and leadeth them out."

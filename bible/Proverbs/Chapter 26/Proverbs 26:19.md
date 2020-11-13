@@ -1,5 +1,0 @@
-[[Proverbs 10:23]]
-[[Proverbs 14:9]]
-[[Proverbs 15:21]]
-[[Ephesians 5:4]]
-[[2 Peter 2:13]]

@@ -1,0 +1,28 @@
+---
+Links:
+[[Genesis 19:34]]
+[[Exodus 32:34]]
+[[Proverbs 29:1]]
+[[Isaiah 3:9]]
+[[Isaiah 10:4]]
+[[Jeremiah 3:3]]
+[[Jeremiah 5:9]]
+[[Jeremiah 5:29]]
+[[Jeremiah 8:12]]
+[[Jeremiah 14:15]]
+[[Jeremiah 23:12]]
+[[Ezekiel 2:4]]
+[[Ezekiel 7:6]]
+[[Ezekiel 14:9]]
+[[Ezekiel 16:24]]
+[[Ezekiel 24:7]]
+[[Hosea 4:5]]
+[[Hosea 9:7]]
+[[Micah 3:6]]
+[[Micah 7:4]]
+[[Zephaniah 3:5]]
+[[Matthew 15:14]]
+[[Philippians 3:19]]
+---
+
+"Were they ashamed when they had committed abomination? nay, they were not at all ashamed, neither could they blush: therefore they shall fall among them that fall: at the time that I visit them they shall be cast down, saith the LORD."

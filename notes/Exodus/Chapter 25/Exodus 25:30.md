@@ -1,0 +1,20 @@
+---
+Links:
+[[Exodus 35:13]]
+[[Exodus 39:36]]
+[[Exodus 40:23]]
+[[Leviticus 24:5]]
+[[Leviticus 24:6]]
+[[Numbers 4:7]]
+[[1 Samuel 21:5]]
+[[1 Samuel 21:6]]
+[[1 Chronicles 9:32]]
+[[1 Chronicles 23:29]]
+[[2 Chronicles 2:3]]
+[[2 Chronicles 13:11]]
+[[Malachi 1:7]]
+[[Malachi 1:12]]
+[[Matthew 12:4]]
+---
+
+"And thou shalt set upon the table shewbread before me alway."

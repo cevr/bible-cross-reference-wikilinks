@@ -1,7 +1,0 @@
-[[Exodus 8:14]]
-[[Numbers 11:34]]
-[[Numbers 34:11]]
-[[Ezekiel 38:2]]
-[[Ezekiel 47:18]]
-[[Luke 5:1]]
-[[John 6:1]]

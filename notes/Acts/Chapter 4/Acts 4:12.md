@@ -1,0 +1,23 @@
+---
+Links:
+[[Genesis 7:19]]
+[[Job 41:11]]
+[[Psalms 45:17]]
+[[Matthew 1:21]]
+[[Mark 16:15]]
+[[Luke 24:47]]
+[[John 3:36]]
+[[John 14:6]]
+[[Acts 2:5]]
+[[Acts 10:42]]
+[[1 Corinthians 3:11]]
+[[Colossians 1:23]]
+[[1 Timothy 2:5]]
+[[Hebrews 2:3]]
+[[Hebrews 12:25]]
+[[1 John 5:11]]
+[[Revelation 7:9]]
+[[Revelation 20:15]]
+---
+
+"Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved."

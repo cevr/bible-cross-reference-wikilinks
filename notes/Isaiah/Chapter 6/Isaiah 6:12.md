@@ -1,0 +1,16 @@
+---
+Links:
+[[Deuteronomy 28:64]]
+[[2 Kings 25:11]]
+[[2 Kings 25:21]]
+[[Isaiah 26:15]]
+[[Jeremiah 4:29]]
+[[Jeremiah 12:7]]
+[[Jeremiah 15:4]]
+[[Jeremiah 52:28]]
+[[Lamentations 5:20]]
+[[Romans 11:1]]
+[[Romans 11:15]]
+---
+
+"And the LORD have removed men far away, and there be a great forsaking in the midst of the land."

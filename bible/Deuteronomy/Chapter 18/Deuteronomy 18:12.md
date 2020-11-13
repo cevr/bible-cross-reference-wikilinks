@@ -1,6 +1,0 @@
-[[Leviticus 18:24]]
-[[Leviticus 18:27]]
-[[Deuteronomy 9:4]]
-[[Deuteronomy 9:5]]
-[[Deuteronomy 22:5]]
-[[2 Kings 23:24]]

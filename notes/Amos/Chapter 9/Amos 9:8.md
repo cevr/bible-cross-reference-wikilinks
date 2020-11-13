@@ -1,0 +1,28 @@
+---
+Links:
+[[Genesis 6:7]]
+[[Genesis 7:4]]
+[[Deuteronomy 4:31]]
+[[Deuteronomy 6:15]]
+[[1 Kings 13:34]]
+[[Psalms 11:4]]
+[[Proverbs 5:21]]
+[[Proverbs 15:3]]
+[[Isaiah 27:7]]
+[[Jeremiah 5:10]]
+[[Jeremiah 30:11]]
+[[Jeremiah 31:35]]
+[[Jeremiah 33:24]]
+[[Jeremiah 44:27]]
+[[Hosea 1:4]]
+[[Hosea 1:6]]
+[[Hosea 9:11]]
+[[Hosea 13:15]]
+[[Joel 2:32]]
+[[Amos 9:4]]
+[[Obadiah 1:16]]
+[[Romans 11:1]]
+[[Romans 11:28]]
+---
+
+"Behold, the eyes of the Lord GOD are upon the sinful kingdom, and I will destroy it from off the face of the earth; saving that I will not utterly destroy the house of Jacob, saith the LORD."

@@ -1,0 +1,21 @@
+---
+Links:
+[[Exodus 23:3]]
+[[Exodus 23:6]]
+[[Deuteronomy 10:18]]
+[[Deuteronomy 24:17]]
+[[Job 29:12]]
+[[Job 31:21]]
+[[Psalms 10:18]]
+[[Proverbs 31:9]]
+[[Isaiah 1:17]]
+[[Isaiah 1:23]]
+[[Jeremiah 5:28]]
+[[Jeremiah 21:12]]
+[[Jeremiah 22:3]]
+[[Jeremiah 22:16]]
+[[Zechariah 7:9]]
+[[James 1:27]]
+---
+
+"Defend the poor and fatherless: do justice to the afflicted and needy."

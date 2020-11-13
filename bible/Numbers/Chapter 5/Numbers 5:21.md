@@ -1,8 +1,0 @@
-[[Joshua 6:26]]
-[[1 Samuel 14:24]]
-[[2 Chronicles 21:15]]
-[[Nehemiah 10:29]]
-[[Proverbs 10:7]]
-[[Isaiah 65:15]]
-[[Jeremiah 29:22]]
-[[Matthew 26:74]]

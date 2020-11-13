@@ -1,0 +1,14 @@
+---
+Links:
+[[Exodus 16:4]]
+[[Exodus 16:15]]
+[[Exodus 16:35]]
+[[Deuteronomy 8:3]]
+[[Nehemiah 9:15]]
+[[Nehemiah 9:20]]
+[[Psalms 78:23]]
+[[Psalms 105:40]]
+[[John 6:22]]
+---
+
+"And did all eat the same spiritual meat;"

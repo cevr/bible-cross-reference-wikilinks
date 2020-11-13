@@ -1,7 +1,0 @@
-[[Numbers 35:30]]
-[[Deuteronomy 19:15]]
-[[Matthew 18:16]]
-[[John 8:17]]
-[[2 Corinthians 13:1]]
-[[1 Timothy 5:19]]
-[[Hebrews 10:28]]

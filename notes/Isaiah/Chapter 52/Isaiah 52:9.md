@@ -1,0 +1,25 @@
+---
+Links:
+[[Psalms 96:11]]
+[[Psalms 98:4]]
+[[Psalms 102:22]]
+[[Isaiah 14:7]]
+[[Isaiah 42:10]]
+[[Isaiah 44:22]]
+[[Isaiah 44:23]]
+[[Isaiah 44:26]]
+[[Isaiah 48:20]]
+[[Isaiah 49:13]]
+[[Isaiah 51:3]]
+[[Isaiah 51:12]]
+[[Isaiah 54:1]]
+[[Isaiah 55:12]]
+[[Isaiah 61:4]]
+[[Isaiah 65:18]]
+[[Isaiah 66:10]]
+[[Zephaniah 3:14]]
+[[Zephaniah 3:15]]
+[[Galatians 4:27]]
+---
+
+"Break forth into joy, sing together, ye waste places of Jerusalem: for the LORD hath comforted his people, he hath redeemed Jerusalem."

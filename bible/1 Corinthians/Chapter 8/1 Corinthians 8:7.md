@@ -1,5 +1,0 @@
-[[Romans 14:14]]
-[[Romans 14:22]]
-[[1 Corinthians 1:10]]
-[[1 Corinthians 8:9]]
-[[1 Corinthians 10:28]]

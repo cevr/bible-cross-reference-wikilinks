@@ -1,8 +1,0 @@
-[[1 Samuel 23:26]]
-[[1 Samuel 24:11]]
-[[1 Chronicles 17:9]]
-[[Psalms 7:5]]
-[[Psalms 31:20]]
-[[Psalms 35:4]]
-[[Psalms 35:7]]
-[[Psalms 35:12]]

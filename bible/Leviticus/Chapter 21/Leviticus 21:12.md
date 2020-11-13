@@ -1,8 +1,0 @@
-[[Exodus 28:36]]
-[[Exodus 29:6]]
-[[Leviticus 8:9]]
-[[Leviticus 8:30]]
-[[Leviticus 10:7]]
-[[Numbers 6:6]]
-[[Isaiah 61:1]]
-[[Acts 10:38]]

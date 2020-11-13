@@ -1,0 +1,31 @@
+---
+Links:
+[[Deuteronomy 7:6]]
+[[Deuteronomy 32:9]]
+[[2 Samuel 20:19]]
+[[Psalms 1:3]]
+[[Psalms 14:7]]
+[[Psalms 48:11]]
+[[Psalms 105:6]]
+[[Psalms 105:43]]
+[[Psalms 118:15]]
+[[Isaiah 12:6]]
+[[Isaiah 35:10]]
+[[Isaiah 45:25]]
+[[Isaiah 66:10]]
+[[Joel 2:23]]
+[[Zephaniah 3:14]]
+[[Zechariah 9:9]]
+[[John 15:16]]
+[[John 16:22]]
+[[Acts 9:15]]
+[[Ephesians 1:4]]
+[[Ephesians 1:18]]
+[[Philippians 3:3]]
+[[2 Thessalonians 2:13]]
+[[James 2:5]]
+[[1 Peter 2:9]]
+[[Revelation 17:14]]
+---
+
+"That I may see the good of thy chosen, that I may rejoice in the gladness of thy nation, that I may glory with thine inheritance."

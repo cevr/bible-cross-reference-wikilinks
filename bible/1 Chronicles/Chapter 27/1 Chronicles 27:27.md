@@ -1,6 +1,0 @@
-[[Genesis 40:2]]
-[[Numbers 34:10]]
-[[Joshua 23:2]]
-[[1 Samuel 30:28]]
-[[2 Chronicles 26:10]]
-[[Ecclesiastes 2:4]]

@@ -1,0 +1,15 @@
+---
+Links:
+[[Psalms 78:2]]
+[[Proverbs 10:11]]
+[[Proverbs 13:14]]
+[[Proverbs 16:22]]
+[[Proverbs 20:5]]
+[[Matthew 12:34]]
+[[John 4:14]]
+[[John 7:38]]
+[[Colossians 3:16]]
+[[Colossians 4:6]]
+---
+
+"The words of a man's mouth are as deep waters, and the wellspring of wisdom as a flowing brook."

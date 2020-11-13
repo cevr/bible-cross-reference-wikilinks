@@ -1,0 +1,31 @@
+---
+Links:
+[[Isaiah 56:9]]
+[[Isaiah 62:6]]
+[[Jeremiah 6:17]]
+[[Ezekiel 3:17]]
+[[Ezekiel 33:2]]
+[[Ezekiel 33:7]]
+[[Matthew 25:16]]
+[[Mark 13:34]]
+[[Mark 13:37]]
+[[Luke 12:37]]
+[[Acts 20:30]]
+[[Acts 21:8]]
+[[Romans 15:19]]
+[[Ephesians 4:11]]
+[[Colossians 1:25]]
+[[Colossians 4:17]]
+[[1 Thessalonians 5:6]]
+[[1 Timothy 4:12]]
+[[1 Timothy 4:15]]
+[[2 Timothy 1:8]]
+[[2 Timothy 2:3]]
+[[2 Timothy 2:10]]
+[[2 Timothy 3:10]]
+[[Hebrews 13:17]]
+[[1 Peter 1:13]]
+[[Revelation 3:2]]
+---
+
+"But watch thou in all things, endure afflictions, do the work of an evangelist, make full proof of thy ministry."

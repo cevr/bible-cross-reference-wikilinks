@@ -1,5 +1,0 @@
-[[Proverbs 17:11]]
-[[Proverbs 18:6]]
-[[Proverbs 20:3]]
-[[Luke 12:14]]
-[[2 Timothy 2:23]]

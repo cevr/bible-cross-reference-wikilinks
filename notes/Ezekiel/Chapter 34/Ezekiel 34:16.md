@@ -1,0 +1,33 @@
+---
+Links:
+[[Deuteronomy 32:15]]
+[[Psalms 72:2]]
+[[Isaiah 5:17]]
+[[Isaiah 10:16]]
+[[Isaiah 40:11]]
+[[Isaiah 49:26]]
+[[Isaiah 61:1]]
+[[Jeremiah 9:15]]
+[[Jeremiah 10:24]]
+[[Jeremiah 23:5]]
+[[Jeremiah 23:15]]
+[[Jeremiah 50:11]]
+[[Ezekiel 24:5]]
+[[Ezekiel 34:4]]
+[[Ezekiel 34:11]]
+[[Ezekiel 39:18]]
+[[Amos 4:1]]
+[[Amos 4:2]]
+[[Micah 4:6]]
+[[Micah 5:3]]
+[[Micah 7:14]]
+[[Zechariah 10:3]]
+[[Matthew 15:24]]
+[[Matthew 18:10]]
+[[Mark 2:17]]
+[[Luke 5:31]]
+[[Luke 15:4]]
+[[Luke 19:10]]
+---
+
+"I will seek that which was lost, and bring again that which was driven away, and will bind up that which was broken, and will strengthen that which was sick: but I will destroy the fat and the strong; I will feed them with judgment."

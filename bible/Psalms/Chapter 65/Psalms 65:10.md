@@ -1,7 +1,0 @@
-[[Leviticus 26:4]]
-[[Deuteronomy 32:2]]
-[[Job 37:13]]
-[[Psalms 68:10]]
-[[Psalms 104:13]]
-[[Psalms 147:8]]
-[[1 Corinthians 3:6]]

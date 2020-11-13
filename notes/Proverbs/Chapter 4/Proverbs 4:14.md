@@ -1,0 +1,17 @@
+---
+Links:
+[[Psalms 1:1]]
+[[Psalms 26:4]]
+[[Proverbs 1:10]]
+[[Proverbs 1:15]]
+[[Proverbs 2:11]]
+[[Proverbs 5:8]]
+[[Proverbs 7:8]]
+[[Proverbs 9:6]]
+[[Proverbs 13:20]]
+[[Proverbs 22:25]]
+[[Proverbs 24:1]]
+[[1 Corinthians 15:33]]
+---
+
+"Enter not into the path of the wicked, and go not in the way of evil men."

@@ -1,6 +1,0 @@
-[[Genesis 31:40]]
-[[2 Kings 24:12]]
-[[Ecclesiastes 6:3]]
-[[Jeremiah 22:18]]
-[[Jeremiah 22:19]]
-[[Jeremiah 22:30]]

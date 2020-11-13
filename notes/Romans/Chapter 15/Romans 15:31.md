@@ -1,0 +1,18 @@
+---
+Links:
+[[Acts 21:17]]
+[[Acts 22:24]]
+[[Acts 23:12]]
+[[Acts 24:1]]
+[[Acts 25:2]]
+[[Acts 25:24]]
+[[Romans 15:25]]
+[[2 Corinthians 8:4]]
+[[2 Corinthians 9:1]]
+[[1 Thessalonians 2:15]]
+[[2 Thessalonians 3:2]]
+[[2 Timothy 3:11]]
+[[2 Timothy 4:17]]
+---
+
+"That I may be delivered from them that do not believe in Judaea; and that my service which I have for Jerusalem may be accepted of the saints;"

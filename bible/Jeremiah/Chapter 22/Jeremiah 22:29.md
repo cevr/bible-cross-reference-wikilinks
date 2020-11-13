@@ -1,8 +1,0 @@
-[[Deuteronomy 4:26]]
-[[Deuteronomy 31:19]]
-[[Deuteronomy 32:1]]
-[[Isaiah 1:1]]
-[[Isaiah 34:1]]
-[[Jeremiah 6:19]]
-[[Micah 1:2]]
-[[Micah 6:1]]

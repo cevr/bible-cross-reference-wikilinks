@@ -1,0 +1,25 @@
+---
+Links:
+[[Exodus 15:13]]
+[[Exodus 33:12]]
+[[Exodus 33:13]]
+[[1 Samuel 4:3]]
+[[2 Samuel 6:17]]
+[[2 Samuel 7:2]]
+[[2 Samuel 12:10]]
+[[Psalms 26:8]]
+[[Psalms 27:4]]
+[[Psalms 42:1]]
+[[Psalms 43:3]]
+[[Psalms 63:1]]
+[[Psalms 84:1]]
+[[Psalms 84:3]]
+[[Psalms 84:10]]
+[[Psalms 122:1]]
+[[Psalms 122:9]]
+[[Isaiah 38:22]]
+[[Jeremiah 7:4]]
+[[Jeremiah 25:30]]
+---
+
+"And the king said unto Zadok, Carry back the ark of God into the city: if I shall find favour in the eyes of the LORD, he will bring me again, and shew me both it, and his habitation:"

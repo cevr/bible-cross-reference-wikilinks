@@ -1,8 +1,0 @@
-[[Job 6:14]]
-[[Job 16:4]]
-[[Psalms 69:26]]
-[[2 Corinthians 2:17]]
-[[2 Corinthians 4:1]]
-[[Philippians 1:7]]
-[[Philippians 1:10]]
-[[Philippians 1:12]]

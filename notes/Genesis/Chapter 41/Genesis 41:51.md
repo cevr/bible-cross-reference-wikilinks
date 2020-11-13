@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 41:30]]
+[[Genesis 48:5]]
+[[Genesis 48:13]]
+[[Genesis 48:18]]
+[[Numbers 26:28]]
+[[Deuteronomy 33:17]]
+[[Joshua 14:4]]
+[[Joshua 17:1]]
+[[Job 11:16]]
+[[Psalms 30:5]]
+[[Psalms 30:11]]
+[[Psalms 45:10]]
+[[Proverbs 31:7]]
+[[Isaiah 57:16]]
+[[Isaiah 65:16]]
+---
+
+"And Joseph called the name of the firstborn Manasseh: For God, said he, hath made me forget all my toil, and all my father's house."

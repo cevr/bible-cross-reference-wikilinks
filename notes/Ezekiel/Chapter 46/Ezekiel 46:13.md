@@ -1,0 +1,17 @@
+---
+Links:
+[[Exodus 12:5]]
+[[Exodus 29:38]]
+[[Exodus 29:39]]
+[[Leviticus 12:6]]
+[[Numbers 28:3]]
+[[Numbers 28:10]]
+[[Psalms 92:2]]
+[[Isaiah 50:4]]
+[[Daniel 8:11]]
+[[John 1:29]]
+[[1 Peter 1:19]]
+[[Revelation 13:8]]
+---
+
+"Thou shalt daily prepare a burnt offering unto the LORD of a lamb of the first year without blemish: thou shalt prepare it every morning."

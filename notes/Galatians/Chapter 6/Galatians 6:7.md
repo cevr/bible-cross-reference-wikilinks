@@ -1,0 +1,32 @@
+---
+Links:
+[[Job 4:8]]
+[[Job 13:8]]
+[[Job 15:31]]
+[[Proverbs 1:31]]
+[[Proverbs 6:14]]
+[[Proverbs 6:19]]
+[[Proverbs 11:18]]
+[[Jeremiah 37:9]]
+[[Ezekiel 14:5]]
+[[Hosea 8:7]]
+[[Hosea 10:12]]
+[[Obadiah 1:3]]
+[[Luke 16:25]]
+[[Luke 21:8]]
+[[Romans 2:6]]
+[[1 Corinthians 3:18]]
+[[1 Corinthians 6:9]]
+[[1 Corinthians 15:33]]
+[[2 Corinthians 9:6]]
+[[Galatians 6:3]]
+[[Ephesians 5:6]]
+[[2 Thessalonians 2:3]]
+[[James 1:22]]
+[[James 1:26]]
+[[1 John 1:8]]
+[[1 John 3:7]]
+[[Jude 1:18]]
+---
+
+"Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap."

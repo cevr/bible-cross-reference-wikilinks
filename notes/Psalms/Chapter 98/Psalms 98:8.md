@@ -1,0 +1,13 @@
+---
+Links:
+[[2 Kings 11:12]]
+[[Psalms 47:1]]
+[[Psalms 65:12]]
+[[Psalms 65:13]]
+[[Psalms 89:12]]
+[[Psalms 89:13]]
+[[Psalms 93:3]]
+[[Isaiah 55:12]]
+---
+
+"Let the floods clap their hands: let the hills be joyful together"

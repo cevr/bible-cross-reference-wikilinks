@@ -1,5 +1,0 @@
-[[2 Kings 18:26]]
-[[2 Corinthians 2:11]]
-[[2 Corinthians 11:13]]
-[[Ephesians 6:11]]
-[[2 Thessalonians 2:10]]

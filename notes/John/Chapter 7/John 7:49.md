@@ -1,0 +1,14 @@
+---
+Links:
+[[Isaiah 5:21]]
+[[Isaiah 28:14]]
+[[Isaiah 29:14]]
+[[Isaiah 65:5]]
+[[John 9:34]]
+[[John 9:40]]
+[[1 Corinthians 1:20]]
+[[1 Corinthians 3:18]]
+[[James 3:13]]
+---
+
+"But this people who knoweth not the law are cursed."

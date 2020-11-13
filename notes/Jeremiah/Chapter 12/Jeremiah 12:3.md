@@ -1,0 +1,25 @@
+---
+Links:
+[[2 Kings 20:3]]
+[[1 Chronicles 29:17]]
+[[Job 23:10]]
+[[Psalms 7:9]]
+[[Psalms 11:5]]
+[[Psalms 17:3]]
+[[Psalms 26:1]]
+[[Psalms 44:21]]
+[[Psalms 139:1]]
+[[Psalms 139:23]]
+[[Jeremiah 11:19]]
+[[Jeremiah 17:18]]
+[[Jeremiah 18:21]]
+[[Jeremiah 20:12]]
+[[Jeremiah 48:15]]
+[[Jeremiah 50:27]]
+[[Jeremiah 51:4]]
+[[John 21:17]]
+[[James 5:5]]
+[[1 John 3:20]]
+---
+
+"But thou, O LORD, knowest me: thou hast seen me, and tried mine heart toward thee: pull them out like sheep for the slaughter, and prepare them for the day of slaughter."

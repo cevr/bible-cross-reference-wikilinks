@@ -1,6 +1,0 @@
-[[Leviticus 27:2]]
-[[Joshua 9:23]]
-[[1 Chronicles 9:2]]
-[[Ezra 2:43]]
-[[Nehemiah 10:29]]
-[[Nehemiah 11:3]]

@@ -1,8 +1,0 @@
-[[Deuteronomy 4:25]]
-[[Deuteronomy 4:26]]
-[[Deuteronomy 8:19]]
-[[Deuteronomy 31:17]]
-[[Deuteronomy 31:21]]
-[[Deuteronomy 31:29]]
-[[Joshua 23:15]]
-[[Isaiah 63:17]]

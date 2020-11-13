@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 4:31]]
+[[Deuteronomy 20:1]]
+[[Deuteronomy 20:3]]
+[[Deuteronomy 20:4]]
+[[Joshua 10:42]]
+[[2 Kings 18:5]]
+[[2 Chronicles 13:12]]
+[[2 Chronicles 14:10]]
+[[2 Chronicles 14:11]]
+[[2 Chronicles 20:15]]
+[[2 Chronicles 20:17]]
+[[2 Chronicles 20:20]]
+[[2 Chronicles 32:15]]
+[[Job 40:9]]
+[[Psalms 46:7]]
+[[Psalms 46:11]]
+[[Proverbs 12:25]]
+[[Isaiah 8:10]]
+[[Isaiah 30:32]]
+[[Isaiah 31:3]]
+[[Isaiah 36:18]]
+[[Isaiah 41:10]]
+[[Jeremiah 17:5]]
+[[Acts 18:10]]
+[[2 Timothy 4:17]]
+[[2 Timothy 4:22]]
+[[1 John 4:4]]
+---
+
+"With him is an arm of flesh; but with us is the LORD our God to help us, and to fight our battles. And the people rested themselves upon the words of Hezekiah king of Judah."

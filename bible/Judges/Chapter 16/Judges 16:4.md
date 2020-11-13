@@ -1,7 +1,0 @@
-[[1 Kings 11:1]]
-[[Nehemiah 13:26]]
-[[Proverbs 22:14]]
-[[Proverbs 23:27]]
-[[Proverbs 26:11]]
-[[Proverbs 27:22]]
-[[1 Corinthians 10:6]]

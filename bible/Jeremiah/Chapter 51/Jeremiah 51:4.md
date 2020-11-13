@@ -1,6 +1,0 @@
-[[Isaiah 13:15]]
-[[Isaiah 14:19]]
-[[Jeremiah 49:26]]
-[[Jeremiah 50:30]]
-[[Jeremiah 50:37]]
-[[Jeremiah 51:53]]

@@ -1,0 +1,15 @@
+---
+Links:
+[[Exodus 29:31]]
+[[Leviticus 6:16]]
+[[Leviticus 6:18]]
+[[Leviticus 6:26]]
+[[Leviticus 6:29]]
+[[Leviticus 7:6]]
+[[Leviticus 10:13]]
+[[Leviticus 10:17]]
+[[Leviticus 14:13]]
+[[Leviticus 21:22]]
+---
+
+"In the most holy place shalt thou eat it; every male shall eat it: it shall be holy unto thee."

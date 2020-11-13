@@ -1,0 +1,18 @@
+---
+Links:
+[[Genesis 15:5]]
+[[Genesis 46:26]]
+[[Genesis 46:27]]
+[[Exodus 1:5]]
+[[Numbers 26:51]]
+[[Numbers 26:62]]
+[[Deuteronomy 1:10]]
+[[Deuteronomy 1:11]]
+[[Deuteronomy 26:5]]
+[[Deuteronomy 28:62]]
+[[Nehemiah 9:23]]
+[[Acts 7:14]]
+[[Hebrews 11:12]]
+---
+
+"Thy fathers went down into Egypt with threescore and ten persons; and now the LORD thy God hath made thee as the stars of heaven for multitude."

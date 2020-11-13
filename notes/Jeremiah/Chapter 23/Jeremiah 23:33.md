@@ -1,0 +1,23 @@
+---
+Links:
+[[Deuteronomy 31:17]]
+[[Deuteronomy 32:19]]
+[[2 Kings 23:27]]
+[[2 Chronicles 15:2]]
+[[Psalms 78:59]]
+[[Isaiah 13:1]]
+[[Isaiah 14:28]]
+[[Jeremiah 6:30]]
+[[Jeremiah 7:15]]
+[[Jeremiah 12:7]]
+[[Jeremiah 17:15]]
+[[Jeremiah 20:7]]
+[[Jeremiah 23:39]]
+[[Ezekiel 12:21]]
+[[Hosea 9:12]]
+[[Nahum 1:1]]
+[[Habakkuk 1:1]]
+[[Malachi 1:1]]
+---
+
+"And when this people, or the prophet, or a priest, shall ask thee, saying, What is the burden of the LORD? thou shalt then say unto them, What burden? I will even forsake you, saith the LORD."

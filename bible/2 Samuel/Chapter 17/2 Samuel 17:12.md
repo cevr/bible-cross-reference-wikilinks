@@ -1,6 +1,0 @@
-[[1 Samuel 23:23]]
-[[1 Kings 20:10]]
-[[2 Kings 18:23]]
-[[2 Kings 19:24]]
-[[Isaiah 10:13]]
-[[Obadiah 1:3]]

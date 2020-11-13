@@ -1,0 +1,31 @@
+---
+Links:
+[[Numbers 23:19]]
+[[1 Samuel 15:29]]
+[[Psalms 33:9]]
+[[Isaiah 3:11]]
+[[Isaiah 55:11]]
+[[Jeremiah 4:18]]
+[[Jeremiah 13:14]]
+[[Jeremiah 23:20]]
+[[Ezekiel 5:11]]
+[[Ezekiel 7:3]]
+[[Ezekiel 7:4]]
+[[Ezekiel 7:8]]
+[[Ezekiel 7:9]]
+[[Ezekiel 8:18]]
+[[Ezekiel 9:10]]
+[[Ezekiel 16:43]]
+[[Ezekiel 17:24]]
+[[Ezekiel 18:30]]
+[[Ezekiel 22:31]]
+[[Ezekiel 23:24]]
+[[Ezekiel 23:29]]
+[[Ezekiel 30:9]]
+[[Ezekiel 36:19]]
+[[Matthew 16:27]]
+[[Matthew 24:35]]
+[[Romans 2:5]]
+---
+
+"I the LORD have spoken it: it shall come to pass, and I will do it; I will not go back, neither will I spare, neither will I repent; according to thy ways, and according to thy doings, shall they judge thee, saith the Lord GOD."

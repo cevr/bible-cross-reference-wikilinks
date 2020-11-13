@@ -1,7 +1,0 @@
-[[Ezekiel 34:23]]
-[[Ezekiel 37:24]]
-[[Ezekiel 45:7]]
-[[Ezekiel 48:8]]
-[[Ezekiel 48:10]]
-[[Ezekiel 48:22]]
-[[Hosea 1:11]]

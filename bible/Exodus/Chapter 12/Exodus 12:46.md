@@ -1,7 +1,0 @@
-[[Numbers 9:12]]
-[[Psalms 34:20]]
-[[Psalms 34:21]]
-[[John 19:33]]
-[[John 19:36]]
-[[1 Corinthians 12:12]]
-[[Ephesians 2:19]]

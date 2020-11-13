@@ -1,5 +1,0 @@
-[[Psalms 55:22]]
-[[Matthew 6:25]]
-[[Matthew 13:22]]
-[[Philippians 4:6]]
-[[1 Timothy 5:5]]

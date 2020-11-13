@@ -1,5 +1,0 @@
-[[Isaiah 3:9]]
-[[Jeremiah 3:3]]
-[[Jeremiah 5:3]]
-[[Jeremiah 6:15]]
-[[Jeremiah 8:12]]

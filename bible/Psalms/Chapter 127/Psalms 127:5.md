@@ -1,6 +1,0 @@
-[[Genesis 50:23]]
-[[Job 1:2]]
-[[Job 5:4]]
-[[Job 42:12]]
-[[Psalms 18:47]]
-[[Proverbs 27:11]]

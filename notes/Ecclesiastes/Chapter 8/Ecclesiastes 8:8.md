@@ -1,0 +1,25 @@
+---
+Links:
+[[Deuteronomy 20:1]]
+[[2 Samuel 14:14]]
+[[2 Kings 7:15]]
+[[Job 14:5]]
+[[Job 34:14]]
+[[Psalms 9:17]]
+[[Psalms 49:6]]
+[[Psalms 52:5]]
+[[Psalms 73:18]]
+[[Psalms 89:48]]
+[[Proverbs 12:3]]
+[[Proverbs 14:32]]
+[[Ecclesiastes 3:21]]
+[[Ecclesiastes 9:12]]
+[[Isaiah 28:15]]
+[[Isaiah 28:18]]
+[[Isaiah 47:10]]
+[[1 Corinthians 15:43]]
+[[2 Corinthians 13:4]]
+[[Hebrews 9:27]]
+---
+
+"There is no man that hath power over the spirit to retain the spirit; neither hath he power in the day of death: and there is no discharge in that war; neither shall wickedness deliver those that are given to it."

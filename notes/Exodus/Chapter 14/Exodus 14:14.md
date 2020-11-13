@@ -1,0 +1,29 @@
+---
+Links:
+[[Exodus 14:25]]
+[[Exodus 15:3]]
+[[Deuteronomy 1:30]]
+[[Deuteronomy 3:22]]
+[[Deuteronomy 20:4]]
+[[Joshua 10:10]]
+[[Joshua 10:14]]
+[[Joshua 10:42]]
+[[Joshua 23:3]]
+[[Joshua 23:10]]
+[[Judges 5:20]]
+[[1 Samuel 4:7]]
+[[2 Chronicles 20:15]]
+[[2 Chronicles 20:17]]
+[[2 Chronicles 20:29]]
+[[Nehemiah 4:14]]
+[[Nehemiah 4:20]]
+[[Nehemiah 9:11]]
+[[Psalms 35:1]]
+[[Psalms 50:3]]
+[[Psalms 83:1]]
+[[Isaiah 30:15]]
+[[Isaiah 31:4]]
+[[Lamentations 3:26]]
+---
+
+"The LORD shall fight for you, and ye shall hold your peace."

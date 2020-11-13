@@ -1,7 +1,0 @@
-[[Isaiah 49:20]]
-[[Isaiah 64:4]]
-[[Acts 2:41]]
-[[Acts 4:4]]
-[[Acts 21:20]]
-[[Romans 15:18]]
-[[1 Corinthians 2:9]]

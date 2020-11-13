@@ -1,0 +1,24 @@
+---
+Links:
+[[Genesis 4:11]]
+[[Genesis 6:13]]
+[[Genesis 7:23]]
+[[Genesis 9:5]]
+[[Genesis 9:6]]
+[[Exodus 9:15]]
+[[Exodus 21:12]]
+[[Numbers 35:31]]
+[[2 Samuel 3:27]]
+[[2 Samuel 3:39]]
+[[1 Kings 2:32]]
+[[Psalms 9:12]]
+[[Psalms 109:15]]
+[[Proverbs 2:22]]
+[[Proverbs 25:26]]
+[[Jeremiah 10:11]]
+[[Habakkuk 1:4]]
+[[Habakkuk 1:12]]
+[[1 John 3:12]]
+---
+
+"How much more, when wicked men have slain a righteous person in his own house upon his bed? shall I not therefore now require his blood of your hand, and take you away from the earth?"

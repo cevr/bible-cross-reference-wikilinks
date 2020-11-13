@@ -1,8 +1,0 @@
-[[Psalms 74:10]]
-[[Psalms 74:18]]
-[[Psalms 74:23]]
-[[Psalms 123:3]]
-[[Ezekiel 34:29]]
-[[Ezekiel 36:4]]
-[[Ezekiel 36:15]]
-[[Ezekiel 38:18]]

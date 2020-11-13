@@ -1,5 +1,0 @@
-[[Genesis 27:40]]
-[[Joshua 21:13]]
-[[2 Kings 19:8]]
-[[2 Chronicles 21:10]]
-[[2 Chronicles 28:17]]

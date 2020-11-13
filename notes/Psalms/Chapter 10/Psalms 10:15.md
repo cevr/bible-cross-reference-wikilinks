@@ -1,0 +1,15 @@
+---
+Links:
+[[2 Kings 21:12]]
+[[Job 38:15]]
+[[Psalms 3:7]]
+[[Psalms 7:9]]
+[[Psalms 37:17]]
+[[Jeremiah 2:34]]
+[[Ezekiel 23:48]]
+[[Ezekiel 30:21]]
+[[Zephaniah 1:12]]
+[[Zechariah 11:17]]
+---
+
+"Break thou the arm of the wicked and the evil man: seek out his wickedness till thou find none."

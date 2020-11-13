@@ -1,0 +1,16 @@
+---
+Links:
+[[Genesis 27:1]]
+[[Genesis 48:10]]
+[[1 Samuel 3:2]]
+[[1 Samuel 4:15]]
+[[1 Samuel 4:18]]
+[[Psalms 42:7]]
+[[Psalms 71:20]]
+[[Psalms 77:16]]
+[[Ecclesiastes 11:7]]
+[[Isaiah 5:30]]
+[[Ezekiel 32:7]]
+---
+
+"While the sun, or the light, or the moon, or the stars, be not darkened, nor the clouds return after the rain:"

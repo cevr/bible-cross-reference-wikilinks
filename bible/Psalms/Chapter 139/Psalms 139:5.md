@@ -1,6 +1,0 @@
-[[Exodus 24:11]]
-[[Deuteronomy 33:27]]
-[[Job 9:33]]
-[[Job 23:8]]
-[[Psalms 34:7]]
-[[Revelation 1:17]]

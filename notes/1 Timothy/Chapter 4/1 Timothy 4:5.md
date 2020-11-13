@@ -1,0 +1,12 @@
+---
+Links:
+[[Genesis 1:25]]
+[[Genesis 1:31]]
+[[Luke 4:4]]
+[[Luke 11:41]]
+[[1 Corinthians 7:14]]
+[[1 Timothy 4:3]]
+[[Titus 1:15]]
+---
+
+"For it is sanctified by the word of God and prayer."

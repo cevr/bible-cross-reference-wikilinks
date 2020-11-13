@@ -1,5 +1,0 @@
-[[Genesis 41:42]]
-[[Esther 3:1]]
-[[Esther 7:6]]
-[[Esther 8:2]]
-[[Esther 8:8]]

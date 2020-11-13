@@ -1,0 +1,27 @@
+---
+Links:
+[[Genesis 13:13]]
+[[Genesis 18:20]]
+[[Genesis 19:5]]
+[[Genesis 19:24]]
+[[Deuteronomy 29:23]]
+[[Isaiah 1:9]]
+[[Isaiah 13:19]]
+[[Isaiah 33:14]]
+[[Jeremiah 20:16]]
+[[Jeremiah 50:40]]
+[[Lamentations 4:6]]
+[[Ezekiel 16:49]]
+[[Hosea 11:8]]
+[[Amos 4:11]]
+[[Matthew 11:24]]
+[[Matthew 25:41]]
+[[Mark 9:43]]
+[[Luke 17:29]]
+[[Romans 1:26]]
+[[1 Corinthians 6:9]]
+[[2 Peter 2:6]]
+[[2 Peter 3:7]]
+---
+
+"Even as Sodom and Gomorrha, and the cities about them in like manner, giving themselves over to fornication, and going after strange flesh, are set forth for an example, suffering the vengeance of eternal fire."

@@ -1,0 +1,19 @@
+---
+Links:
+[[Deuteronomy 26:16]]
+[[2 Chronicles 12:14]]
+[[2 Chronicles 15:17]]
+[[2 Chronicles 25:2]]
+[[2 Chronicles 31:20]]
+[[Psalms 25:2]]
+[[Psalms 25:21]]
+[[Psalms 32:2]]
+[[Psalms 119:6]]
+[[Proverbs 4:23]]
+[[Ezekiel 11:9]]
+[[John 1:47]]
+[[2 Corinthians 1:12]]
+[[1 John 2:28]]
+---
+
+"Let my heart be sound in thy statutes; that I be not ashamed."

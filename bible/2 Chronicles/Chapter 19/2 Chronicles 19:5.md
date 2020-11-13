@@ -1,5 +1,0 @@
-[[Leviticus 14:42]]
-[[Deuteronomy 16:18]]
-[[2 Chronicles 19:8]]
-[[Romans 13:1]]
-[[1 Peter 2:13]]

@@ -1,5 +1,0 @@
-[[Genesis 24:11]]
-[[Genesis 24:18]]
-[[Exodus 2:16]]
-[[Judges 5:11]]
-[[Proverbs 24:15]]

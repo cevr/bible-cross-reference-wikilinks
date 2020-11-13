@@ -1,6 +1,0 @@
-[[Judges 4:15]]
-[[2 Kings 1:2]]
-[[Proverbs 7:6]]
-[[Songs of Solomon 2:9]]
-[[Songs of Solomon 8:14]]
-[[James 5:7]]

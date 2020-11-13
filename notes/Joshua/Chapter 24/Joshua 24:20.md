@@ -1,0 +1,20 @@
+---
+Links:
+[[Joshua 23:12]]
+[[1 Samuel 12:25]]
+[[1 Chronicles 28:8]]
+[[1 Chronicles 28:9]]
+[[2 Chronicles 15:2]]
+[[Ezra 8:22]]
+[[Psalms 89:31]]
+[[Isaiah 1:28]]
+[[Isaiah 63:10]]
+[[Isaiah 65:11]]
+[[Jeremiah 17:13]]
+[[Ezekiel 18:24]]
+[[Acts 7:42]]
+[[Hebrews 10:26]]
+[[Hebrews 10:38]]
+---
+
+"If ye forsake the LORD, and serve strange gods, then he will turn and do you hurt, and consume you, after that he hath done you good."

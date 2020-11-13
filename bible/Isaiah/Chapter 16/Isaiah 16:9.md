@@ -1,6 +1,0 @@
-[[Judges 9:27]]
-[[Isaiah 9:3]]
-[[Isaiah 15:4]]
-[[Jeremiah 40:10]]
-[[Jeremiah 40:12]]
-[[Jeremiah 48:32]]

@@ -1,0 +1,22 @@
+---
+Links:
+[[Job 5:24]]
+[[Psalms 34:10]]
+[[Psalms 34:11]]
+[[Psalms 111:3]]
+[[Psalms 111:10]]
+[[Psalms 112:9]]
+[[Proverbs 3:16]]
+[[Proverbs 15:6]]
+[[Proverbs 21:20]]
+[[Isaiah 32:17]]
+[[Isaiah 33:6]]
+[[Isaiah 51:8]]
+[[Matthew 6:33]]
+[[Matthew 24:22]]
+[[2 Corinthians 6:10]]
+[[Philippians 4:18]]
+[[1 Timothy 6:6]]
+---
+
+"Wealth and riches shall be in his house: and his righteousness endureth for ever."

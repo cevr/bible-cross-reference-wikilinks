@@ -1,0 +1,16 @@
+---
+Links:
+[[Psalms 50:18]]
+[[Hosea 7:3]]
+[[Mark 14:10]]
+[[Luke 11:48]]
+[[Acts 8:1]]
+[[Acts 22:20]]
+[[Romans 1:18]]
+[[Romans 1:21]]
+[[Romans 2:1]]
+[[Romans 2:21]]
+[[Romans 6:21]]
+---
+
+"Who knowing the judgment of God, that they which commit such things are worthy of death, not only do the same, but have pleasure in them that do them."

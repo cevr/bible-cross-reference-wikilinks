@@ -1,0 +1,18 @@
+---
+Links:
+[[Exodus 8:19]]
+[[Numbers 16:28]]
+[[1 Samuel 17:46]]
+[[1 Kings 18:36]]
+[[1 Kings 18:37]]
+[[Ezra 7:6]]
+[[Nehemiah 6:16]]
+[[Job 37:7]]
+[[Psalms 17:13]]
+[[Psalms 64:8]]
+[[Psalms 126:2]]
+[[Acts 2:32]]
+[[Acts 4:16]]
+---
+
+"That they may know that this is thy hand; that thou, LORD, hast done it."

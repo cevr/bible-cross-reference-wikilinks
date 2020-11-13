@@ -1,6 +1,0 @@
-[[Numbers 1:15]]
-[[Numbers 1:42]]
-[[Numbers 7:78]]
-[[Numbers 7:83]]
-[[Numbers 10:27]]
-[[Numbers 26:48]]

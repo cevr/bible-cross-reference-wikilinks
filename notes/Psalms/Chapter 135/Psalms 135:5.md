@@ -1,0 +1,18 @@
+---
+Links:
+[[Deuteronomy 10:17]]
+[[Psalms 48:1]]
+[[Psalms 86:8]]
+[[Psalms 89:6]]
+[[Psalms 95:3]]
+[[Psalms 96:4]]
+[[Psalms 97:9]]
+[[Psalms 147:5]]
+[[Isaiah 40:22]]
+[[Isaiah 40:25]]
+[[Jeremiah 10:10]]
+[[Daniel 3:29]]
+[[Daniel 6:26]]
+---
+
+"For I know that the LORD is great, and that our Lord is above all gods."

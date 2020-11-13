@@ -1,0 +1,26 @@
+---
+Links:
+[[Deuteronomy 32:15]]
+[[2 Samuel 10:6]]
+[[2 Kings 7:6]]
+[[Psalms 37:13]]
+[[Proverbs 15:17]]
+[[Isaiah 10:3]]
+[[Isaiah 34:7]]
+[[Jeremiah 18:17]]
+[[Jeremiah 46:5]]
+[[Jeremiah 46:9]]
+[[Jeremiah 46:15]]
+[[Jeremiah 48:44]]
+[[Jeremiah 50:11]]
+[[Jeremiah 50:27]]
+[[Ezekiel 27:10]]
+[[Ezekiel 30:4]]
+[[Ezekiel 35:5]]
+[[Hosea 9:7]]
+[[Amos 6:4]]
+[[Obadiah 1:13]]
+[[Micah 7:4]]
+---
+
+"Also her hired men are in the midst of her like fatted bullocks; for they also are turned back, and are fled away together: they did not stand, because the day of their calamity was come upon them, and the time of their visitation."

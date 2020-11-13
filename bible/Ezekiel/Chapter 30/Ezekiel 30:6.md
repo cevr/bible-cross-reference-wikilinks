@@ -1,6 +1,0 @@
-[[Job 9:13]]
-[[Isaiah 20:3]]
-[[Isaiah 31:3]]
-[[Jeremiah 48:14]]
-[[Ezekiel 29:10]]
-[[Nahum 3:9]]

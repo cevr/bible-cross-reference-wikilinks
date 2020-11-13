@@ -1,5 +1,0 @@
-[[Proverbs 3:9]]
-[[Haggai 1:6]]
-[[Haggai 1:9]]
-[[Zechariah 8:10]]
-[[Malachi 2:2]]

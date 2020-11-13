@@ -1,0 +1,15 @@
+---
+Links:
+[[Numbers 33:4]]
+[[Psalms 9:16]]
+[[Psalms 149:7]]
+[[Ezekiel 5:8]]
+[[Ezekiel 5:15]]
+[[Ezekiel 25:11]]
+[[Ezekiel 30:14]]
+[[Ezekiel 39:21]]
+[[Romans 2:5]]
+[[Revelation 17:1]]
+---
+
+"Thus will I execute judgments in Egypt: and they shall know that I am the LORD."

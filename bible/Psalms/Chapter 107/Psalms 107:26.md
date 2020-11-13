@@ -1,5 +1,0 @@
-[[2 Samuel 17:10]]
-[[Psalms 22:14]]
-[[Psalms 119:28]]
-[[Isaiah 13:7]]
-[[Nahum 2:10]]

@@ -1,7 +1,0 @@
-[[Isaiah 17:11]]
-[[Jeremiah 9:12]]
-[[Jeremiah 14:2]]
-[[Jeremiah 14:3]]
-[[Jeremiah 14:4]]
-[[Amos 5:16]]
-[[Romans 5:5]]

@@ -1,5 +1,0 @@
-[[Genesis 2:18]]
-[[Genesis 2:24]]
-[[2 Chronicles 24:3]]
-[[Matthew 19:4]]
-[[Matthew 19:8]]

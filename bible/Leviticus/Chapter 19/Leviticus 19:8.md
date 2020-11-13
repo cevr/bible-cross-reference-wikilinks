@@ -1,5 +1,0 @@
-[[Exodus 30:33]]
-[[Leviticus 5:1]]
-[[Leviticus 7:20]]
-[[Leviticus 7:21]]
-[[Leviticus 22:15]]

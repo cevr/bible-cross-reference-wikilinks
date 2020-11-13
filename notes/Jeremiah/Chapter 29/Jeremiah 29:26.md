@@ -1,0 +1,32 @@
+---
+Links:
+[[Deuteronomy 13:1]]
+[[2 Kings 9:11]]
+[[2 Kings 11:15]]
+[[2 Kings 11:18]]
+[[2 Chronicles 16:10]]
+[[2 Chronicles 18:26]]
+[[Jeremiah 20:1]]
+[[Jeremiah 20:2]]
+[[Jeremiah 29:27]]
+[[Jeremiah 38:6]]
+[[Jeremiah 38:28]]
+[[Hosea 9:7]]
+[[Zechariah 13:3]]
+[[Matthew 21:23]]
+[[Mark 3:21]]
+[[John 8:53]]
+[[John 10:20]]
+[[John 10:33]]
+[[Acts 4:1]]
+[[Acts 5:18]]
+[[Acts 5:24]]
+[[Acts 16:24]]
+[[Acts 26:11]]
+[[Acts 26:24]]
+[[2 Corinthians 5:13]]
+[[2 Corinthians 11:33]]
+[[Revelation 2:10]]
+---
+
+"The LORD hath made thee priest in the stead of Jehoiada the priest, that ye should be officers in the house of the LORD, for every man that is mad, and maketh himself a prophet, that thou shouldest put him in prison, and in the stocks."

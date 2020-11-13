@@ -1,0 +1,14 @@
+---
+Links:
+[[Genesis 8:1]]
+[[Genesis 21:1]]
+[[Genesis 25:21]]
+[[Genesis 29:31]]
+[[Genesis 30:2]]
+[[1 Samuel 1:19]]
+[[Psalms 105:42]]
+[[Psalms 113:9]]
+[[Psalms 127:3]]
+---
+
+"And God remembered Rachel, and God hearkened to her, and opened her womb."

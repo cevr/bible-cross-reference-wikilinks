@@ -1,7 +1,0 @@
-[[1 Chronicles 9:11]]
-[[1 Chronicles 24:5]]
-[[2 Chronicles 30:12]]
-[[2 Chronicles 31:4]]
-[[2 Chronicles 31:10]]
-[[2 Chronicles 35:8]]
-[[Nehemiah 11:11]]

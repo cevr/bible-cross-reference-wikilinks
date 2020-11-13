@@ -1,0 +1,17 @@
+---
+Links:
+[[Mark 16:19]]
+[[John 12:35]]
+[[John 13:1]]
+[[John 13:3]]
+[[John 13:33]]
+[[John 14:19]]
+[[John 16:5]]
+[[John 16:10]]
+[[John 16:16]]
+[[John 16:28]]
+[[John 17:11]]
+[[John 17:13]]
+---
+
+"Then said Jesus unto them, Yet a little while am I with you, and then I go unto him that sent me."

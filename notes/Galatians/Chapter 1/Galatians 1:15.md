@@ -1,0 +1,33 @@
+---
+Links:
+[[Deuteronomy 7:7]]
+[[1 Samuel 12:22]]
+[[1 Chronicles 28:4]]
+[[Isaiah 49:1]]
+[[Isaiah 49:5]]
+[[Jeremiah 1:5]]
+[[Matthew 11:26]]
+[[Luke 1:15]]
+[[Luke 10:21]]
+[[Acts 9:15]]
+[[Acts 13:2]]
+[[Acts 22:14]]
+[[Romans 1:1]]
+[[Romans 1:5]]
+[[Romans 8:30]]
+[[Romans 9:24]]
+[[1 Corinthians 1:1]]
+[[1 Corinthians 1:9]]
+[[1 Corinthians 1:24]]
+[[1 Corinthians 15:10]]
+[[Galatians 1:6]]
+[[Ephesians 1:5]]
+[[Ephesians 1:9]]
+[[Ephesians 3:11]]
+[[2 Thessalonians 2:13]]
+[[1 Timothy 1:12]]
+[[2 Timothy 1:9]]
+[[1 Peter 5:10]]
+---
+
+"But when it pleased God, who separated me from my mother's womb, and called me by his grace,"

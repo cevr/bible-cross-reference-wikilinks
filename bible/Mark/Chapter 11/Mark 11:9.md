@@ -1,6 +1,0 @@
-[[Psalms 118:25]]
-[[Matthew 21:9]]
-[[Matthew 23:39]]
-[[Luke 19:37]]
-[[John 12:13]]
-[[John 19:15]]

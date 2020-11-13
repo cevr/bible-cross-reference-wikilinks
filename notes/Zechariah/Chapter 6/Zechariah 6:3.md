@@ -1,0 +1,13 @@
+---
+Links:
+[[Daniel 2:33]]
+[[Daniel 2:40]]
+[[Zechariah 1:8]]
+[[Zechariah 6:6]]
+[[Revelation 6:2]]
+[[Revelation 6:8]]
+[[Revelation 19:11]]
+[[Revelation 20:11]]
+---
+
+"And in the third chariot white horses; and in the fourth chariot grisled and bay horses."

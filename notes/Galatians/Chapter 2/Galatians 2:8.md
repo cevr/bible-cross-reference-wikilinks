@@ -1,0 +1,27 @@
+---
+Links:
+[[Acts 1:8]]
+[[Acts 1:25]]
+[[Acts 2:14]]
+[[Acts 3:12]]
+[[Acts 4:4]]
+[[Acts 5:12]]
+[[Acts 8:17]]
+[[Acts 9:15]]
+[[Acts 13:2]]
+[[Acts 14:3]]
+[[Acts 15:12]]
+[[Acts 19:11]]
+[[Acts 19:26]]
+[[Acts 21:19]]
+[[Acts 22:21]]
+[[Acts 26:17]]
+[[1 Corinthians 1:5]]
+[[1 Corinthians 9:2]]
+[[1 Corinthians 15:10]]
+[[2 Corinthians 11:4]]
+[[Galatians 3:5]]
+[[Colossians 1:29]]
+---
+
+"(For he that wrought effectually in Peter to the apostleship of the circumcision, the same was mighty in me toward the Gentiles:)"

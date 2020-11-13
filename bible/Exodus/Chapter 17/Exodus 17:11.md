@@ -1,5 +1,0 @@
-[[Psalms 44:6]]
-[[Psalms 56:9]]
-[[Luke 18:1]]
-[[1 Timothy 2:8]]
-[[James 5:16]]

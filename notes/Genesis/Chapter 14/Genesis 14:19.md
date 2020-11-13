@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 14:22]]
+[[Genesis 24:3]]
+[[Genesis 27:4]]
+[[Genesis 27:25]]
+[[Genesis 47:7]]
+[[Genesis 47:10]]
+[[Genesis 48:9]]
+[[Genesis 49:28]]
+[[Numbers 6:23]]
+[[Deuteronomy 10:14]]
+[[Ruth 3:10]]
+[[2 Samuel 2:5]]
+[[1 Chronicles 29:11]]
+[[2 Chronicles 31:8]]
+[[Psalms 24:1]]
+[[Psalms 50:10]]
+[[Psalms 115:15]]
+[[Psalms 115:16]]
+[[Micah 6:6]]
+[[Matthew 11:25]]
+[[Mark 10:16]]
+[[Luke 10:21]]
+[[Acts 16:17]]
+[[Ephesians 1:3]]
+[[Ephesians 1:6]]
+[[Hebrews 7:6]]
+---
+
+"And he blessed him, and said, Blessed be Abram of the most high God, possessor of heaven and earth:"

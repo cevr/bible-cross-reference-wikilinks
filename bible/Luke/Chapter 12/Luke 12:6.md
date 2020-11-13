@@ -1,7 +1,0 @@
-[[Psalms 50:10]]
-[[Psalms 113:5]]
-[[Psalms 145:15]]
-[[Psalms 147:9]]
-[[Matthew 10:29]]
-[[Luke 12:24]]
-[[Luke 12:27]]

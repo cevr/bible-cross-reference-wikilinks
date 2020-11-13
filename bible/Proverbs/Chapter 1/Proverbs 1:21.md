@@ -1,6 +1,0 @@
-[[Proverbs 8:3]]
-[[Proverbs 9:3]]
-[[Matthew 10:27]]
-[[Matthew 13:2]]
-[[John 18:20]]
-[[Acts 5:20]]

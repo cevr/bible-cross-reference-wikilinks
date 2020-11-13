@@ -1,6 +1,0 @@
-[[Leviticus 18:20]]
-[[Leviticus 20:10]]
-[[Proverbs 7:18]]
-[[Proverbs 7:20]]
-[[Proverbs 30:20]]
-[[Ezekiel 33:26]]

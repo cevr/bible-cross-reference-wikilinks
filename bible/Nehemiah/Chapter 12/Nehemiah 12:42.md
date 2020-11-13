@@ -1,8 +1,0 @@
-[[Nehemiah 10:8]]
-[[Nehemiah 11:14]]
-[[Psalms 81:1]]
-[[Psalms 81:2]]
-[[Psalms 95:1]]
-[[Psalms 98:4]]
-[[Psalms 100:1]]
-[[Isaiah 12:5]]

@@ -1,6 +1,0 @@
-[[2 Kings 9:19]]
-[[2 Kings 9:22]]
-[[Isaiah 48:22]]
-[[Isaiah 59:8]]
-[[Jeremiah 16:5]]
-[[Romans 3:17]]

@@ -1,7 +1,0 @@
-[[Numbers 15:25]]
-[[Numbers 15:28]]
-[[Numbers 30:5]]
-[[Numbers 30:8]]
-[[1 Samuel 1:23]]
-[[Jeremiah 44:19]]
-[[1 Corinthians 11:3]]

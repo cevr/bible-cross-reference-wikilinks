@@ -1,5 +1,0 @@
-[[Genesis 24:15]]
-[[Exodus 2:15]]
-[[Exodus 2:16]]
-[[Exodus 2:21]]
-[[Songs of Solomon 1:7]]

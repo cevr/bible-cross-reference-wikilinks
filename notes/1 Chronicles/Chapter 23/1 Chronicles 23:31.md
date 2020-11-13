@@ -1,0 +1,14 @@
+---
+Links:
+[[Leviticus 23:1]]
+[[Leviticus 23:24]]
+[[Leviticus 23:39]]
+[[Numbers 10:10]]
+[[Numbers 28:1]]
+[[Numbers 28:2]]
+[[2 Chronicles 24:14]]
+[[Psalms 81:1]]
+[[Isaiah 1:13]]
+---
+
+"And to offer all burnt sacrifices unto the LORD in the sabbaths, in the new moons, and on the set feasts, by number, according to the order commanded unto them, continually before the LORD:"

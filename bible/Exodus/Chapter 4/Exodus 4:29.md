@@ -1,5 +1,0 @@
-[[Exodus 3:16]]
-[[Exodus 19:7]]
-[[Exodus 24:1]]
-[[Exodus 24:11]]
-[[Psalms 105:26]]

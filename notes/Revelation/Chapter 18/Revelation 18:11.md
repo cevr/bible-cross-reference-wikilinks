@@ -1,0 +1,21 @@
+---
+Links:
+[[Proverbs 3:14]]
+[[Isaiah 23:1]]
+[[Isaiah 47:15]]
+[[Ezekiel 26:17]]
+[[Ezekiel 27:27]]
+[[Zephaniah 1:11]]
+[[Zephaniah 1:18]]
+[[Matthew 22:5]]
+[[John 2:16]]
+[[2 Peter 2:3]]
+[[Revelation 13:16]]
+[[Revelation 18:3]]
+[[Revelation 18:9]]
+[[Revelation 18:15]]
+[[Revelation 18:20]]
+[[Revelation 18:23]]
+---
+
+"And the merchants of the earth shall weep and mourn over her; for no man buyeth their merchandise any more:"

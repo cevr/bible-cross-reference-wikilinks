@@ -1,0 +1,17 @@
+---
+Links:
+[[Exodus 15:1]]
+[[Exodus 15:21]]
+[[Psalms 46:9]]
+[[Psalms 76:6]]
+[[Jeremiah 50:37]]
+[[Ezekiel 39:20]]
+[[Micah 5:10]]
+[[Nahum 2:13]]
+[[Haggai 2:22]]
+[[Zechariah 10:5]]
+[[Zechariah 12:4]]
+[[Revelation 19:18]]
+---
+
+"And with thee will I break in pieces the horse and his rider; and with thee will I break in pieces the chariot and his rider;"

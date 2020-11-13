@@ -1,0 +1,19 @@
+---
+Links:
+[[Job 29:13]]
+[[Psalms 66:4]]
+[[Psalms 109:28]]
+[[Isaiah 24:14]]
+[[Isaiah 50:11]]
+[[Isaiah 52:8]]
+[[Isaiah 66:14]]
+[[Jeremiah 31:7]]
+[[Matthew 8:12]]
+[[Matthew 13:42]]
+[[Matthew 22:13]]
+[[Luke 13:28]]
+[[James 5:1]]
+[[James 5:13]]
+---
+
+"Behold, my servants shall sing for joy of heart, but ye shall cry for sorrow of heart, and shall howl for vexation of spirit."

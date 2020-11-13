@@ -1,7 +1,0 @@
-[[Matthew 14:14]]
-[[Matthew 15:33]]
-[[Mark 6:34]]
-[[Mark 8:2]]
-[[Luke 9:12]]
-[[John 1:43]]
-[[John 4:35]]

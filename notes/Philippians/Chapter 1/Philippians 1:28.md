@@ -1,0 +1,28 @@
+---
+Links:
+[[Genesis 49:18]]
+[[Psalms 50:23]]
+[[Psalms 68:19]]
+[[Isaiah 12:2]]
+[[Isaiah 51:7]]
+[[Isaiah 51:12]]
+[[Matthew 5:10]]
+[[Matthew 10:28]]
+[[Mark 3:3]]
+[[Luke 3:6]]
+[[Luke 12:4]]
+[[Luke 21:12]]
+[[Acts 4:19]]
+[[Acts 5:40]]
+[[Acts 28:28]]
+[[Romans 8:17]]
+[[1 Thessalonians 2:2]]
+[[2 Thessalonians 1:5]]
+[[2 Timothy 1:7]]
+[[2 Timothy 2:11]]
+[[Hebrews 13:6]]
+[[1 Peter 4:12]]
+[[Revelation 2:10]]
+---
+
+"And in nothing terrified by your adversaries: which is to them an evident token of perdition, but to you of salvation, and that of God."

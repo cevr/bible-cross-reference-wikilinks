@@ -1,6 +1,0 @@
-[[Genesis 37:28]]
-[[Exodus 21:28]]
-[[Zechariah 11:12]]
-[[Matthew 26:15]]
-[[Matthew 27:3]]
-[[Philippians 2:7]]

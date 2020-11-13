@@ -1,8 +1,0 @@
-[[Exodus 2:1]]
-[[Exodus 2:2]]
-[[Exodus 6:16]]
-[[Exodus 6:18]]
-[[Numbers 26:58]]
-[[Numbers 26:59]]
-[[Joshua 21:4]]
-[[1 Chronicles 23:13]]

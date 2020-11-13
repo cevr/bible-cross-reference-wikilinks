@@ -1,0 +1,18 @@
+---
+Links:
+[[1 Samuel 22:20]]
+[[2 Samuel 8:16]]
+[[2 Samuel 15:12]]
+[[2 Samuel 15:24]]
+[[2 Samuel 15:35]]
+[[2 Samuel 20:23]]
+[[2 Samuel 20:25]]
+[[1 Kings 2:22]]
+[[1 Kings 2:26]]
+[[1 Kings 2:28]]
+[[1 Chronicles 11:6]]
+[[1 Chronicles 27:34]]
+[[Psalms 2:2]]
+---
+
+"And he conferred with Joab the son of Zeruiah, and with Abiathar the priest: and they following Adonijah helped him."

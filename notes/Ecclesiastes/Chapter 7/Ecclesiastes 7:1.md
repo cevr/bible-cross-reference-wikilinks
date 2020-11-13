@@ -1,0 +1,26 @@
+---
+Links:
+[[Ruth 3:14]]
+[[Job 3:17]]
+[[Psalms 133:2]]
+[[Proverbs 15:30]]
+[[Proverbs 22:1]]
+[[Proverbs 25:10]]
+[[Proverbs 27:9]]
+[[Ecclesiastes 4:2]]
+[[Ecclesiastes 10:1]]
+[[Songs of Solomon 1:3]]
+[[Songs of Solomon 4:10]]
+[[Isaiah 56:5]]
+[[Isaiah 57:1]]
+[[Luke 10:20]]
+[[John 13:2]]
+[[2 Corinthians 5:1]]
+[[2 Corinthians 5:8]]
+[[Philippians 1:21]]
+[[Hebrews 11:2]]
+[[Hebrews 11:39]]
+[[Revelation 14:13]]
+---
+
+"A good name is better than precious ointment; and the day of death than the day of one's birth."

@@ -1,0 +1,29 @@
+---
+Links:
+[[Deuteronomy 4:29]]
+[[Deuteronomy 6:5]]
+[[Deuteronomy 6:17]]
+[[1 Kings 2:3]]
+[[1 Chronicles 22:19]]
+[[2 Chronicles 31:21]]
+[[Psalms 25:10]]
+[[Psalms 105:45]]
+[[Psalms 119:10]]
+[[Psalms 119:17]]
+[[Psalms 119:22]]
+[[Psalms 119:33]]
+[[Psalms 119:34]]
+[[Psalms 119:57]]
+[[Psalms 119:69]]
+[[Psalms 119:88]]
+[[Psalms 119:101]]
+[[Psalms 119:115]]
+[[Psalms 119:146]]
+[[Proverbs 23:26]]
+[[Jeremiah 29:13]]
+[[Ezekiel 36:27]]
+[[John 14:23]]
+[[1 John 3:20]]
+---
+
+"Blessed are they that keep his testimonies, and that seek him with the whole heart."

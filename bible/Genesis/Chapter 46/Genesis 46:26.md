@@ -1,5 +1,0 @@
-[[Genesis 35:11]]
-[[Exodus 1:1]]
-[[Exodus 1:5]]
-[[Deuteronomy 10:22]]
-[[Judges 8:30]]

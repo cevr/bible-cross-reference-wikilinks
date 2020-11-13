@@ -1,5 +1,0 @@
-[[Numbers 32:39]]
-[[Deuteronomy 29:7]]
-[[Joshua 13:29]]
-[[2 Kings 10:33]]
-[[1 Chronicles 5:23]]

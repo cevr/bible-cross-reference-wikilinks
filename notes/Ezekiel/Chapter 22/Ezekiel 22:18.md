@@ -1,0 +1,15 @@
+---
+Links:
+[[Psalms 119:119]]
+[[Proverbs 17:3]]
+[[Isaiah 1:22]]
+[[Isaiah 1:25]]
+[[Isaiah 31:9]]
+[[Isaiah 48:4]]
+[[Isaiah 48:10]]
+[[Jeremiah 6:28]]
+[[Lamentations 4:1]]
+[[Ezekiel 22:20]]
+---
+
+"Son of man, the house of Israel is to me become dross: all they are brass, and tin, and iron, and lead, in the midst of the furnace; they are even the dross of silver."

@@ -1,7 +1,0 @@
-[[Matthew 6:6]]
-[[Matthew 26:36]]
-[[Mark 6:46]]
-[[Luke 6:12]]
-[[Luke 9:28]]
-[[John 6:15]]
-[[Acts 6:4]]

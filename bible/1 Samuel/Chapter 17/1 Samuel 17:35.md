@@ -1,7 +1,0 @@
-[[Judges 14:5]]
-[[2 Samuel 23:20]]
-[[Psalms 91:13]]
-[[Daniel 6:22]]
-[[Amos 3:12]]
-[[Acts 28:4]]
-[[2 Timothy 4:17]]

@@ -1,6 +1,0 @@
-[[Psalms 50:10]]
-[[Jeremiah 27:5]]
-[[Jeremiah 27:6]]
-[[Daniel 4:18]]
-[[Daniel 4:21]]
-[[Daniel 7:4]]

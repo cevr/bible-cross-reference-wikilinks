@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 1:1]]
+[[Genesis 1:14]]
+[[Genesis 19:35]]
+[[Genesis 21:1]]
+[[Exodus 4:31]]
+[[2 Chronicles 6:18]]
+[[Job 7:17]]
+[[Job 25:6]]
+[[Psalms 4:2]]
+[[Psalms 19:2]]
+[[Psalms 80:17]]
+[[Psalms 96:5]]
+[[Psalms 106:4]]
+[[Psalms 136:5]]
+[[Psalms 136:9]]
+[[Psalms 144:3]]
+[[Psalms 146:3]]
+[[Isaiah 40:17]]
+[[Isaiah 51:12]]
+[[Ezekiel 8:15]]
+[[Matthew 8:20]]
+[[Luke 1:68]]
+[[Luke 19:44]]
+[[Hebrews 2:6]]
+[[1 Peter 2:12]]
+---
+
+"What is man, that thou art mindful of him? and the son of man, that thou visitest him?"

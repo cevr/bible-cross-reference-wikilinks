@@ -1,6 +1,0 @@
-[[2 Samuel 9:2]]
-[[2 Samuel 9:10]]
-[[2 Samuel 19:30]]
-[[Psalms 66:3]]
-[[Psalms 81:15]]
-[[Revelation 3:9]]

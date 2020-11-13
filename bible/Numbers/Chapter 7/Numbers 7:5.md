@@ -1,7 +1,0 @@
-[[Exodus 25:1]]
-[[Exodus 35:4]]
-[[Psalms 16:2]]
-[[Isaiah 42:1]]
-[[Isaiah 49:1]]
-[[Ephesians 4:11]]
-[[Titus 3:8]]

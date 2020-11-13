@@ -1,5 +1,0 @@
-[[Isaiah 54:15]]
-[[Isaiah 54:17]]
-[[Haggai 2:22]]
-[[Zechariah 12:2]]
-[[Zechariah 14:2]]

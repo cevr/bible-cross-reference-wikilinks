@@ -1,0 +1,24 @@
+---
+Links:
+[[Proverbs 21:4]]
+[[Haggai 2:13]]
+[[Zechariah 7:5]]
+[[Matthew 15:18]]
+[[Luke 11:39]]
+[[Acts 10:15]]
+[[Romans 14:14]]
+[[Romans 14:20]]
+[[Romans 14:23]]
+[[1 Corinthians 6:12]]
+[[1 Corinthians 8:7]]
+[[1 Corinthians 10:23]]
+[[1 Corinthians 10:25]]
+[[1 Corinthians 10:31]]
+[[1 Corinthians 11:27]]
+[[1 Timothy 4:3]]
+[[1 Timothy 6:5]]
+[[Hebrews 9:14]]
+[[Hebrews 10:22]]
+---
+
+"Unto the pure all things are pure: but unto them that are defiled and unbelieving is nothing pure; but even their mind and conscience is defiled."

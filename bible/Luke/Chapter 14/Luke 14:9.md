@@ -1,6 +1,0 @@
-[[Esther 6:6]]
-[[Proverbs 3:35]]
-[[Proverbs 11:2]]
-[[Proverbs 16:18]]
-[[Ezekiel 28:2]]
-[[Daniel 4:30]]

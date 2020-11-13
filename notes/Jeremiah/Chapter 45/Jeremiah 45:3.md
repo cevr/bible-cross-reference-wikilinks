@@ -1,0 +1,32 @@
+---
+Links:
+[[Genesis 37:34]]
+[[Genesis 42:36]]
+[[Numbers 11:11]]
+[[Joshua 7:7]]
+[[Job 16:11]]
+[[Job 23:2]]
+[[Psalms 6:6]]
+[[Psalms 6:7]]
+[[Psalms 27:13]]
+[[Psalms 42:7]]
+[[Psalms 69:3]]
+[[Psalms 77:3]]
+[[Psalms 120:5]]
+[[Proverbs 24:10]]
+[[Jeremiah 8:18]]
+[[Jeremiah 9:1]]
+[[Jeremiah 15:10]]
+[[Jeremiah 20:7]]
+[[Lamentations 1:13]]
+[[Lamentations 1:22]]
+[[Lamentations 3:1]]
+[[Lamentations 3:32]]
+[[2 Corinthians 4:1]]
+[[2 Corinthians 4:16]]
+[[Galatians 6:9]]
+[[2 Thessalonians 3:13]]
+[[Hebrews 12:3]]
+---
+
+"Thou didst say, Woe is me now! for the LORD hath added grief to my sorrow; I fainted in my sighing, and I find no rest."

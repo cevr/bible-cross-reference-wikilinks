@@ -1,8 +1,0 @@
-[[Leviticus 18:16]]
-[[Numbers 36:8]]
-[[Deuteronomy 25:5]]
-[[Deuteronomy 25:6]]
-[[Ruth 1:11]]
-[[Ruth 4:5]]
-[[Ruth 4:6]]
-[[Matthew 22:23]]

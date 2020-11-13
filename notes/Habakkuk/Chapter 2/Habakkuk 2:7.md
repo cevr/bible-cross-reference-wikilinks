@@ -1,0 +1,23 @@
+---
+Links:
+[[Proverbs 29:1]]
+[[Ecclesiastes 10:8]]
+[[Isaiah 13:1]]
+[[Isaiah 13:16]]
+[[Isaiah 21:2]]
+[[Isaiah 41:25]]
+[[Isaiah 45:1]]
+[[Isaiah 46:11]]
+[[Isaiah 47:11]]
+[[Isaiah 48:14]]
+[[Jeremiah 8:17]]
+[[Jeremiah 50:21]]
+[[Jeremiah 51:11]]
+[[Jeremiah 51:27]]
+[[Jeremiah 51:57]]
+[[Daniel 5:25]]
+[[Nahum 1:9]]
+[[1 Thessalonians 5:3]]
+---
+
+"Shall they not rise up suddenly that shall bite thee, and awake that shall vex thee, and thou shalt be for booties unto them?"

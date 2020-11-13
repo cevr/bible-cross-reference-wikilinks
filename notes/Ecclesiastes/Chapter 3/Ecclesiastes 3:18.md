@@ -1,0 +1,21 @@
+---
+Links:
+[[Genesis 3:17]]
+[[Job 14:1]]
+[[Job 15:16]]
+[[Job 40:8]]
+[[Psalms 49:12]]
+[[Psalms 49:14]]
+[[Psalms 49:19]]
+[[Psalms 51:4]]
+[[Psalms 73:18]]
+[[Psalms 73:22]]
+[[Psalms 90:5]]
+[[Romans 3:4]]
+[[Romans 9:23]]
+[[Hebrews 9:27]]
+[[1 Peter 1:24]]
+[[2 Peter 2:12]]
+---
+
+"I said in mine heart concerning the estate of the sons of men, that God might manifest them, and that they might see that they themselves are beasts."

@@ -1,6 +1,0 @@
-[[1 Samuel 2:32]]
-[[1 Samuel 2:34]]
-[[1 Samuel 3:12]]
-[[Psalms 78:60]]
-[[Psalms 78:64]]
-[[Isaiah 3:11]]

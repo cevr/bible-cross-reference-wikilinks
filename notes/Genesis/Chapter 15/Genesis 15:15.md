@@ -1,0 +1,32 @@
+---
+Links:
+[[Genesis 23:4]]
+[[Genesis 23:19]]
+[[Genesis 25:7]]
+[[Genesis 25:8]]
+[[Genesis 35:29]]
+[[Genesis 49:29]]
+[[Genesis 49:31]]
+[[Genesis 50:13]]
+[[Numbers 20:24]]
+[[Numbers 27:13]]
+[[Judges 2:10]]
+[[1 Chronicles 23:1]]
+[[1 Chronicles 29:28]]
+[[2 Chronicles 34:28]]
+[[Job 5:26]]
+[[Job 41:32]]
+[[Job 42:17]]
+[[Psalms 37:37]]
+[[Ecclesiastes 6:3]]
+[[Ecclesiastes 12:7]]
+[[Isaiah 57:1]]
+[[Jeremiah 8:1]]
+[[Daniel 12:13]]
+[[Matthew 22:32]]
+[[Acts 13:36]]
+[[Hebrews 6:13]]
+[[Hebrews 11:13]]
+---
+
+"And thou shalt go to thy fathers in peace; thou shalt be buried in a good old age."

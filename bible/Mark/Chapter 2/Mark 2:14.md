@@ -1,7 +1,0 @@
-[[Matthew 4:19]]
-[[Matthew 9:9]]
-[[Mark 1:17]]
-[[Mark 3:18]]
-[[Luke 5:27]]
-[[Luke 6:15]]
-[[Acts 1:13]]

@@ -1,5 +1,0 @@
-[[Judges 7:17]]
-[[Judges 9:52]]
-[[Psalms 68:14]]
-[[Psalms 68:15]]
-[[Proverbs 1:11]]

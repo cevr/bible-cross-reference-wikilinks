@@ -1,0 +1,16 @@
+---
+Links:
+[[Psalms 2:6]]
+[[Psalms 3:7]]
+[[Psalms 5:2]]
+[[Psalms 17:6]]
+[[Psalms 24:7]]
+[[Psalms 44:4]]
+[[Psalms 74:12]]
+[[Psalms 118:25]]
+[[Isaiah 40:31]]
+[[Matthew 21:9]]
+[[Matthew 21:15]]
+---
+
+"Save, LORD: let the king hear us when we call."

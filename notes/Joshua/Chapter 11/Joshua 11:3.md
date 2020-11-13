@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 31:49]]
+[[Numbers 13:29]]
+[[Deuteronomy 4:48]]
+[[Deuteronomy 7:1]]
+[[Joshua 3:10]]
+[[Joshua 13:11]]
+[[Joshua 15:38]]
+[[Joshua 15:63]]
+[[Joshua 18:26]]
+[[Judges 3:3]]
+[[Judges 3:5]]
+[[Judges 20:1]]
+[[Judges 21:5]]
+[[Judges 21:8]]
+[[1 Samuel 7:5]]
+[[1 Samuel 10:17]]
+[[2 Samuel 24:16]]
+[[1 Kings 9:20]]
+[[1 Kings 15:22]]
+[[Psalms 89:12]]
+[[Psalms 133:3]]
+[[Songs of Solomon 4:8]]
+[[Jeremiah 40:6]]
+[[Jeremiah 40:10]]
+[[Jeremiah 41:3]]
+[[Jeremiah 41:14]]
+---
+
+"And to the Canaanite on the east and on the west, and to the Amorite, and the Hittite, and the Perizzite, and the Jebusite in the mountains, and to the Hivite under Hermon in the land of Mizpeh."

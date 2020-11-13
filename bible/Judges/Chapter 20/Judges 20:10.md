@@ -1,5 +1,0 @@
-[[Leviticus 18:24]]
-[[Deuteronomy 22:21]]
-[[Joshua 7:15]]
-[[Judges 20:6]]
-[[Judges 21:1]]

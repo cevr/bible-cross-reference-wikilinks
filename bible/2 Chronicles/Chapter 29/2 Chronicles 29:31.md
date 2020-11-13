@@ -1,8 +1,0 @@
-[[Exodus 35:5]]
-[[Exodus 35:22]]
-[[Leviticus 1:1]]
-[[Leviticus 7:11]]
-[[Leviticus 7:12]]
-[[Leviticus 23:38]]
-[[2 Chronicles 13:9]]
-[[Ezra 1:4]]

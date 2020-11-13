@@ -1,7 +1,0 @@
-[[1 Samuel 30:4]]
-[[2 Samuel 1:12]]
-[[2 Samuel 4:12]]
-[[2 Samuel 18:33]]
-[[Job 31:28]]
-[[Proverbs 24:17]]
-[[Luke 19:41]]

@@ -1,0 +1,31 @@
+---
+Links:
+[[Psalms 34:9]]
+[[Psalms 34:10]]
+[[Psalms 34:11]]
+[[Psalms 78:52]]
+[[Psalms 79:13]]
+[[Psalms 84:11]]
+[[Isaiah 40:11]]
+[[Jeremiah 23:3]]
+[[Jeremiah 31:10]]
+[[Ezekiel 34:11]]
+[[Ezekiel 34:14]]
+[[Ezekiel 34:23]]
+[[Micah 5:2]]
+[[Micah 5:4]]
+[[Matthew 6:33]]
+[[Luke 12:30]]
+[[John 10:11]]
+[[John 10:14]]
+[[John 10:27]]
+[[Romans 8:32]]
+[[Philippians 4:19]]
+[[Hebrews 13:5]]
+[[Hebrews 13:20]]
+[[1 Peter 2:25]]
+[[1 Peter 5:4]]
+[[Revelation 7:17]]
+---
+
+"The LORD is my shepherd; I shall not want."

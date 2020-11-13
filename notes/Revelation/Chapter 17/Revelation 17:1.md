@@ -1,0 +1,21 @@
+---
+Links:
+[[Isaiah 1:21]]
+[[Isaiah 57:3]]
+[[Jeremiah 2:20]]
+[[Jeremiah 51:13]]
+[[Nahum 3:4]]
+[[Luke 9:30]]
+[[Luke 24:32]]
+[[Revelation 4:1]]
+[[Revelation 15:1]]
+[[Revelation 15:6]]
+[[Revelation 16:19]]
+[[Revelation 17:1]]
+[[Revelation 18:16]]
+[[Revelation 19:2]]
+[[Revelation 21:9]]
+[[Revelation 21:15]]
+---
+
+"And there came one of the seven angels which had the seven vials, and talked with me, saying unto me, Come hither; I will shew unto thee the judgment of the great whore that sitteth upon many waters:"

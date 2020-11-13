@@ -1,0 +1,20 @@
+---
+Links:
+[[1 Kings 4:22]]
+[[1 Chronicles 27:25]]
+[[1 Chronicles 29:2]]
+[[2 Chronicles 4:18]]
+[[2 Chronicles 26:4]]
+[[Nehemiah 10:39]]
+[[Nehemiah 13:5]]
+[[Job 28:10]]
+[[Proverbs 8:18]]
+[[Proverbs 8:21]]
+[[Proverbs 15:6]]
+[[Proverbs 20:15]]
+[[Proverbs 21:20]]
+[[Proverbs 27:23]]
+[[Matthew 13:52]]
+---
+
+"And by knowledge shall the chambers be filled with all precious and pleasant riches."

@@ -1,6 +1,0 @@
-[[Jeremiah 24:5]]
-[[Jeremiah 29:1]]
-[[Jeremiah 29:2]]
-[[Ezekiel 3:11]]
-[[Ezekiel 3:15]]
-[[Micah 4:10]]

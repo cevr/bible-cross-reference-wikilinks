@@ -1,0 +1,25 @@
+---
+Links:
+[[Matthew 10:23]]
+[[Matthew 24:9]]
+[[Luke 21:17]]
+[[Acts 9:14]]
+[[Acts 22:20]]
+[[1 Thessalonians 5:21]]
+[[1 Timothy 5:8]]
+[[2 Timothy 1:13]]
+[[2 Timothy 2:12]]
+[[Hebrews 3:6]]
+[[Hebrews 10:23]]
+[[James 2:7]]
+[[Jude 1:3]]
+[[Revelation 2:2]]
+[[Revelation 2:9]]
+[[Revelation 2:24]]
+[[Revelation 3:3]]
+[[Revelation 3:8]]
+[[Revelation 3:11]]
+[[Revelation 14:12]]
+---
+
+"I know thy works, and where thou dwellest, even where Satan's seat is: and thou holdest fast my name, and hast not denied my faith, even in those days wherein Antipas was my faithful martyr, who was slain among you, where Satan dwelleth."

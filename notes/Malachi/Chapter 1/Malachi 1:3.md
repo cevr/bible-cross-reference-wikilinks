@@ -1,0 +1,28 @@
+---
+Links:
+[[Genesis 29:30]]
+[[Deuteronomy 21:15]]
+[[Isaiah 13:21]]
+[[Isaiah 34:9]]
+[[Isaiah 34:13]]
+[[Isaiah 34:14]]
+[[Isaiah 35:7]]
+[[Jeremiah 9:11]]
+[[Jeremiah 49:7]]
+[[Jeremiah 49:10]]
+[[Jeremiah 49:16]]
+[[Jeremiah 51:37]]
+[[Ezekiel 25:13]]
+[[Ezekiel 35:3]]
+[[Ezekiel 35:7]]
+[[Ezekiel 36:3]]
+[[Ezekiel 36:7]]
+[[Ezekiel 36:9]]
+[[Ezekiel 36:14]]
+[[Joel 3:19]]
+[[Obadiah 1:10]]
+[[Obadiah 1:18]]
+[[Luke 14:26]]
+---
+
+"And I hated Esau, and laid his mountains and his heritage waste for the dragons of the wilderness."

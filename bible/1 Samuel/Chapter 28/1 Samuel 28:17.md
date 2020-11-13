@@ -1,7 +1,0 @@
-[[1 Samuel 13:13]]
-[[1 Samuel 15:27]]
-[[1 Samuel 15:28]]
-[[1 Samuel 16:13]]
-[[1 Samuel 24:20]]
-[[2 Samuel 3:10]]
-[[Proverbs 16:4]]

@@ -1,0 +1,16 @@
+---
+Links:
+[[1 Chronicles 28:9]]
+[[Job 28:28]]
+[[Psalms 34:12]]
+[[Psalms 111:10]]
+[[Proverbs 1:7]]
+[[Proverbs 2:5]]
+[[Proverbs 30:3]]
+[[Ecclesiastes 12:13]]
+[[Matthew 11:27]]
+[[John 17:3]]
+[[1 John 5:20]]
+---
+
+"The fear of the LORD is the beginning of wisdom: and the knowledge of the holy is understanding."

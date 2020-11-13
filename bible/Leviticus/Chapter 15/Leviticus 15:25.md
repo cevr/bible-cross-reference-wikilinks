@@ -1,5 +1,0 @@
-[[Leviticus 15:19]]
-[[Matthew 9:20]]
-[[Mark 5:25]]
-[[Mark 7:20]]
-[[Luke 8:43]]

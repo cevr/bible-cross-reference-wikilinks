@@ -1,6 +1,0 @@
-[[Exodus 39:28]]
-[[2 Chronicles 26:14]]
-[[Nehemiah 4:16]]
-[[Job 41:26]]
-[[John 19:23]]
-[[Ephesians 4:3]]

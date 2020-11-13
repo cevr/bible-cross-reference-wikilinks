@@ -1,0 +1,32 @@
+---
+Links:
+[[1 Kings 3:9]]
+[[2 Kings 22:16]]
+[[Job 12:17]]
+[[Psalms 2:10]]
+[[Psalms 82:2]]
+[[Psalms 148:11]]
+[[Proverbs 8:16]]
+[[Isaiah 43:28]]
+[[Isaiah 44:26]]
+[[Jeremiah 30:7]]
+[[Jeremiah 39:16]]
+[[Jeremiah 44:2]]
+[[Lamentations 1:12]]
+[[Lamentations 2:13]]
+[[Lamentations 2:17]]
+[[Lamentations 4:6]]
+[[Ezekiel 5:9]]
+[[Ezekiel 13:6]]
+[[Joel 2:2]]
+[[Amos 3:2]]
+[[Zechariah 1:6]]
+[[Zechariah 1:8]]
+[[Matthew 5:18]]
+[[Matthew 24:21]]
+[[Mark 13:19]]
+[[Luke 21:22]]
+[[Romans 15:8]]
+---
+
+"And he hath confirmed his words, which he spake against us, and against our judges that judged us, by bringing upon us a great evil: for under the whole heaven hath not been done as hath been done upon Jerusalem."

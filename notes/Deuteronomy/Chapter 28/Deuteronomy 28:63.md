@@ -1,0 +1,31 @@
+---
+Links:
+[[Deuteronomy 4:27]]
+[[Deuteronomy 7:22]]
+[[Deuteronomy 30:9]]
+[[Proverbs 1:26]]
+[[Isaiah 1:24]]
+[[Isaiah 6:11]]
+[[Isaiah 62:5]]
+[[Jeremiah 12:14]]
+[[Jeremiah 18:7]]
+[[Jeremiah 24:6]]
+[[Jeremiah 31:28]]
+[[Jeremiah 31:40]]
+[[Jeremiah 32:41]]
+[[Jeremiah 42:2]]
+[[Jeremiah 42:10]]
+[[Jeremiah 45:4]]
+[[Lamentations 2:9]]
+[[Ezekiel 5:13]]
+[[Ezekiel 33:11]]
+[[Daniel 7:8]]
+[[Amos 5:3]]
+[[Micah 7:18]]
+[[Zephaniah 3:17]]
+[[Luke 15:6]]
+[[Luke 15:23]]
+[[Luke 15:32]]
+---
+
+"And it shall come to pass, that as the LORD rejoiced over you to do you good, and to multiply you; so the LORD will rejoice over you to destroy you, and to bring you to nought; and ye shall be plucked from off the land whither thou goest to possess it."

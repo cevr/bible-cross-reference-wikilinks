@@ -1,0 +1,14 @@
+---
+Links:
+[[Genesis 17:7]]
+[[Genesis 35:11]]
+[[Exodus 3:17]]
+[[Joshua 24:11]]
+[[2 Samuel 23:5]]
+[[Psalms 78:10]]
+[[Isaiah 55:3]]
+[[Jeremiah 11:2]]
+[[Hebrews 13:20]]
+---
+
+"And hath confirmed the same to Jacob for a law, and to Israel for an everlasting covenant,"

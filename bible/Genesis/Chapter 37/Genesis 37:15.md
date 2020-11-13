@@ -1,8 +1,0 @@
-[[Genesis 21:14]]
-[[Judges 4:22]]
-[[2 Kings 6:19]]
-[[John 1:38]]
-[[John 4:27]]
-[[John 18:4]]
-[[John 18:7]]
-[[John 20:15]]

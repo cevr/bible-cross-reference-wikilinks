@@ -1,8 +1,0 @@
-[[Acts 4:12]]
-[[Romans 8:15]]
-[[1 Corinthians 3:11]]
-[[1 Corinthians 12:4]]
-[[Galatians 1:6]]
-[[Galatians 3:2]]
-[[Ephesians 4:4]]
-[[1 Timothy 2:5]]

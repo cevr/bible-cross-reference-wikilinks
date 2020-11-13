@@ -1,0 +1,31 @@
+---
+Links:
+[[Joshua 10:24]]
+[[2 Samuel 22:39]]
+[[2 Kings 25:9]]
+[[Nehemiah 1:3]]
+[[Nehemiah 2:3]]
+[[Nehemiah 2:13]]
+[[Psalms 44:23]]
+[[Psalms 44:26]]
+[[Psalms 79:1]]
+[[Psalms 102:13]]
+[[Isaiah 10:6]]
+[[Isaiah 25:10]]
+[[Isaiah 61:4]]
+[[Isaiah 63:3]]
+[[Isaiah 64:10]]
+[[Jeremiah 52:13]]
+[[Lamentations 1:10]]
+[[Daniel 8:11]]
+[[Daniel 9:17]]
+[[Daniel 9:27]]
+[[Daniel 11:31]]
+[[Micah 1:3]]
+[[Micah 3:12]]
+[[Mark 11:17]]
+[[Luke 21:24]]
+[[Revelation 11:2]]
+---
+
+"Lift up thy feet unto the perpetual desolations; even all that the enemy hath done wickedly in the sanctuary."

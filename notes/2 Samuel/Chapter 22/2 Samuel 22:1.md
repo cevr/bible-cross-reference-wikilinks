@@ -1,0 +1,25 @@
+---
+Links:
+[[Exodus 15:1]]
+[[Deuteronomy 31:30]]
+[[Judges 5:1]]
+[[1 Samuel 23:14]]
+[[1 Samuel 24:15]]
+[[1 Samuel 25:29]]
+[[1 Samuel 26:24]]
+[[1 Samuel 27:1]]
+[[2 Samuel 12:7]]
+[[2 Samuel 22:49]]
+[[Psalms 18:1]]
+[[Psalms 18:18]]
+[[Psalms 34:19]]
+[[Psalms 50:14]]
+[[Psalms 103:1]]
+[[Psalms 116:1]]
+[[Isaiah 12:1]]
+[[2 Corinthians 1:10]]
+[[2 Timothy 4:18]]
+[[Revelation 7:9]]
+---
+
+"And David spake unto the LORD the words of this song in the day that the LORD had delivered him out of the hand of all his enemies, and out of the hand of Saul:"

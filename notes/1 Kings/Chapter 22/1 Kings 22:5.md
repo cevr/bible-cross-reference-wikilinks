@@ -1,0 +1,25 @@
+---
+Links:
+[[Numbers 27:21]]
+[[Joshua 9:14]]
+[[Judges 1:1]]
+[[Judges 20:18]]
+[[Judges 20:23]]
+[[Judges 20:29]]
+[[1 Samuel 14:18]]
+[[1 Samuel 23:2]]
+[[1 Samuel 23:4]]
+[[1 Samuel 23:9]]
+[[1 Samuel 30:8]]
+[[2 Kings 1:3]]
+[[2 Kings 3:11]]
+[[1 Chronicles 10:13]]
+[[2 Chronicles 18:4]]
+[[Proverbs 3:5]]
+[[Jeremiah 21:2]]
+[[Jeremiah 42:2]]
+[[Ezekiel 14:3]]
+[[Ezekiel 20:1]]
+---
+
+"And Jehoshaphat said unto the king of Israel, Enquire, I pray thee, at the word of the LORD to day."

@@ -1,5 +1,0 @@
-[[Deuteronomy 8:5]]
-[[Psalms 103:13]]
-[[Proverbs 13:24]]
-[[Proverbs 29:17]]
-[[Revelation 3:19]]

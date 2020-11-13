@@ -1,0 +1,20 @@
+---
+Links:
+[[Judges 14:10]]
+[[Psalms 45:10]]
+[[Songs of Solomon 2:6]]
+[[Songs of Solomon 3:10]]
+[[Songs of Solomon 5:8]]
+[[Songs of Solomon 6:1]]
+[[Isaiah 54:5]]
+[[Isaiah 62:5]]
+[[Zephaniah 3:17]]
+[[Matthew 22:2]]
+[[Matthew 25:1]]
+[[John 3:29]]
+[[2 Corinthians 11:2]]
+[[Ephesians 5:25]]
+[[Revelation 19:7]]
+---
+
+"And he said unto them, Can ye make the children of the bridechamber fast, while the bridegroom is with them?"

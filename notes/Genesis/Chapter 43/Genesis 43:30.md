@@ -1,0 +1,21 @@
+---
+Links:
+[[Genesis 42:24]]
+[[Genesis 45:2]]
+[[Genesis 45:14]]
+[[Genesis 46:29]]
+[[1 Kings 3:26]]
+[[Jeremiah 31:20]]
+[[Hosea 11:8]]
+[[John 11:33]]
+[[Acts 20:19]]
+[[Acts 20:31]]
+[[Acts 20:37]]
+[[Philippians 1:8]]
+[[Philippians 2:1]]
+[[Colossians 3:12]]
+[[2 Timothy 1:4]]
+[[1 John 3:17]]
+---
+
+"And Joseph made haste; for his bowels did yearn upon his brother: and he sought where to weep; and he entered into his chamber, and wept there."

@@ -1,7 +1,0 @@
-[[Job 20:6]]
-[[Job 39:27]]
-[[Isaiah 14:12]]
-[[Jeremiah 49:16]]
-[[Jeremiah 51:53]]
-[[Amos 9:2]]
-[[Habakkuk 2:9]]

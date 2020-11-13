@@ -1,7 +1,0 @@
-[[Genesis 32:2]]
-[[Joshua 13:26]]
-[[Joshua 21:38]]
-[[2 Samuel 2:8]]
-[[2 Samuel 17:24]]
-[[2 Samuel 17:27]]
-[[1 Chronicles 27:21]]

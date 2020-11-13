@@ -1,0 +1,15 @@
+---
+Links:
+[[Leviticus 7:11]]
+[[Leviticus 7:15]]
+[[Deuteronomy 12:6]]
+[[2 Samuel 15:7]]
+[[1 Kings 21:9]]
+[[Proverbs 15:8]]
+[[Proverbs 17:1]]
+[[Proverbs 21:27]]
+[[Isaiah 1:13]]
+[[John 18:28]]
+---
+
+"I have peace offerings with me; this day have I payed my vows."

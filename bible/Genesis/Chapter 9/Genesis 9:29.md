@@ -1,6 +1,0 @@
-[[Genesis 5:5]]
-[[Genesis 5:20]]
-[[Genesis 5:27]]
-[[Genesis 5:32]]
-[[Genesis 11:11]]
-[[Psalms 90:10]]

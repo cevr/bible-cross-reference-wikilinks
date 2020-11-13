@@ -1,8 +1,0 @@
-[[Genesis 34:25]]
-[[Genesis 49:7]]
-[[Numbers 22:27]]
-[[1 Samuel 22:18]]
-[[Esther 3:5]]
-[[Proverbs 17:12]]
-[[Daniel 3:19]]
-[[1 John 3:12]]

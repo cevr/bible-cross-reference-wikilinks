@@ -1,0 +1,20 @@
+---
+Links:
+[[Joshua 15:56]]
+[[Joshua 17:16]]
+[[1 Samuel 28:4]]
+[[2 Samuel 2:9]]
+[[1 Kings 1:3]]
+[[1 Kings 2:17]]
+[[1 Kings 2:21]]
+[[1 Kings 21:1]]
+[[1 Kings 21:15]]
+[[2 Kings 4:8]]
+[[2 Kings 4:12]]
+[[2 Kings 8:29]]
+[[2 Kings 9:15]]
+[[2 Kings 9:30]]
+[[Hosea 1:4]]
+---
+
+"And their border was toward Jezreel, and Chesulloth, and Shunem,"

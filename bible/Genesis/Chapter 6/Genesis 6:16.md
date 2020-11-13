@@ -1,7 +1,0 @@
-[[Genesis 7:16]]
-[[Genesis 8:6]]
-[[2 Samuel 6:16]]
-[[2 Kings 9:30]]
-[[Ezekiel 41:16]]
-[[Ezekiel 42:3]]
-[[Luke 13:25]]

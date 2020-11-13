@@ -1,5 +1,0 @@
-[[Proverbs 13:16]]
-[[Proverbs 18:2]]
-[[Proverbs 18:6]]
-[[Ecclesiastes 5:3]]
-[[1 Peter 4:4]]

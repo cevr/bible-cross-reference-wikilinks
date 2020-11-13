@@ -1,6 +1,0 @@
-[[Genesis 37:25]]
-[[Genesis 37:28]]
-[[Genesis 37:36]]
-[[Genesis 45:4]]
-[[Psalms 105:17]]
-[[Acts 7:9]]

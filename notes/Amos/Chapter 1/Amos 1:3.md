@@ -1,0 +1,28 @@
+---
+Links:
+[[1 Kings 19:17]]
+[[2 Kings 8:12]]
+[[2 Kings 10:32]]
+[[2 Kings 13:3]]
+[[2 Kings 13:7]]
+[[Job 5:19]]
+[[Job 19:3]]
+[[Proverbs 6:16]]
+[[Ecclesiastes 11:2]]
+[[Isaiah 7:8]]
+[[Isaiah 8:4]]
+[[Isaiah 17:1]]
+[[Isaiah 41:15]]
+[[Jeremiah 49:23]]
+[[Amos 1:6]]
+[[Amos 1:9]]
+[[Amos 1:11]]
+[[Amos 1:13]]
+[[Amos 2:1]]
+[[Amos 2:4]]
+[[Amos 2:6]]
+[[Zechariah 9:1]]
+[[Zechariah 9:2]]
+---
+
+"Thus saith the LORD; For three transgressions of Damascus, and for four, I will not turn away the punishment thereof; because they have threshed Gilead with threshing instruments of iron:"

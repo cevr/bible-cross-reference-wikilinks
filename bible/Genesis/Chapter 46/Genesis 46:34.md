@@ -1,8 +1,0 @@
-[[Genesis 30:35]]
-[[Genesis 34:5]]
-[[Genesis 37:12]]
-[[Genesis 43:32]]
-[[Genesis 45:10]]
-[[Genesis 46:32]]
-[[Exodus 8:22]]
-[[Exodus 8:26]]

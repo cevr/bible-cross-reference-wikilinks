@@ -1,5 +1,0 @@
-[[Leviticus 5:15]]
-[[Leviticus 5:18]]
-[[Nehemiah 10:35]]
-[[Isaiah 53:10]]
-[[Ezekiel 40:46]]

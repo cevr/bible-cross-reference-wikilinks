@@ -1,6 +1,0 @@
-[[1 Chronicles 29:14]]
-[[Proverbs 15:33]]
-[[Isaiah 64:6]]
-[[Matthew 6:3]]
-[[1 Corinthians 15:10]]
-[[1 Peter 5:5]]

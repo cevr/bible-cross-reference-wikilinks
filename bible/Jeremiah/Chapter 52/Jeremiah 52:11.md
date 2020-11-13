@@ -1,5 +1,0 @@
-[[Jeremiah 21:7]]
-[[Jeremiah 34:3]]
-[[Lamentations 2:6]]
-[[Ezekiel 12:13]]
-[[Ezekiel 23:24]]

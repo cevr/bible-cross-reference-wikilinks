@@ -1,6 +1,0 @@
-[[Ezekiel 44:10]]
-[[Amos 8:4]]
-[[Amos 8:5]]
-[[Amos 8:6]]
-[[Micah 6:10]]
-[[Zephaniah 1:9]]

@@ -1,0 +1,24 @@
+---
+Links:
+[[Genesis 20:11]]
+[[Genesis 22:1]]
+[[Genesis 22:12]]
+[[Exodus 15:25]]
+[[Deuteronomy 4:10]]
+[[Deuteronomy 6:2]]
+[[Deuteronomy 8:2]]
+[[Deuteronomy 8:16]]
+[[Deuteronomy 10:12]]
+[[Deuteronomy 13:3]]
+[[Joshua 24:14]]
+[[1 Samuel 12:20]]
+[[Nehemiah 5:15]]
+[[Job 28:28]]
+[[Proverbs 1:7]]
+[[Proverbs 3:7]]
+[[Proverbs 16:6]]
+[[Isaiah 8:13]]
+[[Isaiah 41:10]]
+---
+
+"And Moses said unto the people, Fear not: for God is come to prove you, and that his fear may be before your faces, that ye sin not."

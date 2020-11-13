@@ -1,6 +1,0 @@
-[[Deuteronomy 1:4]]
-[[Deuteronomy 4:43]]
-[[Joshua 9:10]]
-[[Joshua 20:8]]
-[[Joshua 21:6]]
-[[Joshua 21:27]]

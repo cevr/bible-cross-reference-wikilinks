@@ -1,0 +1,14 @@
+---
+Links:
+[[Zechariah 11:12]]
+[[Matthew 26:15]]
+[[Matthew 27:3]]
+[[Acts 1:18]]
+[[Acts 8:20]]
+[[1 Timothy 6:9]]
+[[2 Peter 2:3]]
+[[2 Peter 2:15]]
+[[Jude 1:11]]
+---
+
+"And they were glad, and covenanted to give him money."

@@ -1,5 +1,0 @@
-[[Numbers 25:1]]
-[[Psalms 106:29]]
-[[1 Corinthians 6:9]]
-[[1 Corinthians 6:18]]
-[[Revelation 2:14]]

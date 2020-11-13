@@ -1,0 +1,30 @@
+---
+Links:
+[[Leviticus 18:4]]
+[[Leviticus 18:26]]
+[[Leviticus 18:30]]
+[[Job 29:16]]
+[[Psalms 119:3]]
+[[Proverbs 14:31]]
+[[Proverbs 29:7]]
+[[Proverbs 29:14]]
+[[Jeremiah 16:11]]
+[[Jeremiah 16:19]]
+[[Jeremiah 22:16]]
+[[Ezekiel 3:21]]
+[[Ezekiel 18:8]]
+[[Ezekiel 18:13]]
+[[Ezekiel 18:19]]
+[[Ezekiel 18:28]]
+[[Ezekiel 20:18]]
+[[Ezekiel 20:30]]
+[[Ezekiel 33:13]]
+[[Ezekiel 33:15]]
+[[Daniel 4:27]]
+[[Malachi 3:7]]
+[[Matthew 18:27]]
+[[Matthew 23:29]]
+[[Luke 19:8]]
+---
+
+"That hath taken off his hand from the poor, that hath not received usury nor increase, hath executed my judgments, hath walked in my statutes; he shall not die for the iniquity of his father, he shall surely live."

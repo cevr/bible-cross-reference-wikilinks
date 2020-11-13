@@ -1,0 +1,16 @@
+---
+Links:
+[[Psalms 13:1]]
+[[Psalms 22:1]]
+[[Psalms 31:22]]
+[[Psalms 77:6]]
+[[Psalms 89:38]]
+[[Isaiah 40:27]]
+[[Isaiah 54:6]]
+[[Jeremiah 23:39]]
+[[Jeremiah 31:3]]
+[[Lamentations 5:20]]
+[[Romans 11:1]]
+---
+
+"But Zion said, The LORD hath forsaken me, and my Lord hath forgotten me."

@@ -1,0 +1,28 @@
+---
+Links:
+[[Genesis 15:18]]
+[[Genesis 28:14]]
+[[Genesis 31:30]]
+[[Exodus 23:31]]
+[[Exodus 34:24]]
+[[Numbers 11:4]]
+[[Numbers 11:20]]
+[[Numbers 11:34]]
+[[Deuteronomy 11:24]]
+[[Deuteronomy 12:15]]
+[[Deuteronomy 19:8]]
+[[2 Samuel 13:39]]
+[[2 Samuel 23:15]]
+[[1 Chronicles 4:10]]
+[[Psalms 63:1]]
+[[Psalms 84:2]]
+[[Psalms 107:9]]
+[[Psalms 119:20]]
+[[Psalms 119:40]]
+[[Psalms 119:174]]
+[[2 Corinthians 9:14]]
+[[Philippians 1:8]]
+[[Philippians 2:26]]
+---
+
+"When the LORD thy God shall enlarge thy border, as he hath promised thee, and thou shalt say, I will eat flesh, because thy soul longeth to eat flesh; thou mayest eat flesh, whatsoever thy soul lusteth after."

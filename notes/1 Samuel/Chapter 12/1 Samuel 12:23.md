@@ -1,0 +1,24 @@
+---
+Links:
+[[1 Samuel 8:6]]
+[[1 Kings 8:36]]
+[[2 Chronicles 6:27]]
+[[Psalms 34:11]]
+[[Psalms 34:12]]
+[[Psalms 122:6]]
+[[Proverbs 4:11]]
+[[Ecclesiastes 12:10]]
+[[Isaiah 30:21]]
+[[Jeremiah 6:16]]
+[[Jeremiah 15:1]]
+[[Jeremiah 42:4]]
+[[Acts 12:5]]
+[[Acts 20:20]]
+[[Romans 1:9]]
+[[Colossians 1:9]]
+[[Colossians 1:28]]
+[[1 Thessalonians 3:10]]
+[[2 Timothy 1:3]]
+---
+
+"Moreover as for me, God forbid that I should sin against the LORD in ceasing to pray for you: but I will teach you the good and the right way:"

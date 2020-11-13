@@ -1,6 +1,0 @@
-[[Deuteronomy 3:18]]
-[[Psalms 5:6]]
-[[Psalms 9:12]]
-[[Proverbs 28:17]]
-[[Isaiah 26:21]]
-[[Acts 28:4]]

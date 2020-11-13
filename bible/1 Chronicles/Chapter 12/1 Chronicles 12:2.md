@@ -1,5 +1,0 @@
-[[Judges 3:15]]
-[[Judges 20:16]]
-[[1 Samuel 17:49]]
-[[1 Chronicles 8:40]]
-[[1 Chronicles 12:29]]

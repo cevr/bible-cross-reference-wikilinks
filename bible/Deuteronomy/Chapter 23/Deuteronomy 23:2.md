@@ -1,6 +1,0 @@
-[[Leviticus 21:20]]
-[[Isaiah 56:3]]
-[[Isaiah 57:3]]
-[[Zechariah 9:6]]
-[[John 8:41]]
-[[Hebrews 12:8]]

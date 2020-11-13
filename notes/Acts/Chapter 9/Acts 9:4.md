@@ -1,0 +1,25 @@
+---
+Links:
+[[Genesis 3:9]]
+[[Genesis 16:8]]
+[[Genesis 22:11]]
+[[Exodus 3:4]]
+[[Numbers 16:45]]
+[[Isaiah 63:9]]
+[[Zechariah 2:8]]
+[[Matthew 25:40]]
+[[Matthew 25:45]]
+[[Luke 10:41]]
+[[John 18:6]]
+[[John 20:16]]
+[[John 21:15]]
+[[Acts 5:10]]
+[[Acts 22:7]]
+[[Acts 26:14]]
+[[Romans 11:22]]
+[[1 Corinthians 4:7]]
+[[1 Corinthians 12:12]]
+[[Ephesians 5:30]]
+---
+
+"And he fell to the earth, and heard a voice saying unto him, Saul, Saul, why persecutest thou me?"

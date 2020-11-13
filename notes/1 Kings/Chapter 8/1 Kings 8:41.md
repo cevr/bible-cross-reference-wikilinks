@@ -1,0 +1,28 @@
+---
+Links:
+[[Exodus 18:8]]
+[[Numbers 15:16]]
+[[Numbers 15:29]]
+[[Ruth 1:16]]
+[[Ruth 2:11]]
+[[1 Kings 10:1]]
+[[2 Kings 5:1]]
+[[2 Kings 5:16]]
+[[2 Chronicles 6:32]]
+[[Isaiah 56:3]]
+[[Isaiah 56:6]]
+[[Isaiah 56:7]]
+[[Isaiah 60:1]]
+[[Jeremiah 3:17]]
+[[Matthew 2:1]]
+[[Matthew 8:5]]
+[[Matthew 8:10]]
+[[Matthew 12:42]]
+[[Matthew 15:22]]
+[[Luke 17:18]]
+[[John 12:20]]
+[[Acts 8:27]]
+[[Acts 10:1]]
+---
+
+"Moreover concerning a stranger, that is not of thy people Israel, but cometh out of a far country for thy name's sake;"

@@ -1,7 +1,0 @@
-[[Deuteronomy 21:20]]
-[[Proverbs 4:10]]
-[[Proverbs 4:26]]
-[[Proverbs 6:6]]
-[[Proverbs 9:6]]
-[[Proverbs 23:12]]
-[[Proverbs 23:26]]

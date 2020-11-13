@@ -1,5 +1,0 @@
-[[Proverbs 19:25]]
-[[Proverbs 22:15]]
-[[Isaiah 27:9]]
-[[Isaiah 53:5]]
-[[Hebrews 12:10]]

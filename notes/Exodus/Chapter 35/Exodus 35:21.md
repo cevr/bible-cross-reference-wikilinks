@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 25:2]]
+[[Exodus 35:5]]
+[[Exodus 35:22]]
+[[Exodus 35:26]]
+[[Exodus 35:29]]
+[[Exodus 36:2]]
+[[Judges 5:3]]
+[[Judges 5:9]]
+[[Judges 5:12]]
+[[2 Samuel 7:27]]
+[[1 Chronicles 28:2]]
+[[1 Chronicles 28:9]]
+[[1 Chronicles 29:3]]
+[[1 Chronicles 29:5]]
+[[1 Chronicles 29:8]]
+[[1 Chronicles 29:9]]
+[[1 Chronicles 29:14]]
+[[1 Chronicles 29:17]]
+[[Ezra 1:5]]
+[[Ezra 2:68]]
+[[Ezra 7:27]]
+[[Psalms 110:3]]
+[[Proverbs 4:23]]
+[[Jeremiah 30:21]]
+[[Matthew 12:34]]
+[[2 Corinthians 8:12]]
+[[2 Corinthians 9:7]]
+---
+
+"And they came, every one whose heart stirred him up, and every one whom his spirit made willing, and they brought the LORD'S offering to the work of the tabernacle of the congregation, and for all his service, and for the holy garments."

@@ -1,5 +1,0 @@
-[[Numbers 1:16]]
-[[Numbers 16:1]]
-[[Numbers 16:2]]
-[[Psalms 106:17]]
-[[Jude 1:11]]

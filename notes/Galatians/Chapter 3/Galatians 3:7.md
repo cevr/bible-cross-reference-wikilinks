@@ -1,0 +1,15 @@
+---
+Links:
+[[Psalms 100:3]]
+[[Luke 19:9]]
+[[Luke 21:31]]
+[[John 8:39]]
+[[Romans 4:11]]
+[[Romans 4:24]]
+[[Romans 9:7]]
+[[Galatians 3:9]]
+[[Galatians 3:26]]
+[[Hebrews 13:23]]
+---
+
+"Know ye therefore that they which are of faith, the same are the children of Abraham."

@@ -1,7 +1,0 @@
-[[Leviticus 26:36]]
-[[Numbers 13:33]]
-[[Deuteronomy 32:30]]
-[[1 Samuel 13:6]]
-[[1 Samuel 17:11]]
-[[Isaiah 7:2]]
-[[Isaiah 30:17]]

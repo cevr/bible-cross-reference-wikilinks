@@ -1,7 +1,0 @@
-[[Genesis 1:10]]
-[[Genesis 1:12]]
-[[Genesis 1:18]]
-[[Genesis 1:25]]
-[[Genesis 1:31]]
-[[Ecclesiastes 2:13]]
-[[Ecclesiastes 11:7]]

@@ -1,5 +1,0 @@
-[[Exodus 25:29]]
-[[1 Kings 7:50]]
-[[2 Kings 12:13]]
-[[Jeremiah 52:18]]
-[[2 Timothy 2:20]]

@@ -1,7 +1,0 @@
-[[Genesis 17:23]]
-[[Genesis 23:10]]
-[[Genesis 23:18]]
-[[Isaiah 1:10]]
-[[Matthew 7:6]]
-[[Romans 2:28]]
-[[1 Corinthians 7:19]]

@@ -1,0 +1,12 @@
+---
+Links:
+[[Numbers 13:23]]
+[[Joshua 19:41]]
+[[Judges 13:2]]
+[[Judges 13:25]]
+[[Judges 16:31]]
+[[1 Chronicles 2:53]]
+[[2 Chronicles 11:10]]
+---
+
+"And in the valley, Eshtaol, and Zoreah, and Ashnah,"

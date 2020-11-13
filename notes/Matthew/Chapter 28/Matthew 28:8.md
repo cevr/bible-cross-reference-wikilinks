@@ -1,0 +1,12 @@
+---
+Links:
+[[Ezra 3:12]]
+[[Psalms 2:11]]
+[[Mark 16:8]]
+[[Luke 24:36]]
+[[John 16:20]]
+[[John 16:22]]
+[[John 20:20]]
+---
+
+"And they departed quickly from the sepulchre with fear and great joy; and did run to bring his disciples word."

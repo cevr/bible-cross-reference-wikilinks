@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 4:26]]
+[[Genesis 8:20]]
+[[Genesis 13:4]]
+[[Genesis 21:33]]
+[[Genesis 26:25]]
+[[Genesis 28:19]]
+[[Genesis 31:25]]
+[[Genesis 33:20]]
+[[Genesis 35:3]]
+[[Genesis 35:7]]
+[[Genesis 35:15]]
+[[Exodus 17:15]]
+[[Joshua 7:2]]
+[[Joshua 8:3]]
+[[Joshua 8:17]]
+[[Joshua 8:30]]
+[[Joshua 18:22]]
+[[Joshua 22:10]]
+[[Judges 6:24]]
+[[Nehemiah 11:31]]
+[[Psalms 116:4]]
+[[Isaiah 10:28]]
+[[Joel 2:32]]
+[[Acts 2:21]]
+[[Romans 10:12]]
+[[1 Corinthians 1:2]]
+---
+
+"And he removed from thence unto a mountain on the east of Beth-el, and pitched his tent, having Beth-el on the west, and Hai on the east: and there he builded an altar unto the LORD, and called upon the name of the LORD."

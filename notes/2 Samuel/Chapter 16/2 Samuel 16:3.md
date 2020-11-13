@@ -1,0 +1,18 @@
+---
+Links:
+[[Exodus 20:16]]
+[[Deuteronomy 19:18]]
+[[2 Samuel 9:9]]
+[[2 Samuel 19:24]]
+[[2 Samuel 19:28]]
+[[Psalms 15:3]]
+[[Psalms 88:18]]
+[[Psalms 101:5]]
+[[Proverbs 1:19]]
+[[Proverbs 21:28]]
+[[Micah 7:5]]
+[[1 Timothy 6:9]]
+[[Jude 1:11]]
+---
+
+"And the king said, And where is thy master's son? And Ziba said unto the king, Behold, he abideth at Jerusalem: for he said, To day shall the house of Israel restore me the kingdom of my father."

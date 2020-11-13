@@ -1,0 +1,29 @@
+---
+Links:
+[[Exodus 18:21]]
+[[Exodus 23:8]]
+[[Deuteronomy 7:26]]
+[[Deuteronomy 16:19]]
+[[Joshua 6:18]]
+[[Joshua 7:11]]
+[[Joshua 7:24]]
+[[Joshua 7:25]]
+[[1 Samuel 8:3]]
+[[1 Kings 2:40]]
+[[2 Kings 5:27]]
+[[Psalms 15:5]]
+[[Proverbs 1:19]]
+[[Proverbs 11:19]]
+[[Proverbs 11:29]]
+[[Proverbs 20:21]]
+[[Proverbs 28:16]]
+[[Proverbs 29:4]]
+[[Isaiah 5:8]]
+[[Isaiah 5:9]]
+[[Isaiah 33:15]]
+[[Jeremiah 17:11]]
+[[Habakkuk 2:9]]
+[[Zechariah 5:3]]
+---
+
+"He that is greedy of gain troubleth his own house; but he that hateth gifts shall live."

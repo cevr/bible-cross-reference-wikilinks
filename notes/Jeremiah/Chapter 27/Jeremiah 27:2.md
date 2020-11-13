@@ -1,0 +1,21 @@
+---
+Links:
+[[1 Kings 11:30]]
+[[1 Kings 22:11]]
+[[Isaiah 20:2]]
+[[Jeremiah 13:1]]
+[[Jeremiah 18:2]]
+[[Jeremiah 19:1]]
+[[Jeremiah 25:21]]
+[[Jeremiah 27:12]]
+[[Jeremiah 28:10]]
+[[Jeremiah 28:12]]
+[[Ezekiel 4:1]]
+[[Ezekiel 12:1]]
+[[Ezekiel 12:3]]
+[[Ezekiel 24:3]]
+[[Amos 7:1]]
+[[Amos 7:4]]
+---
+
+"Thus saith the LORD to me; Make thee bonds and yokes, and put them upon thy neck,"

@@ -1,7 +1,0 @@
-[[Ezekiel 7:9]]
-[[Ezekiel 20:8]]
-[[Ezekiel 20:33]]
-[[Ezekiel 22:16]]
-[[Ezekiel 22:31]]
-[[Hosea 5:10]]
-[[Revelation 16:1]]

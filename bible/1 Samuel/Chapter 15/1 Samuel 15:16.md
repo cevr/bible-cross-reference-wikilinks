@@ -1,5 +1,0 @@
-[[1 Samuel 9:27]]
-[[1 Samuel 12:7]]
-[[1 Kings 14:6]]
-[[1 Kings 22:16]]
-[[Jeremiah 34:6]]

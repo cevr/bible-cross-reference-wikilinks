@@ -1,0 +1,32 @@
+---
+Links:
+[[2 Samuel 11:27]]
+[[2 Kings 17:9]]
+[[Job 22:13]]
+[[Job 24:13]]
+[[Job 34:22]]
+[[Psalms 10:11]]
+[[Psalms 59:7]]
+[[Psalms 64:5]]
+[[Psalms 73:11]]
+[[Psalms 94:7]]
+[[Psalms 139:1]]
+[[Isaiah 5:18]]
+[[Isaiah 28:15]]
+[[Isaiah 28:17]]
+[[Isaiah 30:1]]
+[[Isaiah 47:10]]
+[[Isaiah 57:12]]
+[[Jeremiah 23:24]]
+[[Ezekiel 8:12]]
+[[Ezekiel 9:9]]
+[[Zephaniah 1:12]]
+[[Malachi 2:17]]
+[[Luke 12:1]]
+[[John 3:19]]
+[[1 Corinthians 4:5]]
+[[2 Corinthians 4:2]]
+[[Revelation 2:23]]
+---
+
+"Woe unto them that seek deep to hide their counsel from the LORD, and their works are in the dark, and they say, Who seeth us? and who knoweth us?"

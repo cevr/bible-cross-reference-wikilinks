@@ -1,0 +1,14 @@
+---
+Links:
+[[1 Samuel 25:26]]
+[[2 Samuel 2:14]]
+[[Job 27:2]]
+[[Proverbs 15:1]]
+[[Proverbs 17:14]]
+[[Proverbs 20:18]]
+[[Proverbs 25:8]]
+[[Isaiah 47:7]]
+[[Luke 14:31]]
+---
+
+"And Joab said, As God liveth, unless thou hadst spoken, surely then in the morning the people had gone up every one from following his brother."

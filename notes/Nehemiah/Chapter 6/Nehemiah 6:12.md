@@ -1,0 +1,23 @@
+---
+Links:
+[[Isaiah 56:11]]
+[[Jeremiah 14:14]]
+[[Jeremiah 23:16]]
+[[Jeremiah 23:25]]
+[[Jeremiah 28:15]]
+[[Ezekiel 13:7]]
+[[Ezekiel 13:19]]
+[[Ezekiel 13:22]]
+[[Micah 3:11]]
+[[Acts 20:33]]
+[[1 Corinthians 2:15]]
+[[1 Corinthians 12:10]]
+[[1 Timothy 3:3]]
+[[Titus 1:7]]
+[[1 Peter 5:2]]
+[[2 Peter 2:3]]
+[[1 John 4:1]]
+[[Revelation 18:13]]
+---
+
+"And, lo, I perceived that God had not sent him; but that he pronounced this prophecy against me: for Tobiah and Sanballat had hired him."

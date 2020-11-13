@@ -1,5 +1,0 @@
-[[Psalms 55:6]]
-[[Proverbs 6:4]]
-[[Matthew 24:16]]
-[[Mark 13:14]]
-[[Luke 17:31]]

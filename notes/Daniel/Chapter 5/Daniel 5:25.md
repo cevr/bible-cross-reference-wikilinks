@@ -1,0 +1,13 @@
+---
+Links:
+[[1 Samuel 28:19]]
+[[2 Chronicles 21:12]]
+[[Isaiah 14:11]]
+[[Isaiah 47:11]]
+[[Jeremiah 27:7]]
+[[Habakkuk 2:7]]
+[[Luke 1:51]]
+[[Luke 12:20]]
+---
+
+"And this is the writing that was written, MENE, MENE, TEKEL, UPHARSIN."

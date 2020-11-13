@@ -1,0 +1,27 @@
+---
+Links:
+[[Judges 5:30]]
+[[Job 10:21]]
+[[Psalms 4:8]]
+[[Psalms 23:4]]
+[[Psalms 107:10]]
+[[Psalms 107:14]]
+[[Isaiah 9:1]]
+[[Isaiah 50:10]]
+[[Isaiah 60:1]]
+[[Isaiah 60:19]]
+[[Amos 5:8]]
+[[Micah 7:8]]
+[[Matthew 4:16]]
+[[Luke 1:78]]
+[[Luke 2:32]]
+[[John 8:12]]
+[[John 12:35]]
+[[John 12:46]]
+[[Ephesians 5:8]]
+[[Ephesians 5:13]]
+[[1 Peter 2:9]]
+[[1 John 1:5]]
+---
+
+"The people that walked in darkness have seen a great light: they that dwell in the land of the shadow of death, upon them hath the light shined."

@@ -1,5 +1,0 @@
-[[Exodus 16:5]]
-[[Exodus 16:16]]
-[[Exodus 34:31]]
-[[Leviticus 25:12]]
-[[Leviticus 25:22]]

@@ -1,5 +1,0 @@
-[[1 Chronicles 23:28]]
-[[1 Chronicles 25:1]]
-[[1 Chronicles 25:25]]
-[[1 Chronicles 26:26]]
-[[2 Chronicles 23:6]]

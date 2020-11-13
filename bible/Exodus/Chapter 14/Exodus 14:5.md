@@ -1,6 +1,0 @@
-[[Genesis 31:22]]
-[[Exodus 12:33]]
-[[Psalms 105:25]]
-[[Jeremiah 34:10]]
-[[Luke 11:24]]
-[[2 Peter 2:20]]

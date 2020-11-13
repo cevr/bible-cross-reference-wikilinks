@@ -1,8 +1,0 @@
-[[Leviticus 26:14]]
-[[Deuteronomy 28:15]]
-[[Deuteronomy 29:19]]
-[[Isaiah 1:20]]
-[[Isaiah 3:11]]
-[[Matthew 25:41]]
-[[Romans 2:8]]
-[[Galatians 3:10]]

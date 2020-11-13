@@ -1,0 +1,27 @@
+---
+Links:
+[[Exodus 25:8]]
+[[Deuteronomy 4:29]]
+[[Deuteronomy 32:46]]
+[[1 Kings 5:3]]
+[[1 Kings 8:6]]
+[[1 Kings 8:21]]
+[[1 Chronicles 16:10]]
+[[1 Chronicles 16:11]]
+[[1 Chronicles 22:7]]
+[[1 Chronicles 22:16]]
+[[1 Chronicles 28:9]]
+[[2 Chronicles 5:7]]
+[[2 Chronicles 6:11]]
+[[2 Chronicles 20:3]]
+[[Psalms 27:4]]
+[[Psalms 119:2]]
+[[Isaiah 60:1]]
+[[Daniel 9:3]]
+[[Haggai 1:5]]
+[[Haggai 1:8]]
+[[Acts 11:23]]
+[[Acts 22:16]]
+---
+
+"Now set your heart and your soul to seek the LORD your God; arise therefore, and build ye the sanctuary of the LORD God, to bring the ark of the covenant of the LORD, and the holy vessels of God, into the house that is to be built to the name of the LORD."

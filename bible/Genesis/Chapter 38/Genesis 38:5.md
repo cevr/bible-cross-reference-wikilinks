@@ -1,7 +1,0 @@
-[[Genesis 38:11]]
-[[Genesis 38:26]]
-[[Genesis 46:12]]
-[[Numbers 26:19]]
-[[Numbers 26:20]]
-[[1 Chronicles 2:3]]
-[[1 Chronicles 4:21]]

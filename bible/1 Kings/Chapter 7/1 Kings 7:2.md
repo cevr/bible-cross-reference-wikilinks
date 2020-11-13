@@ -1,5 +1,0 @@
-[[1 Kings 9:19]]
-[[1 Kings 10:17]]
-[[1 Kings 10:21]]
-[[2 Chronicles 9:16]]
-[[Songs of Solomon 7:4]]

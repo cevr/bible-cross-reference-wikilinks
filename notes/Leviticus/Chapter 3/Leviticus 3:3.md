@@ -1,0 +1,26 @@
+---
+Links:
+[[Exodus 29:13]]
+[[Exodus 29:22]]
+[[Leviticus 3:16]]
+[[Leviticus 4:8]]
+[[Leviticus 4:10]]
+[[Leviticus 7:3]]
+[[Leviticus 7:5]]
+[[Leviticus 7:30]]
+[[Leviticus 9:10]]
+[[Leviticus 16:25]]
+[[Deuteronomy 30:6]]
+[[1 Samuel 2:15]]
+[[Psalms 119:70]]
+[[Proverbs 23:26]]
+[[Isaiah 6:10]]
+[[Ezekiel 36:26]]
+[[Ezekiel 44:15]]
+[[Matthew 13:16]]
+[[Matthew 15:8]]
+[[Romans 5:5]]
+[[Romans 6:6]]
+---
+
+"And he shall offer of the sacrifice of the peace offering an offering made by fire unto the LORD; the fat that covereth the inwards, and all the fat that is upon the inwards,"

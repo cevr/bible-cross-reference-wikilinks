@@ -1,5 +1,0 @@
-[[Leviticus 27:2]]
-[[Job 11:2]]
-[[Proverbs 10:19]]
-[[Proverbs 15:2]]
-[[Ecclesiastes 10:12]]

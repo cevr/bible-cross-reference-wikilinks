@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 11:4]]
+[[Genesis 28:12]]
+[[2 Samuel 12:7]]
+[[2 Chronicles 28:9]]
+[[Psalms 36:5]]
+[[Psalms 108:4]]
+[[Jeremiah 27:5]]
+[[Jeremiah 27:6]]
+[[Daniel 2:21]]
+[[Daniel 2:37]]
+[[Daniel 4:29]]
+[[Daniel 5:18]]
+[[Daniel 5:21]]
+[[Matthew 14:4]]
+[[Revelation 18:5]]
+---
+
+"It is thou, O king, that art grown and become strong: for thy greatness is grown, and reacheth unto heaven, and thy dominion to the end of the earth."

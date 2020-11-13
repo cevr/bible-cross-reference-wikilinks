@@ -1,8 +1,0 @@
-[[Genesis 1:20]]
-[[Exodus 12:22]]
-[[Numbers 19:18]]
-[[Numbers 24:6]]
-[[2 Kings 19:23]]
-[[Psalms 51:7]]
-[[Psalms 92:12]]
-[[Hebrews 9:19]]

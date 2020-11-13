@@ -1,5 +1,0 @@
-[[Luke 12:37]]
-[[Luke 17:7]]
-[[Luke 22:27]]
-[[2 Corinthians 8:9]]
-[[Philippians 2:6]]

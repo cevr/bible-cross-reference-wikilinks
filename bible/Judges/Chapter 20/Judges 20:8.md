@@ -1,6 +1,0 @@
-[[Judges 20:1]]
-[[Judges 20:11]]
-[[Judges 21:1]]
-[[Judges 21:5]]
-[[Proverbs 21:3]]
-[[Ecclesiastes 9:10]]

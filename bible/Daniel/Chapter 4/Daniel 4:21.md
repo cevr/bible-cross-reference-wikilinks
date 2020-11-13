@@ -1,6 +1,0 @@
-[[Psalms 104:17]]
-[[Ezekiel 17:23]]
-[[Ezekiel 31:6]]
-[[Daniel 2:38]]
-[[Daniel 4:11]]
-[[Luke 13:19]]

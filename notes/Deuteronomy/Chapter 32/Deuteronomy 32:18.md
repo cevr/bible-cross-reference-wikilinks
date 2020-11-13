@@ -1,0 +1,21 @@
+---
+Links:
+[[Deuteronomy 6:12]]
+[[Deuteronomy 8:11]]
+[[Deuteronomy 8:14]]
+[[Deuteronomy 8:19]]
+[[Deuteronomy 32:4]]
+[[Deuteronomy 32:15]]
+[[Psalms 9:17]]
+[[Psalms 44:20]]
+[[Psalms 106:21]]
+[[Isaiah 17:10]]
+[[Isaiah 22:10]]
+[[Jeremiah 2:31]]
+[[Jeremiah 2:32]]
+[[Jeremiah 3:21]]
+[[Ezekiel 22:12]]
+[[Hosea 8:14]]
+---
+
+"Of the Rock that begat thee thou art unmindful, and hast forgotten God that formed thee."

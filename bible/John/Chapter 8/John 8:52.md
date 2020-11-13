@@ -1,6 +1,0 @@
-[[Zechariah 1:5]]
-[[John 8:48]]
-[[John 8:51]]
-[[John 9:24]]
-[[Hebrews 2:9]]
-[[Hebrews 11:13]]

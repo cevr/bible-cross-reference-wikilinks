@@ -1,6 +1,0 @@
-[[Numbers 22:12]]
-[[Numbers 23:20]]
-[[Numbers 23:23]]
-[[Proverbs 26:2]]
-[[Isaiah 44:25]]
-[[Isaiah 47:12]]

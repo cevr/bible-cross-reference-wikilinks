@@ -1,0 +1,21 @@
+---
+Links:
+[[Deuteronomy 3:14]]
+[[Joshua 13:13]]
+[[1 Samuel 25:3]]
+[[1 Samuel 25:42]]
+[[1 Samuel 27:8]]
+[[2 Samuel 2:2]]
+[[2 Samuel 13:1]]
+[[2 Samuel 13:20]]
+[[2 Samuel 13:37]]
+[[2 Samuel 13:38]]
+[[2 Samuel 14:23]]
+[[2 Samuel 14:24]]
+[[2 Samuel 17:1]]
+[[2 Samuel 18:9]]
+[[2 Samuel 18:33]]
+[[1 Chronicles 3:1]]
+---
+
+"And his second, Chileab, of Abigail the wife of Nabal the Carmelite; and the third, Absalom the son of Maacah the daughter of Talmai king of Geshur;"

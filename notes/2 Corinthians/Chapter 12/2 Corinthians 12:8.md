@@ -1,0 +1,14 @@
+---
+Links:
+[[Leviticus 13:58]]
+[[Deuteronomy 3:23]]
+[[1 Samuel 15:11]]
+[[2 Samuel 12:16]]
+[[Psalms 77:2]]
+[[Matthew 20:21]]
+[[Matthew 26:39]]
+[[Acts 11:10]]
+[[Hebrews 5:7]]
+---
+
+"For this thing I besought the Lord thrice, that it might depart from me."

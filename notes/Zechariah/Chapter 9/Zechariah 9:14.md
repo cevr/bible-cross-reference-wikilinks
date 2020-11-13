@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 14:24]]
+[[Joshua 6:4]]
+[[Joshua 10:11]]
+[[Joshua 10:42]]
+[[Job 37:9]]
+[[Psalms 18:14]]
+[[Psalms 18:15]]
+[[Psalms 45:3]]
+[[Psalms 77:17]]
+[[Psalms 144:5]]
+[[Isaiah 18:3]]
+[[Isaiah 21:1]]
+[[Isaiah 27:13]]
+[[Isaiah 30:30]]
+[[Isaiah 31:5]]
+[[Isaiah 66:15]]
+[[Habakkuk 3:11]]
+[[Zechariah 2:5]]
+[[Zechariah 12:8]]
+[[Zechariah 14:3]]
+[[Matthew 28:20]]
+[[Acts 4:10]]
+[[Romans 15:19]]
+[[2 Corinthians 10:4]]
+[[Hebrews 2:4]]
+[[Revelation 6:2]]
+---
+
+"And the LORD shall be seen over them, and his arrow shall go forth as the lightning: and the Lord GOD shall blow the trumpet, and shall go with whirlwinds of the south."

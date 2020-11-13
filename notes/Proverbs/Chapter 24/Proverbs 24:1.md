@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 13:10]]
+[[Genesis 19:1]]
+[[Psalms 26:9]]
+[[Psalms 37:1]]
+[[Psalms 37:7]]
+[[Psalms 73:3]]
+[[Proverbs 1:11]]
+[[Proverbs 3:31]]
+[[Proverbs 4:14]]
+[[Proverbs 4:15]]
+[[Proverbs 13:20]]
+[[Proverbs 23:17]]
+[[Proverbs 24:19]]
+[[Galatians 5:19]]
+[[James 4:5]]
+---
+
+"Be not thou envious against evil men, neither desire to be with them."

@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 2:23]]
+[[Exodus 3:7]]
+[[Exodus 5:2]]
+[[Judges 10:16]]
+[[Job 5:15]]
+[[Job 5:21]]
+[[Psalms 10:5]]
+[[Psalms 10:12]]
+[[Psalms 10:18]]
+[[Psalms 31:19]]
+[[Psalms 34:6]]
+[[Psalms 73:8]]
+[[Psalms 74:21]]
+[[Psalms 79:10]]
+[[Psalms 146:7]]
+[[Proverbs 14:31]]
+[[Proverbs 18:21]]
+[[Proverbs 22:22]]
+[[Ecclesiastes 4:1]]
+[[Ecclesiastes 5:8]]
+[[Isaiah 19:20]]
+[[Isaiah 33:10]]
+[[Ezekiel 18:12]]
+[[Ezekiel 18:18]]
+[[Hosea 7:16]]
+[[Micah 7:8]]
+[[James 5:4]]
+---
+
+"For the oppression of the poor, for the sighing of the needy, now will I arise, saith the LORD; I will set him in safety from him that puffeth at him."

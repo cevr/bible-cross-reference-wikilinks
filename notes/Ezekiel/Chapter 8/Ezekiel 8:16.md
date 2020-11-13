@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 4:19]]
+[[Deuteronomy 17:3]]
+[[1 Kings 8:29]]
+[[2 Kings 16:14]]
+[[2 Kings 21:5]]
+[[2 Kings 23:5]]
+[[2 Kings 23:11]]
+[[2 Chronicles 7:7]]
+[[2 Chronicles 29:6]]
+[[Job 31:26]]
+[[Job 31:27]]
+[[Jeremiah 2:27]]
+[[Jeremiah 7:18]]
+[[Jeremiah 8:2]]
+[[Jeremiah 32:33]]
+[[Jeremiah 44:17]]
+[[Ezekiel 7:23]]
+[[Ezekiel 10:3]]
+[[Ezekiel 11:1]]
+[[Ezekiel 23:35]]
+[[Ezekiel 40:28]]
+[[Ezekiel 43:5]]
+[[Ezekiel 45:19]]
+[[Joel 2:17]]
+[[Acts 7:42]]
+---
+
+"And he brought me into the inner court of the LORD'S house, and, behold, at the door of the temple of the LORD, between the porch and the altar, were about five and twenty men, with their backs toward the temple of the LORD, and their faces toward the east; and they worshipped the sun toward the east."

@@ -1,6 +1,0 @@
-[[Numbers 21:1]]
-[[Numbers 21:22]]
-[[Deuteronomy 2:1]]
-[[Deuteronomy 2:27]]
-[[Deuteronomy 2:28]]
-[[Deuteronomy 2:29]]

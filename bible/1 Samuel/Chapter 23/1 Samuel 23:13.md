@@ -1,6 +1,0 @@
-[[1 Samuel 22:2]]
-[[1 Samuel 25:13]]
-[[1 Samuel 30:9]]
-[[2 Samuel 15:20]]
-[[Job 5:12]]
-[[Psalms 34:5]]

@@ -1,7 +1,0 @@
-[[Numbers 32:30]]
-[[Joshua 13:29]]
-[[Joshua 13:31]]
-[[Joshua 17:2]]
-[[Joshua 17:14]]
-[[Joshua 22:7]]
-[[Ezekiel 48:4]]

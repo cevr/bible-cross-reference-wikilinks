@@ -1,0 +1,33 @@
+---
+Links:
+[[1 Kings 13:4]]
+[[1 Kings 22:27]]
+[[2 Chronicles 16:10]]
+[[2 Chronicles 24:21]]
+[[Job 13:27]]
+[[Jeremiah 1:19]]
+[[Jeremiah 19:14]]
+[[Jeremiah 26:8]]
+[[Jeremiah 26:10]]
+[[Jeremiah 29:26]]
+[[Jeremiah 36:26]]
+[[Jeremiah 37:13]]
+[[Jeremiah 37:15]]
+[[Jeremiah 37:21]]
+[[Jeremiah 38:6]]
+[[Amos 7:10]]
+[[Zechariah 14:10]]
+[[Matthew 5:10]]
+[[Matthew 21:35]]
+[[Matthew 23:34]]
+[[Acts 4:3]]
+[[Acts 5:18]]
+[[Acts 5:40]]
+[[Acts 7:52]]
+[[Acts 16:22]]
+[[Hebrews 11:36]]
+[[Revelation 2:10]]
+[[Revelation 17:6]]
+---
+
+"Then Pashur smote Jeremiah the prophet, and put him in the stocks that were in the high gate of Benjamin, which was by the house of the LORD."

@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 19:15]]
+[[Numbers 16:26]]
+[[Deuteronomy 32:25]]
+[[Deuteronomy 32:41]]
+[[Deuteronomy 32:43]]
+[[Psalms 94:1]]
+[[Proverbs 13:20]]
+[[Isaiah 48:20]]
+[[Jeremiah 25:14]]
+[[Jeremiah 25:16]]
+[[Jeremiah 27:7]]
+[[Jeremiah 46:10]]
+[[Jeremiah 48:6]]
+[[Jeremiah 50:8]]
+[[Jeremiah 50:15]]
+[[Jeremiah 50:28]]
+[[Jeremiah 50:31]]
+[[Jeremiah 51:9]]
+[[Jeremiah 51:11]]
+[[Jeremiah 51:45]]
+[[Jeremiah 51:50]]
+[[Jeremiah 51:56]]
+[[Zechariah 2:6]]
+[[1 Timothy 5:22]]
+[[Revelation 16:19]]
+[[Revelation 18:4]]
+---
+
+"Flee out of the midst of Babylon, and deliver every man his soul: be not cut off in her iniquity; for this is the time of the LORD'S vengeance; he will render unto her a recompence."

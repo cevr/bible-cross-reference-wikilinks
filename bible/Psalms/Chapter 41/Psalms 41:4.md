@@ -1,8 +1,0 @@
-[[2 Chronicles 30:18]]
-[[Psalms 6:2]]
-[[Psalms 32:5]]
-[[Psalms 51:1]]
-[[Psalms 103:3]]
-[[Psalms 147:3]]
-[[Hosea 6:1]]
-[[James 5:15]]

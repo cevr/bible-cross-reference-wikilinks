@@ -1,0 +1,20 @@
+---
+Links:
+[[Psalms 18:4]]
+[[Psalms 65:7]]
+[[Psalms 93:3]]
+[[Isaiah 15:1]]
+[[Isaiah 17:13]]
+[[Isaiah 24:8]]
+[[Isaiah 47:5]]
+[[Jeremiah 25:10]]
+[[Jeremiah 50:10]]
+[[Jeremiah 51:38]]
+[[Jeremiah 51:42]]
+[[Ezekiel 26:3]]
+[[Luke 21:25]]
+[[Revelation 17:15]]
+[[Revelation 18:22]]
+---
+
+"Because the LORD hath spoiled Babylon, and destroyed out of her the great voice; when her waves do roar like great waters, a noise of their voice is uttered:"

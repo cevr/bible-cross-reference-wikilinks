@@ -1,0 +1,24 @@
+---
+Links:
+[[Leviticus 26:33]]
+[[Deuteronomy 30:1]]
+[[Deuteronomy 30:4]]
+[[1 Kings 19:4]]
+[[Job 3:20]]
+[[Job 7:15]]
+[[Jeremiah 20:14]]
+[[Jeremiah 23:3]]
+[[Jeremiah 23:8]]
+[[Jeremiah 29:14]]
+[[Jeremiah 29:28]]
+[[Jeremiah 32:36]]
+[[Jeremiah 40:12]]
+[[Jeremiah 44:2]]
+[[Jeremiah 44:6]]
+[[Daniel 9:7]]
+[[Jonah 4:3]]
+[[Revelation 6:16]]
+[[Revelation 9:6]]
+---
+
+"And death shall be chosen rather than life by all the residue of them that remain of this evil family, which remain in all the places whither I have driven them, saith the LORD of hosts."

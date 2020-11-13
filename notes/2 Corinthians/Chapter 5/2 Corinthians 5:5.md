@@ -1,0 +1,16 @@
+---
+Links:
+[[Numbers 13:23]]
+[[Isaiah 29:23]]
+[[Isaiah 60:21]]
+[[Isaiah 61:3]]
+[[Romans 8:23]]
+[[2 Corinthians 1:22]]
+[[2 Corinthians 4:17]]
+[[Ephesians 1:13]]
+[[Ephesians 2:10]]
+[[Ephesians 4:30]]
+[[1 John 3:24]]
+---
+
+"Now he that hath wrought us for the selfsame thing is God, who also hath given unto us the earnest of the Spirit."

@@ -1,5 +1,0 @@
-[[Mark 9:2]]
-[[Mark 14:33]]
-[[Luke 8:51]]
-[[Acts 9:40]]
-[[2 Corinthians 13:1]]

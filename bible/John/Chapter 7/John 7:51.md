@@ -1,6 +1,0 @@
-[[Deuteronomy 1:17]]
-[[Deuteronomy 17:6]]
-[[Deuteronomy 17:8]]
-[[Deuteronomy 19:15]]
-[[Proverbs 18:13]]
-[[Acts 23:3]]

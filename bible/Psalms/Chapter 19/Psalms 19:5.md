@@ -1,8 +1,0 @@
-[[Job 38:13]]
-[[Ecclesiastes 1:5]]
-[[Isaiah 61:10]]
-[[Isaiah 62:5]]
-[[John 3:29]]
-[[1 Corinthians 9:24]]
-[[Philippians 3:13]]
-[[Hebrews 12:1]]

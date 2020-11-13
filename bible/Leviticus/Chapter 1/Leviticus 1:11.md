@@ -1,7 +1,0 @@
-[[Exodus 40:22]]
-[[Leviticus 1:5]]
-[[Leviticus 1:7]]
-[[Leviticus 6:25]]
-[[Leviticus 7:2]]
-[[Leviticus 9:12]]
-[[Ezekiel 8:5]]

@@ -1,6 +1,0 @@
-[[Exodus 35:1]]
-[[Exodus 35:10]]
-[[Exodus 35:30]]
-[[Exodus 36:1]]
-[[Exodus 38:22]]
-[[Numbers 3:31]]

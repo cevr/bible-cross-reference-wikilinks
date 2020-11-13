@@ -1,8 +1,0 @@
-[[Exodus 17:9]]
-[[Joshua 10:7]]
-[[Judges 9:32]]
-[[Matthew 24:39]]
-[[Matthew 24:50]]
-[[Matthew 25:6]]
-[[1 Thessalonians 5:2]]
-[[2 Peter 3:10]]

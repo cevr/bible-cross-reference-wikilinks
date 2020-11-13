@@ -1,0 +1,33 @@
+---
+Links:
+[[2 Samuel 22:22]]
+[[1 Chronicles 10:13]]
+[[Job 23:11]]
+[[Psalms 40:4]]
+[[Psalms 92:7]]
+[[Psalms 92:8]]
+[[Psalms 92:10]]
+[[Psalms 94:4]]
+[[Psalms 101:3]]
+[[Psalms 128:6]]
+[[Proverbs 2:15]]
+[[Proverbs 14:14]]
+[[Proverbs 21:16]]
+[[Isaiah 54:10]]
+[[Isaiah 54:13]]
+[[Isaiah 59:8]]
+[[Jeremiah 2:19]]
+[[Ezekiel 37:26]]
+[[Hosea 2:18]]
+[[Zephaniah 1:6]]
+[[Matthew 7:23]]
+[[Matthew 24:48]]
+[[Luke 11:25]]
+[[John 14:27]]
+[[Galatians 6:16]]
+[[Philippians 2:15]]
+[[Hebrews 10:38]]
+[[1 Peter 1:2]]
+---
+
+"As for such as turn aside unto their crooked ways, the LORD shall lead them forth with the workers of iniquity: but peace shall be upon Israel."

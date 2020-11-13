@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 7:1]]
+[[Genesis 7:16]]
+[[Exodus 12:22]]
+[[Psalms 17:8]]
+[[Psalms 27:5]]
+[[Psalms 30:5]]
+[[Psalms 31:20]]
+[[Psalms 32:7]]
+[[Psalms 57:1]]
+[[Psalms 57:2]]
+[[Psalms 91:1]]
+[[Psalms 91:4]]
+[[Psalms 94:13]]
+[[Psalms 143:9]]
+[[Proverbs 18:10]]
+[[Isaiah 10:25]]
+[[Isaiah 32:18]]
+[[Isaiah 51:4]]
+[[Isaiah 51:16]]
+[[Isaiah 54:7]]
+[[Jeremiah 7:23]]
+[[Jeremiah 31:14]]
+[[Ezekiel 11:16]]
+[[Matthew 6:6]]
+[[Matthew 23:37]]
+[[2 Corinthians 4:17]]
+---
+
+"Come, my people, enter thou into thy chambers, and shut thy doors about thee: hide thyself as it were for a little moment, until the indignation be overpast."

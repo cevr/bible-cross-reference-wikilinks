@@ -1,0 +1,14 @@
+---
+Links:
+[[Genesis 44:34]]
+[[Nehemiah 2:3]]
+[[Esther 7:4]]
+[[Esther 9:1]]
+[[Jeremiah 4:19]]
+[[Jeremiah 9:1]]
+[[Luke 19:41]]
+[[Romans 9:2]]
+[[Romans 10:1]]
+---
+
+"For how can I endure to see the evil that shall come unto my people? or how can I endure to see the destruction of my kindred?"

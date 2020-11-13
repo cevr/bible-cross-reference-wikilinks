@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 12:10]]
+[[Genesis 26:1]]
+[[Genesis 43:1]]
+[[Leviticus 26:19]]
+[[Deuteronomy 28:23]]
+[[Deuteronomy 28:38]]
+[[Judges 2:16]]
+[[Judges 12:8]]
+[[Judges 17:7]]
+[[Judges 17:8]]
+[[Judges 19:1]]
+[[2 Samuel 21:1]]
+[[1 Kings 17:1]]
+[[1 Kings 18:2]]
+[[2 Kings 8:1]]
+[[1 Chronicles 2:51]]
+[[1 Chronicles 2:54]]
+[[Psalms 105:16]]
+[[Psalms 107:34]]
+[[Jeremiah 14:1]]
+[[Ezekiel 14:13]]
+[[Ezekiel 14:21]]
+[[Joel 1:10]]
+[[Joel 1:16]]
+[[Amos 4:6]]
+---
+
+"Now it came to pass in the days when the judges ruled, that there was a famine in the land. And a certain man of Beth-lehem-judah went to sojourn in the country of Moab, he, and his wife, and his two sons."

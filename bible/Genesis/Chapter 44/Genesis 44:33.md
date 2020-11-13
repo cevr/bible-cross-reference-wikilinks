@@ -1,7 +1,0 @@
-[[Genesis 44:10]]
-[[Exodus 32:32]]
-[[2 Samuel 24:17]]
-[[Romans 5:7]]
-[[Romans 9:3]]
-[[Hebrews 7:22]]
-[[1 John 3:16]]

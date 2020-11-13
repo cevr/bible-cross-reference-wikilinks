@@ -1,0 +1,10 @@
+---
+Links:
+[[Psalms 8:5]]
+[[Matthew 6:26]]
+[[Matthew 12:11]]
+[[Luke 12:24]]
+[[1 Corinthians 9:9]]
+---
+
+"Fear ye not therefore, ye are of more value than many sparrows."

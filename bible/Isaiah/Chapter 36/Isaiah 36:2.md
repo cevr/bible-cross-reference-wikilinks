@@ -1,6 +1,0 @@
-[[1 Kings 20:2]]
-[[2 Kings 18:17]]
-[[2 Chronicles 32:9]]
-[[Isaiah 7:3]]
-[[Isaiah 22:9]]
-[[Micah 1:9]]

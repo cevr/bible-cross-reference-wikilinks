@@ -1,5 +1,0 @@
-[[2 Kings 24:20]]
-[[2 Chronicles 26:13]]
-[[Jeremiah 37:5]]
-[[Ezekiel 17:15]]
-[[Ezekiel 31:4]]

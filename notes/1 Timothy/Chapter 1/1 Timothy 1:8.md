@@ -1,0 +1,17 @@
+---
+Links:
+[[Deuteronomy 4:6]]
+[[Nehemiah 9:13]]
+[[Psalms 19:7]]
+[[Psalms 119:96]]
+[[Psalms 119:127]]
+[[Romans 7:12]]
+[[Romans 7:16]]
+[[Romans 7:18]]
+[[Romans 7:22]]
+[[Romans 12:2]]
+[[Galatians 3:21]]
+[[2 Timothy 2:5]]
+---
+
+"But we know that the law is good, if a man use it lawfully;"

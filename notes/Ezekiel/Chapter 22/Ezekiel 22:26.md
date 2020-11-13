@@ -1,0 +1,32 @@
+---
+Links:
+[[Leviticus 10:1]]
+[[Leviticus 10:10]]
+[[Leviticus 11:47]]
+[[Leviticus 20:25]]
+[[Leviticus 22:2]]
+[[1 Samuel 2:12]]
+[[1 Samuel 2:22]]
+[[1 Samuel 2:29]]
+[[2 Chronicles 36:14]]
+[[Jeremiah 2:8]]
+[[Jeremiah 2:26]]
+[[Jeremiah 15:19]]
+[[Lamentations 4:13]]
+[[Ezekiel 20:12]]
+[[Ezekiel 22:8]]
+[[Ezekiel 23:38]]
+[[Ezekiel 36:20]]
+[[Ezekiel 44:23]]
+[[Ezekiel 44:24]]
+[[Micah 3:11]]
+[[Zephaniah 3:3]]
+[[Haggai 2:11]]
+[[Malachi 1:6]]
+[[Malachi 2:1]]
+[[Malachi 2:7]]
+[[Malachi 2:8]]
+[[Romans 2:24]]
+---
+
+"Her priests have violated my law, and have profaned mine holy things: they have put no difference between the holy and profane, neither have they shewed difference between the unclean and the clean, and have hid their eyes from my sabbaths, and I am profaned among them."

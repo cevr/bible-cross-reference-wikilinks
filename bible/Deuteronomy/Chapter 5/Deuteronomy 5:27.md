@@ -1,6 +1,0 @@
-[[Exodus 18:20]]
-[[Exodus 19:8]]
-[[Exodus 20:18]]
-[[Exodus 20:19]]
-[[Jeremiah 42:5]]
-[[Hebrews 12:19]]

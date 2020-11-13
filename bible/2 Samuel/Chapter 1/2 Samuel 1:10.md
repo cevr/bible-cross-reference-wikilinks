@@ -1,8 +1,0 @@
-[[Judges 1:7]]
-[[Judges 9:54]]
-[[1 Samuel 22:18]]
-[[1 Samuel 31:4]]
-[[2 Samuel 12:30]]
-[[2 Kings 11:12]]
-[[Lamentations 5:16]]
-[[Matthew 7:2]]

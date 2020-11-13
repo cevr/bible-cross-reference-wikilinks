@@ -1,6 +1,0 @@
-[[Ezekiel 1:2]]
-[[Ezekiel 8:1]]
-[[Ezekiel 26:1]]
-[[Ezekiel 29:1]]
-[[Ezekiel 29:17]]
-[[Ezekiel 31:1]]

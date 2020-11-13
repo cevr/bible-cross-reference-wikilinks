@@ -1,0 +1,24 @@
+---
+Links:
+[[Genesis 20:2]]
+[[Genesis 20:17]]
+[[Genesis 26:26]]
+[[Genesis 26:28]]
+[[Genesis 28:15]]
+[[Genesis 30:27]]
+[[Genesis 39:2]]
+[[Genesis 39:3]]
+[[Joshua 3:7]]
+[[1 Samuel 24:22]]
+[[2 Chronicles 1:1]]
+[[Isaiah 8:10]]
+[[Isaiah 45:14]]
+[[Zechariah 8:23]]
+[[Matthew 1:23]]
+[[Romans 8:31]]
+[[1 Corinthians 14:25]]
+[[Hebrews 13:5]]
+[[Revelation 3:9]]
+---
+
+"And it came to pass at that time, that Abimelech and Phichol the chief captain of his host spake unto Abraham, saying, God is with thee in all that thou doest:"

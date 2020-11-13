@@ -1,0 +1,33 @@
+---
+Links:
+[[Deuteronomy 1:17]]
+[[1 Samuel 2:30]]
+[[1 Kings 22:28]]
+[[Job 32:21]]
+[[Proverbs 10:7]]
+[[Proverbs 12:8]]
+[[Jeremiah 28:15]]
+[[Jeremiah 29:20]]
+[[Jeremiah 29:31]]
+[[Ezekiel 13:12]]
+[[Ezekiel 13:21]]
+[[Daniel 12:2]]
+[[Micah 3:6]]
+[[Micah 3:11]]
+[[Malachi 2:3]]
+[[Malachi 2:8]]
+[[Matthew 5:21]]
+[[Matthew 5:27]]
+[[Matthew 5:33]]
+[[Matthew 5:43]]
+[[Matthew 19:17]]
+[[Matthew 23:16]]
+[[Mark 7:8]]
+[[Luke 10:29]]
+[[Luke 11:42]]
+[[Luke 20:45]]
+[[Romans 7:7]]
+[[Galatians 2:6]]
+---
+
+"Therefore have I also made you contemptible and base before all the people, according as ye have not kept my ways, but have been partial in the law."

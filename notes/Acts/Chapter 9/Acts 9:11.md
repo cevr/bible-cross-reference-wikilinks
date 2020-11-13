@@ -1,0 +1,33 @@
+---
+Links:
+[[Deuteronomy 4:29]]
+[[2 Chronicles 33:12]]
+[[2 Chronicles 33:18]]
+[[Job 33:18]]
+[[Psalms 32:3]]
+[[Psalms 40:1]]
+[[Psalms 50:15]]
+[[Psalms 130:1]]
+[[Proverbs 15:8]]
+[[Isaiah 55:6]]
+[[Jeremiah 29:12]]
+[[Jeremiah 31:18]]
+[[Jonah 2:1]]
+[[Zechariah 12:10]]
+[[Matthew 7:7]]
+[[Luke 11:9]]
+[[Luke 18:7]]
+[[Luke 23:42]]
+[[John 4:10]]
+[[Acts 2:21]]
+[[Acts 8:22]]
+[[Acts 8:26]]
+[[Acts 9:30]]
+[[Acts 10:5]]
+[[Acts 11:13]]
+[[Acts 11:25]]
+[[Acts 21:39]]
+[[Acts 22:3]]
+---
+
+"And the Lord said unto him, Arise, and go into the street which is called Straight, and enquire in the house of Judas for one called Saul, of Tarsus: for, behold, he prayeth,"

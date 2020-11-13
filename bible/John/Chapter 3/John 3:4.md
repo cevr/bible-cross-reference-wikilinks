@@ -1,6 +1,0 @@
-[[John 3:3]]
-[[John 4:11]]
-[[John 6:53]]
-[[John 6:60]]
-[[1 Corinthians 1:18]]
-[[1 Corinthians 2:14]]

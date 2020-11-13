@@ -1,0 +1,17 @@
+---
+Links:
+[[Genesis 46:11]]
+[[Exodus 6:16]]
+[[Exodus 6:19]]
+[[Numbers 15:5]]
+[[Numbers 23:6]]
+[[Numbers 24:1]]
+[[Numbers 26:57]]
+[[Joshua 21:1]]
+[[1 Chronicles 6:1]]
+[[1 Chronicles 6:16]]
+[[1 Chronicles 23:6]]
+[[Nehemiah 11:1]]
+---
+
+"And these were the sons of Levi by their names; Gershon, and Kohath, and Merari."

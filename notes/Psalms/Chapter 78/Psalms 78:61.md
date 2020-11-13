@@ -1,0 +1,14 @@
+---
+Links:
+[[Exodus 40:34]]
+[[Judges 18:30]]
+[[1 Samuel 4:17]]
+[[1 Samuel 4:21]]
+[[1 Samuel 6:1]]
+[[2 Chronicles 6:41]]
+[[Psalms 24:7]]
+[[Psalms 63:2]]
+[[Psalms 132:8]]
+---
+
+"And delivered his strength into captivity, and his glory into the enemy's hand."

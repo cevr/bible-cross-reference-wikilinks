@@ -1,5 +1,0 @@
-[[Matthew 6:26]]
-[[Matthew 10:31]]
-[[Mark 3:4]]
-[[Luke 6:9]]
-[[Luke 12:24]]

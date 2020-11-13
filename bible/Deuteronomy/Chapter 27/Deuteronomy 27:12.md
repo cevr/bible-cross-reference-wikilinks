@@ -1,8 +1,0 @@
-[[Genesis 29:33]]
-[[Genesis 30:18]]
-[[Genesis 30:24]]
-[[Genesis 35:18]]
-[[Genesis 35:22]]
-[[Deuteronomy 11:26]]
-[[Joshua 8:33]]
-[[Judges 9:7]]

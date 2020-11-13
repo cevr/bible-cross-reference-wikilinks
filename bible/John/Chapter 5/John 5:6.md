@@ -1,7 +1,0 @@
-[[Psalms 142:3]]
-[[Isaiah 65:1]]
-[[Jeremiah 13:27]]
-[[Luke 18:41]]
-[[John 21:17]]
-[[Hebrews 4:13]]
-[[Hebrews 4:15]]

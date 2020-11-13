@@ -1,5 +1,0 @@
-[[Leviticus 19:16]]
-[[1 Samuel 24:4]]
-[[1 Samuel 26:8]]
-[[Psalms 105:15]]
-[[Ezekiel 22:9]]

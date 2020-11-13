@@ -1,8 +1,0 @@
-[[Isaiah 5:27]]
-[[Isaiah 21:5]]
-[[Jeremiah 46:12]]
-[[Jeremiah 50:29]]
-[[Jeremiah 51:27]]
-[[Nahum 3:3]]
-[[Nahum 3:18]]
-[[Habakkuk 1:8]]

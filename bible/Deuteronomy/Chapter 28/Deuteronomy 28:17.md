@@ -1,7 +1,0 @@
-[[Deuteronomy 28:5]]
-[[Psalms 69:22]]
-[[Proverbs 1:32]]
-[[Haggai 1:6]]
-[[Zechariah 5:3]]
-[[Malachi 2:2]]
-[[Luke 16:25]]

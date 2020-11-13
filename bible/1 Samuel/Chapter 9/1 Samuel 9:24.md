@@ -1,5 +1,0 @@
-[[Exodus 29:22]]
-[[Exodus 29:27]]
-[[Leviticus 7:32]]
-[[Numbers 18:18]]
-[[Ezekiel 24:4]]

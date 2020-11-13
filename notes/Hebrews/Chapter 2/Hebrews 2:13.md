@@ -1,0 +1,21 @@
+---
+Links:
+[[Genesis 33:5]]
+[[Genesis 48:9]]
+[[2 Samuel 22:3]]
+[[Psalms 16:1]]
+[[Psalms 18:2]]
+[[Psalms 36:7]]
+[[Psalms 91:2]]
+[[Psalms 127:3]]
+[[Isaiah 8:17]]
+[[Isaiah 12:2]]
+[[Isaiah 50:7]]
+[[Isaiah 53:10]]
+[[Matthew 27:43]]
+[[John 10:29]]
+[[John 17:6]]
+[[1 Corinthians 4:15]]
+---
+
+"And again, I will put my trust in him. And again, Behold I and the children which God hath given me."

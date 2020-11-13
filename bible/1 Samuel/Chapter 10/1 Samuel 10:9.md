@@ -1,7 +1,0 @@
-[[Judges 6:21]]
-[[Judges 6:36]]
-[[Judges 7:11]]
-[[1 Samuel 10:2]]
-[[Isaiah 38:7]]
-[[Ezekiel 36:26]]
-[[Mark 14:16]]

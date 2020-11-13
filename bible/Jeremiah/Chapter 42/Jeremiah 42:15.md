@@ -1,7 +1,0 @@
-[[Genesis 31:21]]
-[[Deuteronomy 17:16]]
-[[Jeremiah 42:17]]
-[[Jeremiah 44:12]]
-[[Jeremiah 44:13]]
-[[Daniel 11:17]]
-[[Luke 9:51]]

@@ -1,8 +1,0 @@
-[[Exodus 9:19]]
-[[2 Kings 6:10]]
-[[Psalms 95:7]]
-[[Isaiah 51:2]]
-[[John 8:39]]
-[[Acts 2:37]]
-[[Hebrews 2:1]]
-[[Hebrews 11:7]]

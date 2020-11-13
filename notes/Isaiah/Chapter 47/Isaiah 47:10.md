@@ -1,0 +1,26 @@
+---
+Links:
+[[Job 22:13]]
+[[Psalms 10:11]]
+[[Psalms 52:7]]
+[[Psalms 62:9]]
+[[Psalms 64:5]]
+[[Psalms 94:7]]
+[[Ecclesiastes 8:8]]
+[[Isaiah 5:21]]
+[[Isaiah 28:15]]
+[[Isaiah 29:15]]
+[[Isaiah 44:20]]
+[[Isaiah 59:4]]
+[[Jeremiah 23:24]]
+[[Ezekiel 8:12]]
+[[Ezekiel 9:9]]
+[[Ezekiel 28:2]]
+[[Daniel 4:27]]
+[[Zephaniah 2:15]]
+[[Romans 1:22]]
+[[1 Corinthians 1:19]]
+[[1 Corinthians 3:19]]
+---
+
+"For thou hast trusted in thy wickedness: thou hast said, None seeth me. Thy wisdom and thy knowledge, it hath perverted thee; and thou hast said in thine heart, I am, and none else beside me."

@@ -1,0 +1,22 @@
+---
+Links:
+[[Esther 8:16]]
+[[Job 11:17]]
+[[Job 22:28]]
+[[Psalms 18:28]]
+[[Psalms 68:4]]
+[[Psalms 112:4]]
+[[Psalms 126:5]]
+[[Proverbs 4:18]]
+[[Isaiah 58:8]]
+[[Isaiah 60:1]]
+[[Isaiah 62:1]]
+[[Micah 7:9]]
+[[John 12:46]]
+[[Galatians 6:8]]
+[[James 5:7]]
+[[Revelation 21:23]]
+[[Revelation 22:5]]
+---
+
+"Light is sown for the righteous, and gladness for the upright in heart."

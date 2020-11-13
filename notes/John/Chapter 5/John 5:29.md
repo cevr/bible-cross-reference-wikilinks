@@ -1,0 +1,14 @@
+---
+Links:
+[[Daniel 12:2]]
+[[Matthew 25:31]]
+[[Luke 14:14]]
+[[Acts 24:15]]
+[[Romans 2:6]]
+[[Galatians 6:8]]
+[[1 Timothy 6:18]]
+[[Hebrews 13:16]]
+[[1 Peter 3:11]]
+---
+
+"And shall come forth; they that have done good, unto the resurrection of life; and they that have done evil, unto the resurrection of damnation."

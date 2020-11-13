@@ -1,6 +1,0 @@
-[[Job 32:11]]
-[[Job 32:15]]
-[[Job 33:31]]
-[[1 Corinthians 14:6]]
-[[1 Corinthians 14:26]]
-[[1 Thessalonians 5:19]]

@@ -1,6 +1,0 @@
-[[Acts 6:1]]
-[[1 Corinthians 4:19]]
-[[1 Corinthians 11:34]]
-[[2 Corinthians 8:4]]
-[[2 Corinthians 8:6]]
-[[2 Corinthians 8:18]]

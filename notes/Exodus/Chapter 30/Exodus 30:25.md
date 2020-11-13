@@ -1,0 +1,15 @@
+---
+Links:
+[[Exodus 28:41]]
+[[Exodus 37:29]]
+[[Exodus 40:9]]
+[[Leviticus 8:2]]
+[[Numbers 35:25]]
+[[1 Kings 1:39]]
+[[1 Chronicles 9:30]]
+[[Psalms 89:20]]
+[[Psalms 133:2]]
+[[Hebrews 1:9]]
+---
+
+"And thou shalt make it an oil of holy ointment, an ointment compound after the art of the apothecary: it shall be an holy anointing oil."

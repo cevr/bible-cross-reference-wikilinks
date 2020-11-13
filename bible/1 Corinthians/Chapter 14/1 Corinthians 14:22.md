@@ -1,5 +1,0 @@
-[[Mark 16:17]]
-[[Acts 2:6]]
-[[Acts 2:32]]
-[[1 Corinthians 14:1]]
-[[1 Timothy 1:9]]

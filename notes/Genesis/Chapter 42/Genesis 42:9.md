@@ -1,0 +1,19 @@
+---
+Links:
+[[Genesis 37:5]]
+[[Genesis 37:11]]
+[[Genesis 42:16]]
+[[Genesis 42:30]]
+[[Genesis 42:34]]
+[[Exodus 32:35]]
+[[Numbers 13:2]]
+[[Numbers 13:16]]
+[[Joshua 2:1]]
+[[Joshua 6:23]]
+[[Judges 1:24]]
+[[1 Samuel 26:4]]
+[[Luke 20:20]]
+[[Hebrews 11:31]]
+---
+
+"And Joseph remembered the dreams which he dreamed of them, and said unto them, Ye are spies; to see the nakedness of the land ye are come."

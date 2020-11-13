@@ -1,5 +1,0 @@
-[[Exodus 21:2]]
-[[Leviticus 25:40]]
-[[Isaiah 49:9]]
-[[Isaiah 49:25]]
-[[Isaiah 52:3]]

@@ -1,0 +1,27 @@
+---
+Links:
+[[Exodus 14:14]]
+[[Exodus 15:3]]
+[[Deuteronomy 1:30]]
+[[Deuteronomy 3:22]]
+[[Joshua 10:14]]
+[[Judges 4:15]]
+[[1 Samuel 4:7]]
+[[2 Chronicles 20:29]]
+[[Nehemiah 4:14]]
+[[Nehemiah 9:11]]
+[[Job 11:20]]
+[[Job 20:24]]
+[[Job 27:22]]
+[[Psalms 35:1]]
+[[Psalms 46:9]]
+[[Psalms 68:12]]
+[[Psalms 76:6]]
+[[Isaiah 31:4]]
+[[Jeremiah 51:21]]
+[[Amos 1:14]]
+[[Amos 5:19]]
+[[Amos 9:1]]
+---
+
+"And took off their chariot wheels, that they drave them heavily: so that the Egyptians said, Let us flee from the face of Israel; for the LORD fighteth for them against the Egyptians."

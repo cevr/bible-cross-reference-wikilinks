@@ -1,7 +1,0 @@
-[[Deuteronomy 1:28]]
-[[Deuteronomy 2:10]]
-[[Deuteronomy 2:22]]
-[[Deuteronomy 3:11]]
-[[Judges 11:24]]
-[[Jeremiah 27:7]]
-[[Habakkuk 1:10]]

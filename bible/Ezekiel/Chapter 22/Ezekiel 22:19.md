@@ -1,5 +1,0 @@
-[[Ezekiel 11:7]]
-[[Ezekiel 24:3]]
-[[Micah 4:12]]
-[[Matthew 13:30]]
-[[Matthew 13:40]]

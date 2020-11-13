@@ -1,5 +1,0 @@
-[[Proverbs 4:18]]
-[[Matthew 13:12]]
-[[Philippians 1:6]]
-[[1 Peter 2:9]]
-[[2 Peter 3:18]]

@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 19:34]]
+[[Leviticus 26:19]]
+[[Deuteronomy 28:23]]
+[[Nehemiah 9:17]]
+[[Proverbs 21:29]]
+[[Isaiah 5:6]]
+[[Jeremiah 5:3]]
+[[Jeremiah 5:24]]
+[[Jeremiah 5:25]]
+[[Jeremiah 6:15]]
+[[Jeremiah 8:12]]
+[[Jeremiah 9:12]]
+[[Jeremiah 14:1]]
+[[Jeremiah 14:4]]
+[[Jeremiah 14:22]]
+[[Jeremiah 44:16]]
+[[Ezekiel 3:7]]
+[[Ezekiel 16:30]]
+[[Joel 1:16]]
+[[Amos 4:7]]
+[[Amos 4:8]]
+[[Zephaniah 3:5]]
+[[Haggai 1:11]]
+[[Zechariah 7:11]]
+[[Hebrews 12:25]]
+---
+
+"Therefore the showers have been withholden, and there hath been no latter rain; and thou hadst a whore's forehead, thou refusedst to be ashamed."

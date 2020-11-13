@@ -1,8 +1,0 @@
-[[Isaiah 43:6]]
-[[Hosea 1:9]]
-[[Matthew 16:16]]
-[[John 11:52]]
-[[Romans 8:16]]
-[[2 Corinthians 6:18]]
-[[Galatians 3:26]]
-[[1 John 3:1]]

@@ -1,5 +1,0 @@
-[[Exodus 17:11]]
-[[1 Samuel 17:47]]
-[[Psalms 20:7]]
-[[Psalms 33:16]]
-[[Hosea 1:7]]

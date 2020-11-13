@@ -1,5 +1,0 @@
-[[Genesis 18:2]]
-[[Matthew 28:2]]
-[[Mark 16:5]]
-[[John 20:11]]
-[[Acts 1:10]]

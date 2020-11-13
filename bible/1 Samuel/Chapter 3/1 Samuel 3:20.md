@@ -1,7 +1,0 @@
-[[Deuteronomy 18:21]]
-[[Judges 20:1]]
-[[2 Samuel 3:10]]
-[[2 Samuel 17:11]]
-[[Ezekiel 33:33]]
-[[Amos 2:11]]
-[[1 Timothy 1:12]]

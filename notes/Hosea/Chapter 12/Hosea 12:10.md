@@ -1,0 +1,33 @@
+---
+Links:
+[[Exodus 20:2]]
+[[Leviticus 23:42]]
+[[Numbers 12:6]]
+[[1 Kings 13:1]]
+[[1 Kings 14:7]]
+[[1 Kings 17:1]]
+[[1 Kings 18:21]]
+[[1 Kings 19:10]]
+[[2 Kings 17:13]]
+[[Nehemiah 9:30]]
+[[Isaiah 5:1]]
+[[Isaiah 20:2]]
+[[Jeremiah 7:25]]
+[[Jeremiah 13:1]]
+[[Jeremiah 19:1]]
+[[Jeremiah 19:10]]
+[[Jeremiah 25:4]]
+[[Ezekiel 4:1]]
+[[Ezekiel 15:1]]
+[[Ezekiel 20:49]]
+[[Hosea 1:2]]
+[[Hosea 3:1]]
+[[Hosea 13:4]]
+[[Joel 2:28]]
+[[Amos 7:14]]
+[[Acts 2:17]]
+[[2 Corinthians 12:1]]
+[[2 Corinthians 12:7]]
+---
+
+"I have also spoken by the prophets, and I have multiplied visions, and used similitudes, by the ministry of the prophets."

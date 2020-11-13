@@ -1,6 +1,0 @@
-[[Leviticus 21:21]]
-[[Numbers 3:10]]
-[[Numbers 16:39]]
-[[Numbers 17:5]]
-[[Numbers 18:7]]
-[[Ezekiel 44:10]]

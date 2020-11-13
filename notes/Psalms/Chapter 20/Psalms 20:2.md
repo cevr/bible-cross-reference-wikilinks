@@ -1,0 +1,17 @@
+---
+Links:
+[[2 Samuel 5:7]]
+[[2 Samuel 6:17]]
+[[1 Kings 6:16]]
+[[1 Kings 8:44]]
+[[2 Chronicles 20:8]]
+[[Psalms 3:4]]
+[[Psalms 54:3]]
+[[Psalms 73:17]]
+[[Proverbs 18:10]]
+[[Isaiah 12:6]]
+[[Isaiah 14:32]]
+[[Isaiah 37:34]]
+---
+
+"Send thee help from the sanctuary, and strengthen thee out of Zion;"

@@ -1,7 +1,0 @@
-[[Ezekiel 1:4]]
-[[Ezekiel 1:26]]
-[[Ezekiel 1:27]]
-[[Ezekiel 40:3]]
-[[Daniel 7:9]]
-[[Daniel 10:6]]
-[[Revelation 1:14]]

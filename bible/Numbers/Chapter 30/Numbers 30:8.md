@@ -1,6 +1,0 @@
-[[Genesis 3:16]]
-[[1 Samuel 1:23]]
-[[Jeremiah 44:19]]
-[[1 Corinthians 7:4]]
-[[1 Corinthians 14:34]]
-[[Ephesians 5:22]]

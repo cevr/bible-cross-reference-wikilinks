@@ -1,0 +1,22 @@
+---
+Links:
+[[Deuteronomy 32:22]]
+[[2 Samuel 22:8]]
+[[2 Samuel 22:16]]
+[[Psalms 104:5]]
+[[Proverbs 8:29]]
+[[Isaiah 1:18]]
+[[Isaiah 3:13]]
+[[Isaiah 5:3]]
+[[Isaiah 43:26]]
+[[Jeremiah 2:9]]
+[[Jeremiah 2:29]]
+[[Jeremiah 25:31]]
+[[Jeremiah 31:37]]
+[[Ezekiel 20:35]]
+[[Hosea 4:1]]
+[[Hosea 12:2]]
+[[Hosea 12:3]]
+---
+
+"Hear ye, O mountains, the LORD'S controversy, and ye strong foundations of the earth: for the LORD hath a controversy with his people, and he will plead with Israel."

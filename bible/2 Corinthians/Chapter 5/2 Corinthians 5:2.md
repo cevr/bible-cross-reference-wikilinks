@@ -1,7 +1,0 @@
-[[Job 10:11]]
-[[Romans 7:24]]
-[[Romans 8:23]]
-[[1 Corinthians 15:53]]
-[[2 Corinthians 5:3]]
-[[Philippians 1:23]]
-[[1 Peter 1:6]]

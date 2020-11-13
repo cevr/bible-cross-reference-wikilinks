@@ -1,7 +1,0 @@
-[[1 Samuel 1:12]]
-[[Luke 18:1]]
-[[Luke 21:36]]
-[[Romans 12:12]]
-[[Ephesians 6:18]]
-[[Colossians 4:2]]
-[[1 Peter 4:7]]

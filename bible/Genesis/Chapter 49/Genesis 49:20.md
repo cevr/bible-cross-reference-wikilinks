@@ -1,5 +1,0 @@
-[[Genesis 30:13]]
-[[Genesis 46:17]]
-[[Deuteronomy 33:24]]
-[[Joshua 19:24]]
-[[Joshua 19:31]]

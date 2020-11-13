@@ -1,0 +1,16 @@
+---
+Links:
+[[Exodus 2:10]]
+[[Exodus 4:20]]
+[[Exodus 18:3]]
+[[Exodus 22:21]]
+[[1 Chronicles 16:20]]
+[[1 Chronicles 23:14]]
+[[1 Chronicles 29:15]]
+[[Psalms 39:12]]
+[[Psalms 119:19]]
+[[Acts 7:29]]
+[[Hebrews 11:13]]
+---
+
+"And she bare him a son, and he called his name Gershom: for he said, I have been a stranger in a strange land."

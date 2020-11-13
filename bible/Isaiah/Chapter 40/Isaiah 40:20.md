@@ -1,7 +1,0 @@
-[[1 Samuel 5:3]]
-[[Isaiah 2:8]]
-[[Isaiah 41:7]]
-[[Isaiah 44:13]]
-[[Isaiah 46:7]]
-[[Jeremiah 10:3]]
-[[Daniel 5:23]]

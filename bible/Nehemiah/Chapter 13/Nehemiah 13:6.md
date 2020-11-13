@@ -1,8 +1,0 @@
-[[Exodus 32:1]]
-[[2 Chronicles 24:17]]
-[[Ezra 6:22]]
-[[Nehemiah 2:1]]
-[[Nehemiah 2:5]]
-[[Nehemiah 2:6]]
-[[Nehemiah 5:14]]
-[[Matthew 13:25]]

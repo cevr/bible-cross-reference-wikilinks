@@ -1,5 +1,0 @@
-[[Joshua 19:25]]
-[[Joshua 19:28]]
-[[Judges 1:31]]
-[[Judges 18:21]]
-[[1 Chronicles 6:75]]

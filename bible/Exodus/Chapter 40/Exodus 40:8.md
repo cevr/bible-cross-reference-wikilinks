@@ -1,6 +1,0 @@
-[[Exodus 27:9]]
-[[Exodus 38:9]]
-[[Exodus 40:33]]
-[[Matthew 16:18]]
-[[1 Corinthians 12:28]]
-[[Ephesians 4:11]]

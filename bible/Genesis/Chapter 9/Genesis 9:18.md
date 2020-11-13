@@ -1,6 +1,0 @@
-[[Genesis 5:32]]
-[[Genesis 9:23]]
-[[Genesis 9:25]]
-[[Genesis 10:1]]
-[[Genesis 10:6]]
-[[1 Chronicles 1:4]]

@@ -1,5 +1,0 @@
-[[Genesis 12:6]]
-[[Joshua 4:19]]
-[[Joshua 5:9]]
-[[Judges 7:1]]
-[[Nehemiah 12:29]]

@@ -1,5 +1,0 @@
-[[Jeremiah 2:15]]
-[[Jeremiah 51:38]]
-[[Hosea 9:15]]
-[[Amos 6:8]]
-[[Zechariah 11:8]]

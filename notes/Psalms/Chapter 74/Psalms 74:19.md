@@ -1,0 +1,17 @@
+---
+Links:
+[[Psalms 9:18]]
+[[Psalms 10:12]]
+[[Psalms 68:10]]
+[[Psalms 68:13]]
+[[Psalms 72:2]]
+[[Songs of Solomon 2:14]]
+[[Songs of Solomon 4:1]]
+[[Songs of Solomon 6:9]]
+[[Isaiah 60:8]]
+[[Zephaniah 3:12]]
+[[Matthew 10:16]]
+[[James 2:5]]
+---
+
+"O deliver not the soul of thy turtledove unto the multitude of the wicked: forget not the congregation of thy poor for ever."

@@ -1,5 +1,0 @@
-[[Exodus 32:10]]
-[[Exodus 32:32]]
-[[Jeremiah 7:16]]
-[[Jeremiah 11:14]]
-[[Jeremiah 15:1]]

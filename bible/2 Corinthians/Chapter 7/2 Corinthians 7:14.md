@@ -1,7 +1,0 @@
-[[2 Corinthians 1:18]]
-[[2 Corinthians 7:4]]
-[[2 Corinthians 7:6]]
-[[2 Corinthians 8:24]]
-[[2 Corinthians 9:2]]
-[[2 Corinthians 10:8]]
-[[2 Thessalonians 1:4]]

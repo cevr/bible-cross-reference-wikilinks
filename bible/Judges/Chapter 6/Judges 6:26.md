@@ -1,5 +1,0 @@
-[[1 Samuel 6:14]]
-[[2 Samuel 24:18]]
-[[2 Samuel 24:22]]
-[[1 Corinthians 14:33]]
-[[1 Corinthians 14:40]]

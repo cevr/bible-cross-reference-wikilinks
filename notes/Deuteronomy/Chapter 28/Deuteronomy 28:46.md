@@ -1,0 +1,16 @@
+---
+Links:
+[[Deuteronomy 28:37]]
+[[Deuteronomy 28:59]]
+[[Deuteronomy 29:20]]
+[[Deuteronomy 29:28]]
+[[Isaiah 8:18]]
+[[Jeremiah 19:8]]
+[[Jeremiah 25:18]]
+[[Ezekiel 14:8]]
+[[Ezekiel 23:32]]
+[[Ezekiel 36:20]]
+[[1 Corinthians 10:11]]
+---
+
+"And they shall be upon thee for a sign and for a wonder, and upon thy seed for ever."

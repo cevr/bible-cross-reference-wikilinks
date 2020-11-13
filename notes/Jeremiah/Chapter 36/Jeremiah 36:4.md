@@ -1,0 +1,21 @@
+---
+Links:
+[[Isaiah 8:1]]
+[[Isaiah 30:8]]
+[[Jeremiah 30:2]]
+[[Jeremiah 32:12]]
+[[Jeremiah 36:17]]
+[[Jeremiah 36:18]]
+[[Jeremiah 36:21]]
+[[Jeremiah 36:23]]
+[[Jeremiah 36:26]]
+[[Jeremiah 36:28]]
+[[Jeremiah 36:32]]
+[[Jeremiah 43:3]]
+[[Jeremiah 45:1]]
+[[Ezekiel 2:9]]
+[[Zechariah 5:1]]
+[[Romans 16:22]]
+---
+
+"Then Jeremiah called Baruch the son of Neriah: and Baruch wrote from the mouth of Jeremiah all the words of the LORD, which he had spoken unto him, upon a roll of a book."

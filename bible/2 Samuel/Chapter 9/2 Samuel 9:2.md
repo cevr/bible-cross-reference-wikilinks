@@ -1,7 +1,0 @@
-[[Genesis 15:2]]
-[[Genesis 24:2]]
-[[Genesis 39:6]]
-[[2 Samuel 16:1]]
-[[2 Samuel 19:17]]
-[[2 Samuel 19:18]]
-[[2 Samuel 19:27]]

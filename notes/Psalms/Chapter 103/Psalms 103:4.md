@@ -1,0 +1,21 @@
+---
+Links:
+[[Genesis 48:16]]
+[[Job 33:19]]
+[[Job 33:28]]
+[[Psalms 5:12]]
+[[Psalms 8:5]]
+[[Psalms 21:3]]
+[[Psalms 34:22]]
+[[Psalms 56:13]]
+[[Psalms 65:11]]
+[[Psalms 71:23]]
+[[Psalms 103:12]]
+[[Isaiah 38:17]]
+[[Isaiah 54:8]]
+[[James 1:12]]
+[[1 Peter 5:4]]
+[[Revelation 5:9]]
+---
+
+"Who redeemeth thy life from destruction; who crowneth thee with lovingkindness and tender mercies;"

@@ -1,5 +1,0 @@
-[[Exodus 25:24]]
-[[Exodus 28:23]]
-[[Exodus 30:3]]
-[[1 Kings 6:20]]
-[[2 Chronicles 3:4]]

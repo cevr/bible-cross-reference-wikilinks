@@ -1,6 +1,0 @@
-[[Exodus 25:31]]
-[[Exodus 40:4]]
-[[Exodus 40:22]]
-[[Exodus 40:24]]
-[[Hebrews 9:2]]
-[[Hebrews 9:8]]

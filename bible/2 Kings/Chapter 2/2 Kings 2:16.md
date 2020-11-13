@@ -1,7 +1,0 @@
-[[1 Kings 18:12]]
-[[Ezekiel 3:14]]
-[[Ezekiel 8:3]]
-[[Ezekiel 11:24]]
-[[Ezekiel 40:2]]
-[[Acts 8:39]]
-[[2 Corinthians 12:2]]

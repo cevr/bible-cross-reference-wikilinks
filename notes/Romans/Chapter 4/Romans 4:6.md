@@ -1,0 +1,32 @@
+---
+Links:
+[[Deuteronomy 33:29]]
+[[Psalms 1:1]]
+[[Psalms 112:1]]
+[[Psalms 146:5]]
+[[Isaiah 45:24]]
+[[Isaiah 54:17]]
+[[Jeremiah 22:6]]
+[[Jeremiah 33:16]]
+[[Daniel 9:24]]
+[[Matthew 5:3]]
+[[Romans 1:17]]
+[[Romans 3:20]]
+[[Romans 3:27]]
+[[Romans 4:9]]
+[[Romans 4:11]]
+[[Romans 4:24]]
+[[Romans 5:18]]
+[[1 Corinthians 1:30]]
+[[2 Corinthians 5:21]]
+[[Galatians 3:8]]
+[[Galatians 3:14]]
+[[Galatians 4:15]]
+[[Ephesians 1:3]]
+[[Ephesians 2:8]]
+[[Philippians 3:9]]
+[[2 Timothy 1:9]]
+[[2 Peter 1:1]]
+---
+
+"Even as David also describeth the blessedness of the man, unto whom God imputeth righteousness without works,"

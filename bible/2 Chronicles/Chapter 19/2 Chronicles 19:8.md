@@ -1,8 +1,0 @@
-[[Exodus 18:19]]
-[[Deuteronomy 17:8]]
-[[Deuteronomy 21:5]]
-[[Deuteronomy 25:1]]
-[[1 Chronicles 23:4]]
-[[1 Chronicles 26:29]]
-[[2 Chronicles 17:8]]
-[[Psalms 122:5]]

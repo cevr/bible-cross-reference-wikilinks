@@ -1,5 +1,0 @@
-[[Numbers 35:12]]
-[[Numbers 35:19]]
-[[Numbers 35:22]]
-[[2 Samuel 14:11]]
-[[Hebrews 6:18]]

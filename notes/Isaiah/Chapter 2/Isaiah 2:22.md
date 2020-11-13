@@ -1,0 +1,16 @@
+---
+Links:
+[[Genesis 2:7]]
+[[Genesis 7:22]]
+[[Job 7:15]]
+[[Job 27:3]]
+[[Psalms 8:4]]
+[[Psalms 62:9]]
+[[Psalms 144:3]]
+[[Psalms 146:3]]
+[[Isaiah 40:15]]
+[[Jeremiah 17:5]]
+[[James 4:14]]
+---
+
+"Cease ye from man, whose breath is in his nostrils: for wherein is he to be accounted of?"

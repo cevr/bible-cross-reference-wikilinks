@@ -1,8 +1,0 @@
-[[Ezra 4:1]]
-[[Nehemiah 2:10]]
-[[Nehemiah 2:19]]
-[[Psalms 35:15]]
-[[Psalms 44:13]]
-[[Matthew 27:29]]
-[[Acts 5:17]]
-[[Hebrews 11:36]]

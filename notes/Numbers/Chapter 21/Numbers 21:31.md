@@ -1,0 +1,11 @@
+---
+Links:
+[[Genesis 15:21]]
+[[Numbers 32:33]]
+[[Deuteronomy 3:16]]
+[[Joshua 12:1]]
+[[Joshua 13:8]]
+[[Joshua 24:12]]
+---
+
+"Thus Israel dwelt in the land of the Amorites."

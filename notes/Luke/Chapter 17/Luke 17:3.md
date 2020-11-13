@@ -1,0 +1,23 @@
+---
+Links:
+[[Exodus 34:12]]
+[[Leviticus 19:17]]
+[[Deuteronomy 4:9]]
+[[Deuteronomy 4:15]]
+[[Deuteronomy 4:23]]
+[[2 Chronicles 19:6]]
+[[Psalms 141:5]]
+[[Proverbs 9:8]]
+[[Proverbs 17:10]]
+[[Proverbs 27:5]]
+[[Matthew 18:15]]
+[[Matthew 18:21]]
+[[Luke 21:34]]
+[[Galatians 2:11]]
+[[Ephesians 5:15]]
+[[Hebrews 12:15]]
+[[James 5:19]]
+[[2 John 1:8]]
+---
+
+"Take heed to yourselves: If thy brother trespass against thee, rebuke him; and if he repent, forgive him."

@@ -1,0 +1,26 @@
+---
+Links:
+[[Daniel 7:13]]
+[[Matthew 19:28]]
+[[Matthew 28:18]]
+[[Luke 22:30]]
+[[John 5:22]]
+[[John 13:32]]
+[[John 16:33]]
+[[1 Corinthians 6:2]]
+[[Ephesians 1:20]]
+[[Philippians 2:9]]
+[[2 Timothy 2:12]]
+[[1 John 5:4]]
+[[Revelation 1:6]]
+[[Revelation 2:7]]
+[[Revelation 2:26]]
+[[Revelation 5:5]]
+[[Revelation 6:2]]
+[[Revelation 7:17]]
+[[Revelation 12:11]]
+[[Revelation 17:14]]
+[[Revelation 20:4]]
+---
+
+"To him that overcometh will I grant to sit with me in my throne, even as I also overcame, and am set down with my Father in his throne."

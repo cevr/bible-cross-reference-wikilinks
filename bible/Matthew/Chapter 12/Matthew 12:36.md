@@ -1,5 +1,0 @@
-[[Ecclesiastes 12:14]]
-[[Romans 2:16]]
-[[Ephesians 6:4]]
-[[Jude 1:14]]
-[[Revelation 20:12]]

@@ -1,5 +1,0 @@
-[[2 Chronicles 23:18]]
-[[2 Chronicles 31:3]]
-[[Ezra 3:2]]
-[[Jeremiah 48:35]]
-[[Ezekiel 45:17]]

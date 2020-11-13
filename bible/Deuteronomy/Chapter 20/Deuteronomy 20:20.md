@@ -1,8 +1,0 @@
-[[Deuteronomy 1:28]]
-[[2 Kings 3:19]]
-[[2 Chronicles 26:15]]
-[[Ecclesiastes 9:14]]
-[[Isaiah 37:33]]
-[[Jeremiah 6:6]]
-[[Jeremiah 33:4]]
-[[Ezekiel 17:17]]

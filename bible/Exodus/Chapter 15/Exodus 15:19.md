@@ -1,6 +1,0 @@
-[[Exodus 14:22]]
-[[Exodus 14:28]]
-[[Exodus 14:29]]
-[[Joshua 4:23]]
-[[Proverbs 21:31]]
-[[Hebrews 11:29]]

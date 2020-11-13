@@ -1,0 +1,18 @@
+---
+Links:
+[[Exodus 15:18]]
+[[Psalms 10:16]]
+[[Psalms 145:13]]
+[[Psalms 147:12]]
+[[Isaiah 9:7]]
+[[Isaiah 12:6]]
+[[Isaiah 40:9]]
+[[Isaiah 52:7]]
+[[Daniel 2:44]]
+[[Daniel 6:26]]
+[[Daniel 7:14]]
+[[Joel 3:17]]
+[[Revelation 11:15]]
+---
+
+"The LORD shall reign for ever, even thy God, O Zion, unto all generations. Praise ye the LORD."

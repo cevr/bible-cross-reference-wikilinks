@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 41:46]]
+[[Numbers 1:3]]
+[[Numbers 1:50]]
+[[Numbers 3:7]]
+[[Numbers 4:23]]
+[[Numbers 4:30]]
+[[Numbers 4:35]]
+[[Numbers 4:47]]
+[[Numbers 8:24]]
+[[Numbers 16:9]]
+[[2 Kings 11:4]]
+[[1 Chronicles 6:48]]
+[[1 Chronicles 23:3]]
+[[1 Chronicles 23:24]]
+[[1 Chronicles 23:27]]
+[[1 Chronicles 28:12]]
+[[2 Chronicles 23:1]]
+[[2 Chronicles 31:17]]
+[[Ezra 3:8]]
+[[Luke 3:23]]
+[[2 Corinthians 10:3]]
+[[Ephesians 6:10]]
+[[1 Timothy 1:18]]
+[[1 Timothy 3:1]]
+[[1 Timothy 3:6]]
+---
+
+"From thirty years old and upward even until fifty years old, all that enter into the host, to do the work in the tabernacle of the congregation."

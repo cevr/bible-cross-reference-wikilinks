@@ -1,0 +1,12 @@
+---
+Links:
+[[Judges 17:2]]
+[[Proverbs 13:20]]
+[[Proverbs 18:9]]
+[[Proverbs 19:26]]
+[[Proverbs 22:9]]
+[[Proverbs 28:7]]
+[[Matthew 15:4]]
+---
+
+"Whoso robbeth his father or his mother, and saith, It is no transgression; the same is the companion of a destroyer."

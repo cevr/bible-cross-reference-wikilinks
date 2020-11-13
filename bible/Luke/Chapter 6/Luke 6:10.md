@@ -1,5 +1,0 @@
-[[Exodus 4:6]]
-[[1 Kings 13:6]]
-[[Psalms 107:20]]
-[[Mark 3:5]]
-[[John 5:8]]

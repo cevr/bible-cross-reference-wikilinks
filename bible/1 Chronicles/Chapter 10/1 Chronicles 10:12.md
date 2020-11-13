@@ -1,6 +1,0 @@
-[[Genesis 35:8]]
-[[Genesis 50:10]]
-[[1 Samuel 11:1]]
-[[1 Samuel 11:9]]
-[[2 Samuel 3:35]]
-[[2 Samuel 21:12]]

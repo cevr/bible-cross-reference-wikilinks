@@ -1,0 +1,14 @@
+---
+Links:
+[[Genesis 34:13]]
+[[Psalms 52:2]]
+[[Proverbs 11:18]]
+[[Ezekiel 17:13]]
+[[Daniel 8:24]]
+[[Daniel 8:25]]
+[[Romans 1:29]]
+[[2 Corinthians 11:3]]
+[[2 Thessalonians 2:9]]
+---
+
+"And after the league made with him he shall work deceitfully: for he shall come up, and shall become strong with a small people."

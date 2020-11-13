@@ -1,7 +1,0 @@
-[[Genesis 3:21]]
-[[Exodus 29:14]]
-[[Leviticus 1:6]]
-[[Leviticus 4:11]]
-[[Numbers 19:5]]
-[[Deuteronomy 18:8]]
-[[Romans 13:14]]

@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 15:20]]
+[[Judges 11:34]]
+[[1 Samuel 18:6]]
+[[2 Kings 19:21]]
+[[Psalms 51:18]]
+[[Psalms 69:35]]
+[[Psalms 149:3]]
+[[Psalms 150:3]]
+[[Isaiah 14:1]]
+[[Isaiah 37:22]]
+[[Jeremiah 1:10]]
+[[Jeremiah 14:17]]
+[[Jeremiah 18:13]]
+[[Jeremiah 30:18]]
+[[Jeremiah 30:19]]
+[[Jeremiah 31:13]]
+[[Jeremiah 31:21]]
+[[Jeremiah 33:7]]
+[[Lamentations 1:15]]
+[[Lamentations 2:13]]
+[[Amos 5:2]]
+[[Amos 9:11]]
+[[Luke 15:23]]
+[[Acts 15:16]]
+[[Ephesians 2:20]]
+[[Revelation 19:1]]
+[[Revelation 21:10]]
+---
+
+"Again I will build thee, and thou shalt be built, O virgin of Israel: thou shalt again be adorned with thy tabrets, and shalt go forth in the dances of them that make merry."

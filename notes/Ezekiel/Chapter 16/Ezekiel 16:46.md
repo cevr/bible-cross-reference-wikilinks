@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 13:10]]
+[[Genesis 14:8]]
+[[Genesis 18:20]]
+[[Genesis 19:24]]
+[[Genesis 19:29]]
+[[Deuteronomy 29:23]]
+[[Deuteronomy 32:32]]
+[[Isaiah 1:9]]
+[[Isaiah 10:11]]
+[[Jeremiah 3:8]]
+[[Jeremiah 23:14]]
+[[Lamentations 4:6]]
+[[Ezekiel 16:27]]
+[[Ezekiel 16:48]]
+[[Ezekiel 16:51]]
+[[Ezekiel 16:53]]
+[[Ezekiel 16:61]]
+[[Ezekiel 23:4]]
+[[Ezekiel 23:11]]
+[[Ezekiel 23:31]]
+[[Ezekiel 26:6]]
+[[Hosea 11:8]]
+[[Hosea 14:1]]
+[[Micah 1:5]]
+[[Luke 17:28]]
+[[2 Peter 2:6]]
+[[Jude 1:7]]
+[[Revelation 11:8]]
+---
+
+"And thine elder sister is Samaria, she and her daughters that dwell at thy left hand: and thy younger sister, that dwelleth at thy right hand, is Sodom and her daughters."

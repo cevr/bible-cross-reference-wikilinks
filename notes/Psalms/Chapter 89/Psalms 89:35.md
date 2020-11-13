@@ -1,0 +1,14 @@
+---
+Links:
+[[Numbers 23:19]]
+[[Psalms 110:4]]
+[[Psalms 132:11]]
+[[Amos 4:2]]
+[[Amos 8:7]]
+[[2 Thessalonians 2:13]]
+[[Titus 1:2]]
+[[Hebrews 6:13]]
+[[Hebrews 6:17]]
+---
+
+"Once have I sworn by my holiness that I will not lie unto David."

@@ -1,5 +1,0 @@
-[[Genesis 41:55]]
-[[2 Samuel 14:4]]
-[[Isaiah 10:3]]
-[[Luke 18:3]]
-[[Acts 21:28]]

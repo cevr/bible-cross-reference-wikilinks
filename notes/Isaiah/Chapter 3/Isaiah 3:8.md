@@ -1,0 +1,33 @@
+---
+Links:
+[[2 Chronicles 28:5]]
+[[2 Chronicles 28:18]]
+[[2 Chronicles 33:6]]
+[[2 Chronicles 33:11]]
+[[2 Chronicles 36:17]]
+[[Psalms 73:8]]
+[[Proverbs 26:27]]
+[[Isaiah 1:7]]
+[[Isaiah 5:18]]
+[[Isaiah 9:17]]
+[[Isaiah 57:4]]
+[[Isaiah 65:3]]
+[[Jeremiah 23:36]]
+[[Jeremiah 26:6]]
+[[Jeremiah 26:18]]
+[[Lamentations 5:16]]
+[[Ezekiel 8:4]]
+[[Ezekiel 8:12]]
+[[Ezekiel 8:17]]
+[[Ezekiel 9:9]]
+[[Hosea 5:5]]
+[[Hosea 7:16]]
+[[Micah 3:12]]
+[[Habakkuk 1:13]]
+[[Malachi 3:13]]
+[[Matthew 12:36]]
+[[1 Corinthians 10:22]]
+[[Jude 1:15]]
+---
+
+"For Jerusalem is ruined, and Judah is fallen: because their tongue and their doings are against the LORD, to provoke the eyes of his glory."

@@ -1,7 +1,0 @@
-[[Exodus 12:2]]
-[[Exodus 12:8]]
-[[Exodus 12:43]]
-[[Numbers 9:3]]
-[[Deuteronomy 16:3]]
-[[2 Chronicles 30:2]]
-[[John 19:36]]

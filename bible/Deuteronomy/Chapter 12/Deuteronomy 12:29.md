@@ -1,7 +1,0 @@
-[[Exodus 23:23]]
-[[Deuteronomy 9:3]]
-[[Deuteronomy 19:1]]
-[[Joshua 21:43]]
-[[Joshua 23:4]]
-[[2 Chronicles 33:2]]
-[[Psalms 78:55]]

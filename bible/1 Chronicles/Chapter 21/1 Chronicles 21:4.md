@@ -1,6 +1,0 @@
-[[Exodus 1:17]]
-[[2 Samuel 24:3]]
-[[2 Samuel 24:4]]
-[[Ecclesiastes 8:4]]
-[[Daniel 3:18]]
-[[Acts 5:29]]

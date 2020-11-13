@@ -1,0 +1,31 @@
+---
+Links:
+[[Numbers 16:22]]
+[[Deuteronomy 32:4]]
+[[1 Chronicles 16:33]]
+[[2 Chronicles 19:7]]
+[[Job 8:3]]
+[[Job 8:20]]
+[[Job 9:22]]
+[[Job 34:10]]
+[[Job 34:12]]
+[[Job 34:17]]
+[[Psalms 7:12]]
+[[Psalms 11:5]]
+[[Psalms 50:6]]
+[[Psalms 58:11]]
+[[Psalms 75:3]]
+[[Psalms 94:2]]
+[[Psalms 98:9]]
+[[Ecclesiastes 7:15]]
+[[Ecclesiastes 8:12]]
+[[Isaiah 3:10]]
+[[Isaiah 57:1]]
+[[Jeremiah 12:1]]
+[[Malachi 3:18]]
+[[John 5:22]]
+[[Romans 3:5]]
+[[2 Corinthians 5:10]]
+---
+
+"That be far from thee to do after this manner, to slay the righteous with the wicked: and that the righteous should be as the wicked, that be far from thee: Shall not the Judge of all the earth do right?"

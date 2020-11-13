@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 15:26]]
+[[Exodus 34:7]]
+[[Numbers 12:13]]
+[[Numbers 21:7]]
+[[2 Samuel 12:13]]
+[[Psalms 30:2]]
+[[Psalms 32:1]]
+[[Psalms 38:1]]
+[[Psalms 41:3]]
+[[Psalms 41:8]]
+[[Psalms 51:1]]
+[[Psalms 86:5]]
+[[Psalms 107:17]]
+[[Psalms 130:4]]
+[[Psalms 130:8]]
+[[Psalms 147:3]]
+[[Isaiah 33:24]]
+[[Isaiah 38:17]]
+[[Isaiah 43:25]]
+[[Isaiah 53:5]]
+[[Jeremiah 17:14]]
+[[Matthew 9:2]]
+[[Mark 2:5]]
+[[Mark 2:10]]
+[[Luke 7:47]]
+[[Ephesians 1:7]]
+[[James 5:15]]
+---
+
+"Who forgiveth all thine iniquities; who healeth all thy diseases;"

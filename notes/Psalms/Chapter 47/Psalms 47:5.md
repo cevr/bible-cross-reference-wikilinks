@@ -1,0 +1,31 @@
+---
+Links:
+[[Numbers 10:1]]
+[[Numbers 23:21]]
+[[Joshua 6:5]]
+[[2 Samuel 6:15]]
+[[1 Chronicles 15:24]]
+[[1 Chronicles 15:28]]
+[[1 Chronicles 16:42]]
+[[Psalms 24:7]]
+[[Psalms 68:17]]
+[[Psalms 68:24]]
+[[Psalms 68:33]]
+[[Psalms 78:65]]
+[[Psalms 81:3]]
+[[Psalms 98:6]]
+[[Psalms 150:3]]
+[[Ezekiel 20:6]]
+[[Amos 8:7]]
+[[Malachi 2:3]]
+[[Luke 24:51]]
+[[Acts 1:5]]
+[[1 Corinthians 15:52]]
+[[Ephesians 4:8]]
+[[1 Thessalonians 4:16]]
+[[1 Timothy 3:16]]
+[[Revelation 8:6]]
+[[Revelation 11:15]]
+---
+
+"God is gone up with a shout, the LORD with the sound of a trumpet."

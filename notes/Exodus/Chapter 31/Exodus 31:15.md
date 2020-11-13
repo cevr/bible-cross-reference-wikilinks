@@ -1,0 +1,21 @@
+---
+Links:
+[[Genesis 2:2]]
+[[Exodus 16:23]]
+[[Exodus 16:26]]
+[[Exodus 20:8]]
+[[Exodus 31:14]]
+[[Exodus 31:17]]
+[[Exodus 34:21]]
+[[Exodus 35:2]]
+[[Leviticus 23:3]]
+[[Leviticus 23:32]]
+[[Numbers 15:32]]
+[[Jeremiah 17:24]]
+[[Ezekiel 46:1]]
+[[Luke 13:14]]
+[[Luke 23:56]]
+[[Hebrews 4:9]]
+---
+
+"Six days may work be done; but in the seventh is the sabbath of rest, holy to the LORD: whosoever doeth any work in the sabbath day, he shall surely be put to death."

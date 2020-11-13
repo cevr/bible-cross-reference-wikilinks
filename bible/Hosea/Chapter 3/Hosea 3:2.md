@@ -1,7 +1,0 @@
-[[Genesis 31:41]]
-[[Genesis 34:12]]
-[[Exodus 22:17]]
-[[Leviticus 27:16]]
-[[1 Samuel 18:25]]
-[[Isaiah 5:10]]
-[[Ezekiel 45:11]]

@@ -1,0 +1,22 @@
+---
+Links:
+[[Exodus 22:28]]
+[[Psalms 9:1]]
+[[Psalms 9:2]]
+[[Psalms 57:9]]
+[[Psalms 82:1]]
+[[Psalms 82:6]]
+[[Psalms 86:12]]
+[[Psalms 95:3]]
+[[Psalms 96:4]]
+[[Psalms 103:1]]
+[[Psalms 111:1]]
+[[Psalms 119:46]]
+[[John 10:34]]
+[[Acts 23:5]]
+[[1 Corinthians 14:15]]
+[[Ephesians 5:19]]
+[[Hebrews 1:14]]
+---
+
+"I will praise thee with my whole heart: before the gods will I sing praise unto thee."

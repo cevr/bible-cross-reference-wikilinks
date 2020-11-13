@@ -1,0 +1,12 @@
+---
+Links:
+[[Romans 15:1]]
+[[1 Corinthians 9:19]]
+[[1 Corinthians 10:33]]
+[[1 Corinthians 13:5]]
+[[2 Corinthians 12:14]]
+[[Philippians 2:4]]
+[[Philippians 2:21]]
+---
+
+"Let no man seek his own, but every man another's wealth."

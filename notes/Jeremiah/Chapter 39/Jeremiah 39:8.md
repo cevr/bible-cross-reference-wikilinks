@@ -1,0 +1,25 @@
+---
+Links:
+[[2 Kings 25:8]]
+[[2 Kings 25:9]]
+[[2 Chronicles 36:19]]
+[[Nehemiah 1:3]]
+[[Isaiah 5:9]]
+[[Jeremiah 5:10]]
+[[Jeremiah 7:20]]
+[[Jeremiah 9:10]]
+[[Jeremiah 17:27]]
+[[Jeremiah 21:10]]
+[[Jeremiah 34:2]]
+[[Jeremiah 34:22]]
+[[Jeremiah 37:10]]
+[[Jeremiah 38:18]]
+[[Jeremiah 52:13]]
+[[Lamentations 1:10]]
+[[Lamentations 2:2]]
+[[Lamentations 2:7]]
+[[Amos 2:5]]
+[[Micah 3:12]]
+---
+
+"And the Chaldeans burned the king's house, and the houses of the people, with fire, and brake down the walls of Jerusalem."

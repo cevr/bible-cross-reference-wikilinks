@@ -1,0 +1,17 @@
+---
+Links:
+[[Numbers 23:23]]
+[[Numbers 24:1]]
+[[1 Samuel 9:7]]
+[[Isaiah 1:23]]
+[[Isaiah 56:11]]
+[[Ezekiel 13:19]]
+[[Micah 3:11]]
+[[Romans 16:18]]
+[[1 Timothy 6:9]]
+[[Titus 1:11]]
+[[2 Peter 2:15]]
+[[Jude 1:11]]
+---
+
+"And the elders of Moab and the elders of Midian departed with the rewards of divination in their hand; and they came unto Balaam, and spake unto him the words of Balak."

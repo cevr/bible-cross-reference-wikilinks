@@ -1,6 +1,0 @@
-[[Numbers 31:54]]
-[[Psalms 112:6]]
-[[Zechariah 6:14]]
-[[Matthew 24:14]]
-[[Matthew 26:12]]
-[[Mark 16:15]]

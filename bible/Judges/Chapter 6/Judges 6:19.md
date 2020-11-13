@@ -1,5 +1,0 @@
-[[Genesis 18:3]]
-[[Genesis 18:6]]
-[[Leviticus 2:4]]
-[[Judges 13:15]]
-[[Judges 13:20]]

@@ -1,6 +1,0 @@
-[[Deuteronomy 12:5]]
-[[1 Samuel 9:12]]
-[[1 Samuel 16:2]]
-[[1 Samuel 17:58]]
-[[1 Samuel 20:28]]
-[[John 7:42]]

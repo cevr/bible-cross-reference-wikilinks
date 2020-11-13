@@ -1,0 +1,20 @@
+---
+Links:
+[[Proverbs 1:22]]
+[[Proverbs 3:34]]
+[[Proverbs 14:6]]
+[[Isaiah 5:19]]
+[[Isaiah 28:14]]
+[[Isaiah 29:20]]
+[[Hosea 7:5]]
+[[2 Corinthians 4:2]]
+[[1 Timothy 4:1]]
+[[2 Timothy 3:1]]
+[[2 Peter 1:20]]
+[[2 Peter 2:10]]
+[[1 John 2:18]]
+[[Jude 1:16]]
+[[Jude 1:18]]
+---
+
+"Knowing this first, that there shall come in the last days scoffers, walking after their own lusts,"

@@ -1,0 +1,25 @@
+---
+Links:
+[[Genesis 1:26]]
+[[Genesis 3:8]]
+[[Genesis 3:22]]
+[[Genesis 11:7]]
+[[Genesis 22:1]]
+[[Genesis 22:11]]
+[[Exodus 4:10]]
+[[Deuteronomy 4:33]]
+[[2 Samuel 1:7]]
+[[1 Kings 22:20]]
+[[Isaiah 65:1]]
+[[Ezekiel 1:24]]
+[[Ezekiel 10:5]]
+[[Matthew 4:20]]
+[[Acts 9:4]]
+[[Acts 20:24]]
+[[Acts 22:21]]
+[[Acts 26:16]]
+[[Acts 28:25]]
+[[Ephesians 3:8]]
+---
+
+"Also I heard the voice of the Lord, saying, Whom shall I send, and who will go for us? Then said I, Here am I; send me."

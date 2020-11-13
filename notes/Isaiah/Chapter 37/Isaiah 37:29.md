@@ -1,0 +1,31 @@
+---
+Links:
+[[2 Kings 19:27]]
+[[Job 15:25]]
+[[Job 41:2]]
+[[Psalms 2:1]]
+[[Psalms 32:9]]
+[[Psalms 46:6]]
+[[Psalms 74:4]]
+[[Psalms 74:23]]
+[[Psalms 83:2]]
+[[Psalms 93:3]]
+[[Isaiah 10:12]]
+[[Isaiah 30:28]]
+[[Isaiah 36:4]]
+[[Isaiah 36:10]]
+[[Isaiah 37:7]]
+[[Isaiah 37:10]]
+[[Isaiah 37:34]]
+[[Ezekiel 29:4]]
+[[Ezekiel 35:13]]
+[[Ezekiel 38:4]]
+[[Amos 4:2]]
+[[Nahum 1:9]]
+[[Matthew 27:24]]
+[[John 15:22]]
+[[Acts 9:4]]
+[[Acts 22:22]]
+---
+
+"Because thy rage against me, and thy tumult, is come up into mine ears, therefore will I put my hook in thy nose, and my bridle in thy lips, and I will turn thee back by the way by which thou camest."

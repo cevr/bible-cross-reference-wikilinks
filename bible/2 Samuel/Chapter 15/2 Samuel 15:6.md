@@ -1,5 +1,0 @@
-[[Proverbs 11:9]]
-[[Ecclesiastes 4:15]]
-[[Daniel 11:21]]
-[[Romans 16:18]]
-[[2 Peter 2:3]]

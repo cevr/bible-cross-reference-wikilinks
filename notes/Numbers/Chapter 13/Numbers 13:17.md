@@ -1,0 +1,18 @@
+---
+Links:
+[[Genesis 12:9]]
+[[Genesis 13:1]]
+[[Genesis 14:10]]
+[[Numbers 13:21]]
+[[Numbers 13:29]]
+[[Numbers 14:40]]
+[[Deuteronomy 1:44]]
+[[Joshua 2:1]]
+[[Joshua 10:40]]
+[[Joshua 15:3]]
+[[Judges 1:9]]
+[[Judges 1:15]]
+[[Judges 1:19]]
+---
+
+"And Moses sent them to spy out the land of Canaan, and said unto them, Get you up this way southward, and go up into the mountain:"

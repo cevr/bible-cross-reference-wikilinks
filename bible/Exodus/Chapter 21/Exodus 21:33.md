@@ -1,7 +1,0 @@
-[[Leviticus 24:18]]
-[[Psalms 9:15]]
-[[Psalms 119:85]]
-[[Proverbs 28:10]]
-[[Ecclesiastes 10:8]]
-[[Jeremiah 18:20]]
-[[Jeremiah 18:22]]

@@ -1,6 +1,0 @@
-[[1 Kings 2:10]]
-[[Nehemiah 3:16]]
-[[Acts 7:8]]
-[[Acts 13:36]]
-[[Acts 26:26]]
-[[Hebrews 7:4]]

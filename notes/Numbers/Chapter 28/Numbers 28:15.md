@@ -1,0 +1,17 @@
+---
+Links:
+[[Leviticus 4:23]]
+[[Leviticus 16:15]]
+[[Leviticus 16:16]]
+[[Numbers 15:24]]
+[[Numbers 28:3]]
+[[Numbers 28:10]]
+[[Numbers 28:22]]
+[[Numbers 28:30]]
+[[Numbers 29:5]]
+[[Numbers 29:16]]
+[[Romans 8:3]]
+[[2 Corinthians 5:21]]
+---
+
+"And one kid of the goats for a sin offering unto the LORD shall be offered, beside the continual burnt offering, and his drink offering."

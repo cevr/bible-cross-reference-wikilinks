@@ -1,6 +1,0 @@
-[[Joshua 15:38]]
-[[Joshua 18:26]]
-[[Judges 20:1]]
-[[Judges 21:1]]
-[[1 Samuel 7:5]]
-[[Jeremiah 39:14]]

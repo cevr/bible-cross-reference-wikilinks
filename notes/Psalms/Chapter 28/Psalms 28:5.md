@@ -1,0 +1,32 @@
+---
+Links:
+[[Numbers 23:23]]
+[[2 Samuel 7:13]]
+[[2 Samuel 7:27]]
+[[1 Kings 11:38]]
+[[Job 34:26]]
+[[Psalms 8:3]]
+[[Psalms 10:5]]
+[[Psalms 19:1]]
+[[Psalms 92:4]]
+[[Psalms 104:24]]
+[[Psalms 111:2]]
+[[Isaiah 5:12]]
+[[Isaiah 22:11]]
+[[Isaiah 26:9]]
+[[Isaiah 26:11]]
+[[Isaiah 40:26]]
+[[Isaiah 45:8]]
+[[Isaiah 45:12]]
+[[Isaiah 45:18]]
+[[Jeremiah 10:12]]
+[[Jeremiah 31:4]]
+[[Jeremiah 32:20]]
+[[Hosea 14:9]]
+[[John 12:37]]
+[[Romans 1:20]]
+[[Romans 1:28]]
+[[Ephesians 1:19]]
+---
+
+"Because they regard not the works of the LORD, nor the operation of his hands, he shall destroy them, and not build them up."

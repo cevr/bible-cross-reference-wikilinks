@@ -1,5 +1,0 @@
-[[Genesis 12:2]]
-[[Exodus 12:37]]
-[[Exodus 38:26]]
-[[Numbers 1:46]]
-[[Numbers 2:32]]

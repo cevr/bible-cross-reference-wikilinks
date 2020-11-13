@@ -1,7 +1,0 @@
-[[Exodus 1:22]]
-[[1 Kings 8:50]]
-[[Nehemiah 1:11]]
-[[Psalms 106:46]]
-[[Proverbs 21:1]]
-[[Acts 7:21]]
-[[1 Peter 3:8]]

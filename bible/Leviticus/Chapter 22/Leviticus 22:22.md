@@ -1,7 +1,0 @@
-[[Leviticus 1:9]]
-[[Leviticus 1:13]]
-[[Leviticus 3:3]]
-[[Leviticus 3:5]]
-[[Leviticus 21:18]]
-[[Leviticus 22:20]]
-[[Malachi 1:8]]

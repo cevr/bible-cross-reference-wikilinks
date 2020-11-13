@@ -1,5 +1,0 @@
-[[Psalms 94:12]]
-[[Psalms 119:67]]
-[[Isaiah 27:9]]
-[[1 Corinthians 11:32]]
-[[Hebrews 12:10]]

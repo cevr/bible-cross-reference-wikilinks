@@ -1,6 +1,0 @@
-[[Joshua 19:18]]
-[[1 Kings 22:34]]
-[[2 Kings 8:28]]
-[[2 Kings 9:14]]
-[[2 Kings 9:15]]
-[[2 Chronicles 22:5]]

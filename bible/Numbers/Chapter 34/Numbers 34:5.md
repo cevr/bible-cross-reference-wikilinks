@@ -1,7 +1,0 @@
-[[Genesis 15:18]]
-[[Numbers 34:6]]
-[[Joshua 15:4]]
-[[Joshua 15:47]]
-[[1 Kings 8:65]]
-[[Isaiah 27:12]]
-[[Daniel 11:45]]

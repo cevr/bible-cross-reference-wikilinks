@@ -1,6 +1,0 @@
-[[Genesis 30:18]]
-[[Genesis 46:13]]
-[[Genesis 49:14]]
-[[Numbers 2:5]]
-[[Numbers 23:23]]
-[[Numbers 26:23]]

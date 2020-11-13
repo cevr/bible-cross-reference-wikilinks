@@ -1,7 +1,0 @@
-[[2 Samuel 6:12]]
-[[1 Chronicles 13:8]]
-[[1 Chronicles 15:16]]
-[[Psalms 24:7]]
-[[Psalms 47:5]]
-[[Psalms 58:11]]
-[[Psalms 63:2]]

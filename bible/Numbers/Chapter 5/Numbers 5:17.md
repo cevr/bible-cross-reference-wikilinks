@@ -1,7 +1,0 @@
-[[Exodus 30:18]]
-[[Numbers 19:2]]
-[[Job 2:12]]
-[[Jeremiah 17:13]]
-[[Lamentations 3:29]]
-[[John 8:6]]
-[[John 8:8]]

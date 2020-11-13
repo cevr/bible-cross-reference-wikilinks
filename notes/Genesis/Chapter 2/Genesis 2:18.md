@@ -1,0 +1,14 @@
+---
+Links:
+[[Genesis 1:31]]
+[[Genesis 3:12]]
+[[Ruth 3:1]]
+[[Proverbs 18:22]]
+[[Ecclesiastes 4:9]]
+[[1 Corinthians 7:36]]
+[[1 Corinthians 11:7]]
+[[1 Timothy 2:11]]
+[[1 Peter 3:7]]
+---
+
+"And the LORD God said, It is not good that the man should be alone; I will make him an help meet for him."

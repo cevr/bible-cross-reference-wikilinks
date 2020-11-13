@@ -1,8 +1,0 @@
-[[Exodus 25:10]]
-[[Exodus 25:13]]
-[[Exodus 35:19]]
-[[Exodus 39:1]]
-[[Exodus 39:41]]
-[[Numbers 4:7]]
-[[Numbers 4:11]]
-[[1 Kings 8:7]]

@@ -1,5 +1,0 @@
-[[Isaiah 51:17]]
-[[Isaiah 51:22]]
-[[Jeremiah 25:15]]
-[[Jeremiah 25:27]]
-[[Habakkuk 2:16]]

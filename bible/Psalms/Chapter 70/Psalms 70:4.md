@@ -1,8 +1,0 @@
-[[Psalms 5:11]]
-[[Psalms 35:27]]
-[[Psalms 40:16]]
-[[Psalms 97:12]]
-[[Isaiah 61:10]]
-[[Isaiah 65:13]]
-[[Lamentations 3:25]]
-[[John 16:20]]

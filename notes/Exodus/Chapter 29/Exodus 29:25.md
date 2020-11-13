@@ -1,0 +1,25 @@
+---
+Links:
+[[Genesis 8:20]]
+[[Exodus 29:41]]
+[[Leviticus 1:9]]
+[[Leviticus 1:13]]
+[[Leviticus 2:2]]
+[[Leviticus 2:9]]
+[[Leviticus 2:16]]
+[[Leviticus 3:3]]
+[[Leviticus 3:5]]
+[[Leviticus 3:9]]
+[[Leviticus 3:11]]
+[[Leviticus 3:14]]
+[[Leviticus 3:16]]
+[[Leviticus 7:5]]
+[[Leviticus 7:25]]
+[[Leviticus 7:29]]
+[[Leviticus 8:28]]
+[[Leviticus 10:13]]
+[[1 Samuel 2:28]]
+[[Psalms 99:6]]
+---
+
+"And thou shalt receive them of their hands, and burn them upon the altar for a burnt offering, for a sweet savour before the LORD: it is an offering made by fire unto the LORD."

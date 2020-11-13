@@ -1,0 +1,29 @@
+---
+Links:
+[[1 Samuel 15:16]]
+[[1 Samuel 15:26]]
+[[1 Samuel 28:18]]
+[[1 Kings 13:20]]
+[[1 Kings 14:2]]
+[[1 Kings 14:5]]
+[[1 Kings 14:10]]
+[[1 Kings 20:42]]
+[[1 Kings 21:18]]
+[[1 Kings 22:8]]
+[[Job 5:13]]
+[[Psalms 33:10]]
+[[Proverbs 21:30]]
+[[Jeremiah 21:2]]
+[[Ezekiel 2:4]]
+[[Ezekiel 14:3]]
+[[Ezekiel 14:7]]
+[[Daniel 4:19]]
+[[Daniel 5:17]]
+[[Mark 14:21]]
+[[Luke 20:20]]
+[[Acts 5:3]]
+[[Acts 5:9]]
+[[Hebrews 4:13]]
+---
+
+"And it was so, when Ahijah heard the sound of her feet, as she came in at the door, that he said, Come in, thou wife of Jeroboam; why feignest thou thyself to be another? for I am sent to thee with heavy tidings."

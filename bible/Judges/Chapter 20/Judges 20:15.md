@@ -1,6 +1,0 @@
-[[Numbers 1:37]]
-[[Numbers 26:41]]
-[[Judges 20:22]]
-[[Judges 20:25]]
-[[Judges 20:35]]
-[[Judges 20:46]]

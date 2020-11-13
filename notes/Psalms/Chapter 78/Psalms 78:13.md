@@ -1,0 +1,21 @@
+---
+Links:
+[[Exodus 14:1]]
+[[Exodus 14:21]]
+[[Exodus 14:22]]
+[[Exodus 14:29]]
+[[Exodus 15:8]]
+[[Joshua 3:13]]
+[[Joshua 3:16]]
+[[Psalms 38:7]]
+[[Psalms 66:6]]
+[[Psalms 106:9]]
+[[Psalms 136:13]]
+[[Psalms 136:14]]
+[[Isaiah 63:12]]
+[[Isaiah 63:13]]
+[[Habakkuk 3:15]]
+[[1 Corinthians 10:2]]
+---
+
+"He divided the sea, and caused them to pass through; and he made the waters to stand as an heap."

@@ -1,0 +1,25 @@
+---
+Links:
+[[Psalms 73:7]]
+[[Psalms 111:9]]
+[[Songs of Solomon 1:3]]
+[[Isaiah 7:14]]
+[[Isaiah 9:6]]
+[[Isaiah 65:15]]
+[[Jeremiah 23:6]]
+[[Matthew 1:23]]
+[[Matthew 12:24]]
+[[Matthew 27:63]]
+[[Luke 22:64]]
+[[Acts 4:12]]
+[[Acts 11:26]]
+[[Acts 26:11]]
+[[Ephesians 3:15]]
+[[Philippians 2:9]]
+[[1 Timothy 1:13]]
+[[Revelation 13:5]]
+[[Revelation 19:13]]
+[[Revelation 19:16]]
+---
+
+"Do not they blaspheme that worthy name by the which ye are called?"

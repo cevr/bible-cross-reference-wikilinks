@@ -1,0 +1,31 @@
+---
+Links:
+[[Psalms 12:4]]
+[[Psalms 12:5]]
+[[Psalms 52:2]]
+[[Psalms 57:4]]
+[[Psalms 73:9]]
+[[Psalms 78:37]]
+[[Psalms 78:57]]
+[[Isaiah 3:8]]
+[[Jeremiah 3:10]]
+[[Jeremiah 18:18]]
+[[Jeremiah 42:18]]
+[[Ezekiel 23:32]]
+[[Ezekiel 36:20]]
+[[Hosea 6:4]]
+[[Hosea 7:13]]
+[[Hosea 8:13]]
+[[Hosea 9:3]]
+[[Hosea 9:4]]
+[[Hosea 9:6]]
+[[Hosea 11:7]]
+[[Matthew 12:36]]
+[[Luke 8:13]]
+[[Luke 11:24]]
+[[James 3:5]]
+[[2 Peter 2:8]]
+[[Revelation 13:5]]
+---
+
+"They return, but not to the most High: they are like a deceitful bow: their princes shall fall by the sword for the rage of their tongue: this shall be their derision in the land of Egypt."

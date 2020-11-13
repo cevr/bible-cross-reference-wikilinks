@@ -1,0 +1,18 @@
+---
+Links:
+[[Exodus 8:22]]
+[[Deuteronomy 10:8]]
+[[1 Kings 17:1]]
+[[Psalms 52:8]]
+[[Isaiah 54:5]]
+[[Jeremiah 11:16]]
+[[Micah 4:13]]
+[[Zechariah 4:2]]
+[[Zechariah 4:11]]
+[[Matthew 5:14]]
+[[Luke 11:33]]
+[[Romans 11:17]]
+[[Revelation 1:20]]
+---
+
+"These are the two olive trees, and the two candlesticks standing before the God of the earth."

@@ -1,6 +1,0 @@
-[[Genesis 2:21]]
-[[Genesis 15:12]]
-[[1 Samuel 24:4]]
-[[1 Samuel 26:7]]
-[[Esther 6:1]]
-[[Isaiah 29:10]]

@@ -1,0 +1,13 @@
+---
+Links:
+[[Matthew 16:6]]
+[[Matthew 23:33]]
+[[Mark 8:15]]
+[[Luke 12:1]]
+[[Luke 13:21]]
+[[1 Corinthians 5:6]]
+[[1 Corinthians 15:33]]
+[[2 Timothy 2:17]]
+---
+
+"A little leaven leaveneth the whole lump."

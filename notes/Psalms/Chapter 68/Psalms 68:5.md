@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 3:15]]
+[[Deuteronomy 10:18]]
+[[Deuteronomy 26:15]]
+[[2 Chronicles 6:2]]
+[[2 Chronicles 30:27]]
+[[Job 29:12]]
+[[Job 31:16]]
+[[Psalms 10:14]]
+[[Psalms 10:18]]
+[[Psalms 33:14]]
+[[Psalms 72:2]]
+[[Psalms 72:4]]
+[[Psalms 82:3]]
+[[Psalms 118:19]]
+[[Psalms 146:9]]
+[[Psalms 150:6]]
+[[Isaiah 1:23]]
+[[Isaiah 12:4]]
+[[Isaiah 57:15]]
+[[Isaiah 66:1]]
+[[Jeremiah 5:28]]
+[[Jeremiah 49:11]]
+[[Hosea 14:3]]
+[[Luke 18:2]]
+[[Acts 7:48]]
+[[Ephesians 5:1]]
+---
+
+"A father of the fatherless, and a judge of the widows, is God in his holy habitation."

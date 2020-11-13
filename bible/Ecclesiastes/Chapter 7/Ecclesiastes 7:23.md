@@ -1,6 +1,0 @@
-[[Genesis 3:5]]
-[[1 Kings 3:11]]
-[[1 Kings 11:1]]
-[[Ecclesiastes 1:17]]
-[[Romans 1:22]]
-[[1 Corinthians 1:20]]

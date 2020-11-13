@@ -1,5 +1,0 @@
-[[Daniel 7:9]]
-[[Daniel 10:6]]
-[[Matthew 28:3]]
-[[Revelation 2:18]]
-[[Revelation 19:12]]

@@ -1,0 +1,16 @@
+---
+Links:
+[[1 Kings 20:1]]
+[[1 Kings 20:23]]
+[[1 Kings 20:34]]
+[[1 Kings 22:1]]
+[[1 Kings 22:31]]
+[[2 Kings 6:24]]
+[[Job 5:12]]
+[[Proverbs 20:18]]
+[[Proverbs 21:30]]
+[[Isaiah 7:5]]
+[[Isaiah 8:10]]
+---
+
+"Then the king of Syria warred against Israel, and took counsel with his servants, saying, In such and such a place shall be my camp."

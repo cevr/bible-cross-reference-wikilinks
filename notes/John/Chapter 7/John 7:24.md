@@ -1,0 +1,19 @@
+---
+Links:
+[[Leviticus 19:15]]
+[[Deuteronomy 1:16]]
+[[Deuteronomy 16:18]]
+[[Psalms 58:1]]
+[[Psalms 82:2]]
+[[Psalms 94:20]]
+[[Proverbs 17:15]]
+[[Proverbs 24:23]]
+[[Isaiah 5:23]]
+[[Isaiah 11:3]]
+[[John 8:15]]
+[[James 2:1]]
+[[James 2:4]]
+[[James 2:9]]
+---
+
+"Judge not according to the appearance, but judge righteous judgment."

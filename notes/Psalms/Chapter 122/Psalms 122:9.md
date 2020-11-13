@@ -1,0 +1,16 @@
+---
+Links:
+[[1 Chronicles 29:3]]
+[[Nehemiah 2:10]]
+[[Nehemiah 13:14]]
+[[Esther 10:3]]
+[[Psalms 26:8]]
+[[Psalms 69:9]]
+[[Psalms 84:1]]
+[[Psalms 84:10]]
+[[Psalms 102:13]]
+[[Psalms 137:5]]
+[[John 2:17]]
+---
+
+"Because of the house of the LORD our God I will seek thy good."

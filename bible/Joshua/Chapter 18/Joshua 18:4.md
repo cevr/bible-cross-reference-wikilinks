@@ -1,7 +1,0 @@
-[[Numbers 1:4]]
-[[Numbers 13:2]]
-[[Joshua 3:12]]
-[[Joshua 4:2]]
-[[Joshua 18:3]]
-[[Joshua 18:6]]
-[[Joshua 18:9]]

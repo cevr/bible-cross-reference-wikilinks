@@ -1,8 +1,0 @@
-[[Numbers 20:14]]
-[[Numbers 21:21]]
-[[Deuteronomy 2:26]]
-[[Deuteronomy 20:10]]
-[[Judges 12:2]]
-[[2 Kings 14:8]]
-[[Proverbs 25:8]]
-[[Matthew 18:15]]

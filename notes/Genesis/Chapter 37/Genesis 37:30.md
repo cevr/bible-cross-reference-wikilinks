@@ -1,0 +1,11 @@
+---
+Links:
+[[Genesis 37:20]]
+[[Genesis 42:13]]
+[[Genesis 42:32]]
+[[Genesis 42:35]]
+[[Genesis 42:36]]
+[[Jeremiah 31:15]]
+---
+
+"And he returned unto his brethren, and said, The child is not; and I, whither shall I go?"

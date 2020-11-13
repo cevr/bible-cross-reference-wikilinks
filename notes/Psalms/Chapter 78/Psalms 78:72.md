@@ -1,0 +1,20 @@
+---
+Links:
+[[2 Samuel 8:15]]
+[[1 Kings 3:6]]
+[[1 Kings 3:28]]
+[[1 Kings 9:4]]
+[[1 Kings 15:5]]
+[[Psalms 75:2]]
+[[Psalms 101:1]]
+[[Isaiah 11:2]]
+[[Ezekiel 34:2]]
+[[Zechariah 11:15]]
+[[Acts 13:22]]
+[[Acts 13:36]]
+[[2 Corinthians 3:5]]
+[[2 Timothy 2:15]]
+[[James 1:5]]
+---
+
+"So he fed them according to the integrity of his heart; and guided them by the skilfulness of his hands."

@@ -1,0 +1,18 @@
+---
+Links:
+[[Genesis 9:22]]
+[[Genesis 10:6]]
+[[Genesis 49:3]]
+[[Exodus 12:12]]
+[[Exodus 12:29]]
+[[Exodus 13:15]]
+[[Psalms 105:23]]
+[[Psalms 105:27]]
+[[Psalms 105:36]]
+[[Psalms 106:22]]
+[[Psalms 135:8]]
+[[Psalms 136:10]]
+[[Hebrews 11:28]]
+---
+
+"And smote all the firstborn in Egypt; the chief of their strength in the tabernacles of Ham:"

@@ -1,0 +1,20 @@
+---
+Links:
+[[Psalms 37:1]]
+[[Psalms 73:3]]
+[[Psalms 111:10]]
+[[Proverbs 3:31]]
+[[Proverbs 15:16]]
+[[Proverbs 24:1]]
+[[Proverbs 24:19]]
+[[Proverbs 24:21]]
+[[Proverbs 28:14]]
+[[Ecclesiastes 5:6]]
+[[Ecclesiastes 5:7]]
+[[Ecclesiastes 12:13]]
+[[Acts 9:31]]
+[[2 Corinthians 7:1]]
+[[1 Peter 1:17]]
+---
+
+"Let not thine heart envy sinners: but be thou in the fear of the LORD all the day long."

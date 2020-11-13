@@ -1,5 +1,0 @@
-[[1 Samuel 10:16]]
-[[1 Samuel 14:1]]
-[[1 Samuel 14:25]]
-[[Proverbs 24:13]]
-[[Proverbs 25:15]]

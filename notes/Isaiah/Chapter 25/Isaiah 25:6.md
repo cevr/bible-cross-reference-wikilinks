@@ -1,0 +1,33 @@
+---
+Links:
+[[Psalms 63:5]]
+[[Psalms 72:14]]
+[[Psalms 78:68]]
+[[Proverbs 9:1]]
+[[Songs of Solomon 1:2]]
+[[Songs of Solomon 1:4]]
+[[Songs of Solomon 2:3]]
+[[Songs of Solomon 5:1]]
+[[Isaiah 1:19]]
+[[Isaiah 2:2]]
+[[Isaiah 25:10]]
+[[Isaiah 49:6]]
+[[Isaiah 55:1]]
+[[Jeremiah 31:12]]
+[[Jeremiah 48:11]]
+[[Daniel 7:14]]
+[[Micah 4:1]]
+[[Zechariah 8:3]]
+[[Zechariah 9:16]]
+[[Matthew 8:11]]
+[[Matthew 22:1]]
+[[Matthew 26:29]]
+[[Mark 16:15]]
+[[Luke 5:39]]
+[[Luke 14:16]]
+[[Luke 22:30]]
+[[Hebrews 12:22]]
+[[Revelation 19:9]]
+---
+
+"And in this mountain shall the LORD of hosts make unto all people a feast of fat things, a feast of wines on the lees, of fat things full of marrow, of wines on the lees well refined."

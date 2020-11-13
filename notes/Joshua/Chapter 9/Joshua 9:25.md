@@ -1,0 +1,16 @@
+---
+Links:
+[[Genesis 16:6]]
+[[Judges 8:15]]
+[[Judges 10:15]]
+[[1 Samuel 3:18]]
+[[2 Samuel 15:26]]
+[[2 Samuel 24:14]]
+[[2 Kings 10:5]]
+[[Isaiah 47:6]]
+[[Jeremiah 26:14]]
+[[Jeremiah 38:5]]
+[[Matthew 11:26]]
+---
+
+"And now, behold, we are in thine hand: as it seemeth good and right unto thee to do unto us, do."

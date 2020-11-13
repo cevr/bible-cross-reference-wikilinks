@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 48:4]]
+[[2 Samuel 7:13]]
+[[2 Samuel 7:16]]
+[[Isaiah 9:6]]
+[[Isaiah 11:1]]
+[[Isaiah 60:21]]
+[[Isaiah 66:22]]
+[[Jeremiah 30:3]]
+[[Jeremiah 31:24]]
+[[Jeremiah 32:41]]
+[[Ezekiel 28:25]]
+[[Ezekiel 36:28]]
+[[Ezekiel 37:21]]
+[[Ezekiel 37:24]]
+[[Ezekiel 37:26]]
+[[Daniel 2:44]]
+[[Joel 3:20]]
+[[Amos 9:15]]
+[[Zephaniah 3:14]]
+[[Zechariah 6:12]]
+[[Zechariah 14:11]]
+[[Luke 1:32]]
+[[John 12:34]]
+[[Hebrews 7:2]]
+[[Hebrews 7:21]]
+---
+
+"And they shall dwell in the land that I have given unto Jacob my servant, wherein your fathers have dwelt; and they shall dwell therein, even they, and their children, and their children's children for ever: and my servant David shall be their prince for ever."

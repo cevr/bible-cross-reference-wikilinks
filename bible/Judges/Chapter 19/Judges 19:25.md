@@ -1,6 +1,0 @@
-[[Genesis 4:1]]
-[[Jeremiah 5:7]]
-[[Hosea 7:4]]
-[[Hosea 9:9]]
-[[Hosea 10:9]]
-[[Ephesians 4:19]]

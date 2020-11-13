@@ -1,7 +1,0 @@
-[[Genesis 45:1]]
-[[Joshua 4:20]]
-[[Judges 3:20]]
-[[2 Samuel 13:9]]
-[[2 Kings 9:5]]
-[[Psalms 78:58]]
-[[Acts 23:18]]

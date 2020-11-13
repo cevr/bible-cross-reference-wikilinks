@@ -1,7 +1,0 @@
-[[Genesis 48:19]]
-[[Numbers 1:10]]
-[[Numbers 2:18]]
-[[Numbers 2:24]]
-[[Numbers 7:48]]
-[[Numbers 26:23]]
-[[Psalms 80:1]]

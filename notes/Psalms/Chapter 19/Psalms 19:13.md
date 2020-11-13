@@ -1,0 +1,26 @@
+---
+Links:
+[[Genesis 20:6]]
+[[Exodus 21:14]]
+[[Leviticus 4:2]]
+[[Leviticus 4:13]]
+[[Leviticus 4:22]]
+[[Leviticus 4:27]]
+[[Numbers 15:30]]
+[[Deuteronomy 17:12]]
+[[1 Samuel 25:32]]
+[[1 Samuel 25:39]]
+[[1 Chronicles 10:13]]
+[[Job 34:32]]
+[[Psalms 7:10]]
+[[Psalms 11:7]]
+[[Psalms 18:23]]
+[[Psalms 84:11]]
+[[Psalms 119:133]]
+[[Acts 24:16]]
+[[Romans 6:12]]
+[[Romans 6:16]]
+[[2 Peter 2:10]]
+---
+
+"Keep back thy servant also from presumptuous sins; let them not have dominion over me: then shall I be upright, and I shall be innocent from the great transgression."

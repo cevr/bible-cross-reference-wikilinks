@@ -1,0 +1,30 @@
+---
+Links:
+[[Leviticus 26:17]]
+[[Deuteronomy 29:20]]
+[[Deuteronomy 29:23]]
+[[1 Kings 9:8]]
+[[Jeremiah 21:5]]
+[[Jeremiah 21:13]]
+[[Jeremiah 22:8]]
+[[Jeremiah 24:9]]
+[[Jeremiah 50:7]]
+[[Lamentations 2:5]]
+[[Lamentations 2:15]]
+[[Lamentations 3:3]]
+[[Ezekiel 11:9]]
+[[Ezekiel 15:7]]
+[[Ezekiel 16:41]]
+[[Ezekiel 21:3]]
+[[Ezekiel 25:2]]
+[[Ezekiel 26:2]]
+[[Ezekiel 28:22]]
+[[Ezekiel 29:6]]
+[[Ezekiel 35:3]]
+[[Ezekiel 35:10]]
+[[Ezekiel 39:1]]
+[[Zechariah 14:2]]
+[[Matthew 22:7]]
+---
+
+"Therefore thus saith the Lord GOD; Behold, I, even I, am against thee, and will execute judgments in the midst of thee in the sight of the nations."

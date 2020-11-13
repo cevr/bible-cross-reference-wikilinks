@@ -1,0 +1,33 @@
+---
+Links:
+[[Exodus 15:1]]
+[[Exodus 19:4]]
+[[2 Samuel 7:23]]
+[[Ezra 2:1]]
+[[Psalms 126:1]]
+[[Isaiah 12:1]]
+[[Isaiah 26:1]]
+[[Isaiah 43:1]]
+[[Isaiah 45:22]]
+[[Isaiah 48:6]]
+[[Isaiah 49:13]]
+[[Isaiah 52:9]]
+[[Isaiah 52:11]]
+[[Isaiah 63:9]]
+[[Jeremiah 31:10]]
+[[Jeremiah 31:11]]
+[[Jeremiah 31:12]]
+[[Jeremiah 50:2]]
+[[Jeremiah 50:8]]
+[[Jeremiah 51:6]]
+[[Jeremiah 51:45]]
+[[Jeremiah 51:48]]
+[[Zechariah 2:6]]
+[[Zechariah 2:10]]
+[[Zechariah 10:8]]
+[[Revelation 18:4]]
+[[Revelation 18:20]]
+[[Revelation 19:1]]
+---
+
+"Go ye forth of Babylon, flee ye from the Chaldeans, with a voice of singing declare ye, tell this, utter it even to the end of the earth; say ye, The LORD hath redeemed his servant Jacob."

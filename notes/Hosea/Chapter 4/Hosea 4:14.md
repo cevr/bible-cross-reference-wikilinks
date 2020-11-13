@@ -1,0 +1,25 @@
+---
+Links:
+[[Numbers 25:3]]
+[[Deuteronomy 23:17]]
+[[1 Kings 14:23]]
+[[1 Kings 15:12]]
+[[2 Kings 23:7]]
+[[Proverbs 28:5]]
+[[Isaiah 1:5]]
+[[Isaiah 27:11]]
+[[Isaiah 44:18]]
+[[Isaiah 56:11]]
+[[Daniel 12:10]]
+[[Hosea 4:1]]
+[[Hosea 4:5]]
+[[Hosea 4:17]]
+[[Hosea 14:9]]
+[[John 8:43]]
+[[Romans 3:11]]
+[[1 Corinthians 6:16]]
+[[Ephesians 4:18]]
+[[Hebrews 12:8]]
+---
+
+"I will not punish your daughters when they commit whoredom, nor your spouses when they commit adultery: for themselves are separated with whores, and they sacrifice with harlots: therefore the people that doth not understand shall fall."

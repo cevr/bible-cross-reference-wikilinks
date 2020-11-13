@@ -1,5 +1,0 @@
-[[Leviticus 25:44]]
-[[Deuteronomy 20:14]]
-[[Deuteronomy 21:10]]
-[[2 Chronicles 28:8]]
-[[Isaiah 14:2]]

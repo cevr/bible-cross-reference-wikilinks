@@ -1,5 +1,0 @@
-[[Exodus 4:21]]
-[[Exodus 7:13]]
-[[Exodus 7:14]]
-[[Exodus 8:3]]
-[[Exodus 8:9]]

@@ -1,0 +1,32 @@
+---
+Links:
+[[Deuteronomy 30:13]]
+[[Acts 2:17]]
+[[Acts 8:26]]
+[[Acts 9:10]]
+[[Acts 9:38]]
+[[Acts 10:3]]
+[[Acts 10:10]]
+[[Acts 10:30]]
+[[Acts 10:32]]
+[[Acts 11:5]]
+[[Acts 18:5]]
+[[Acts 18:9]]
+[[Acts 19:21]]
+[[Acts 20:1]]
+[[Acts 20:3]]
+[[Acts 22:17]]
+[[Acts 27:23]]
+[[Romans 10:14]]
+[[Romans 15:26]]
+[[2 Corinthians 7:5]]
+[[2 Corinthians 8:1]]
+[[2 Corinthians 9:2]]
+[[2 Corinthians 11:9]]
+[[2 Corinthians 12:1]]
+[[2 Corinthians 12:7]]
+[[1 Thessalonians 1:7]]
+[[1 Thessalonians 4:10]]
+---
+
+"And a vision appeared to Paul in the night; There stood a man of Macedonia, and prayed him, saying, Come over into Macedonia, and help us."

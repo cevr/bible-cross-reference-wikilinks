@@ -1,6 +1,0 @@
-[[Genesis 17:5]]
-[[Genesis 17:15]]
-[[Genesis 32:27]]
-[[Genesis 32:29]]
-[[1 Kings 18:31]]
-[[2 Kings 17:34]]

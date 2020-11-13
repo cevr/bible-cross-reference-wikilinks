@@ -1,0 +1,30 @@
+---
+Links:
+[[Job 19:23]]
+[[Psalms 42:5]]
+[[Psalms 42:11]]
+[[Psalms 43:5]]
+[[Isaiah 59:17]]
+[[Lamentations 3:26]]
+[[Romans 5:2]]
+[[Romans 8:24]]
+[[Romans 13:12]]
+[[1 Corinthians 13:13]]
+[[2 Corinthians 6:7]]
+[[Galatians 5:5]]
+[[Ephesians 5:8]]
+[[Ephesians 6:11]]
+[[Ephesians 6:13]]
+[[Ephesians 6:23]]
+[[1 Thessalonians 5:5]]
+[[2 Thessalonians 2:16]]
+[[Hebrews 6:19]]
+[[Hebrews 10:35]]
+[[1 Peter 1:3]]
+[[1 Peter 1:13]]
+[[1 Peter 2:9]]
+[[1 John 1:7]]
+[[1 John 3:1]]
+---
+
+"But let us, who are of the day, be sober, putting on the breastplate of faith and love; and for an helmet, the hope of salvation."

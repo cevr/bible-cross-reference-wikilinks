@@ -1,7 +1,0 @@
-[[2 Chronicles 7:3]]
-[[2 Chronicles 7:6]]
-[[2 Chronicles 20:21]]
-[[2 Chronicles 23:18]]
-[[2 Chronicles 30:21]]
-[[Psalms 136:1]]
-[[Psalms 137:3]]

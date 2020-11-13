@@ -1,0 +1,17 @@
+---
+Links:
+[[1 Samuel 10:16]]
+[[Nehemiah 2:12]]
+[[Nehemiah 2:16]]
+[[Proverbs 10:14]]
+[[Proverbs 10:19]]
+[[Proverbs 11:13]]
+[[Proverbs 13:16]]
+[[Proverbs 14:33]]
+[[Proverbs 15:2]]
+[[Proverbs 18:2]]
+[[Ecclesiastes 10:3]]
+[[Ecclesiastes 10:12]]
+---
+
+"A prudent man concealeth knowledge: but the heart of fools proclaimeth foolishness."

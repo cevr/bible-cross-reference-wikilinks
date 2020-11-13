@@ -1,6 +1,0 @@
-[[2 Kings 4:27]]
-[[2 Kings 6:8]]
-[[Psalms 139:1]]
-[[Proverbs 21:30]]
-[[Amos 3:7]]
-[[Acts 10:19]]

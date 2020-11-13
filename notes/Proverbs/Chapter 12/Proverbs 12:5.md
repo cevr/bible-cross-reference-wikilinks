@@ -1,0 +1,23 @@
+---
+Links:
+[[Psalms 12:2]]
+[[Psalms 36:2]]
+[[Psalms 41:6]]
+[[Psalms 119:15]]
+[[Psalms 139:23]]
+[[Psalms 140:1]]
+[[Proverbs 11:23]]
+[[Proverbs 14:8]]
+[[Proverbs 24:9]]
+[[Isaiah 55:7]]
+[[Jeremiah 4:14]]
+[[Jeremiah 9:3]]
+[[Jeremiah 9:5]]
+[[Matthew 2:3]]
+[[Matthew 2:16]]
+[[Matthew 26:4]]
+[[1 Corinthians 4:5]]
+[[2 Corinthians 4:2]]
+---
+
+"The thoughts of the righteous are right: but the counsels of the wicked are deceit."

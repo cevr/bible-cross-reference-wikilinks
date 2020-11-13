@@ -1,0 +1,24 @@
+---
+Links:
+[[Matthew 15:17]]
+[[Matthew 15:20]]
+[[Mark 7:19]]
+[[John 6:27]]
+[[John 6:49]]
+[[Romans 6:12]]
+[[Romans 7:4]]
+[[Romans 12:1]]
+[[Romans 14:7]]
+[[Romans 14:17]]
+[[1 Corinthians 3:16]]
+[[1 Corinthians 6:15]]
+[[1 Corinthians 6:19]]
+[[1 Corinthians 10:3]]
+[[2 Corinthians 5:15]]
+[[2 Corinthians 11:2]]
+[[Ephesians 5:23]]
+[[Colossians 2:22]]
+[[1 Thessalonians 4:3]]
+---
+
+"Meats for the belly, and the belly for meats: but God shall destroy both it and them. Now the body is not for fornication, but for the Lord; and the Lord for the body."

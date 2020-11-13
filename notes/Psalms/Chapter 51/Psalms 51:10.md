@@ -1,0 +1,31 @@
+---
+Links:
+[[Joshua 14:14]]
+[[1 Kings 15:3]]
+[[Psalms 24:4]]
+[[Psalms 35:10]]
+[[Psalms 73:1]]
+[[Psalms 78:8]]
+[[Psalms 78:37]]
+[[Proverbs 20:9]]
+[[Jeremiah 13:27]]
+[[Jeremiah 32:39]]
+[[Ezekiel 11:19]]
+[[Ezekiel 18:31]]
+[[Ezekiel 36:25]]
+[[Ezekiel 36:37]]
+[[Matthew 5:8]]
+[[Acts 11:23]]
+[[Acts 15:9]]
+[[Romans 12:2]]
+[[1 Corinthians 15:58]]
+[[2 Corinthians 5:17]]
+[[Ephesians 2:10]]
+[[Ephesians 4:22]]
+[[Colossians 3:10]]
+[[Titus 3:5]]
+[[James 1:8]]
+[[1 Peter 1:22]]
+---
+
+"Create in me a clean heart, O God; and renew a right spirit within me."

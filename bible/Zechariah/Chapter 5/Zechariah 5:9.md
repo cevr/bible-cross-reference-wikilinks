@@ -1,5 +1,0 @@
-[[Leviticus 11:19]]
-[[Deuteronomy 28:49]]
-[[Daniel 9:26]]
-[[Hosea 8:1]]
-[[Matthew 24:28]]

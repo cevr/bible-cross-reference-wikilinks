@@ -1,7 +1,0 @@
-[[Genesis 34:7]]
-[[Numbers 20:15]]
-[[Deuteronomy 23:7]]
-[[Deuteronomy 26:5]]
-[[Joshua 24:4]]
-[[Psalms 105:23]]
-[[Isaiah 52:4]]

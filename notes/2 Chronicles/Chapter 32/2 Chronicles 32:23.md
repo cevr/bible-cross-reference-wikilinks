@@ -1,0 +1,21 @@
+---
+Links:
+[[2 Samuel 8:10]]
+[[1 Kings 4:21]]
+[[1 Kings 10:10]]
+[[1 Kings 10:25]]
+[[1 Chronicles 29:25]]
+[[2 Chronicles 1:1]]
+[[2 Chronicles 9:9]]
+[[2 Chronicles 9:24]]
+[[2 Chronicles 17:5]]
+[[2 Chronicles 17:11]]
+[[Ezra 7:15]]
+[[Ezra 7:27]]
+[[Psalms 68:29]]
+[[Psalms 72:10]]
+[[Isaiah 60:7]]
+[[Matthew 2:11]]
+---
+
+"And many brought gifts unto the LORD to Jerusalem, and presents to Hezekiah king of Judah: so that he was magnified in the sight of all nations from thenceforth."

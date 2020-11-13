@@ -1,0 +1,28 @@
+---
+Links:
+[[2 Kings 18:33]]
+[[2 Kings 19:12]]
+[[2 Kings 19:17]]
+[[2 Chronicles 32:13]]
+[[Psalms 12:4]]
+[[Psalms 92:5]]
+[[Psalms 115:2]]
+[[Psalms 135:5]]
+[[Psalms 135:15]]
+[[Isaiah 10:7]]
+[[Isaiah 10:11]]
+[[Isaiah 36:7]]
+[[Isaiah 36:10]]
+[[Isaiah 36:15]]
+[[Isaiah 37:4]]
+[[Isaiah 37:10]]
+[[Isaiah 37:12]]
+[[Isaiah 37:17]]
+[[Jeremiah 10:3]]
+[[Jeremiah 10:10]]
+[[Ezekiel 31:5]]
+[[Daniel 3:15]]
+[[Habakkuk 2:19]]
+---
+
+"Beware lest Hezekiah persuade you, saying, The LORD will deliver us. Hath any of the gods of the nations delivered his land out of the hand of the king of Assyria?"

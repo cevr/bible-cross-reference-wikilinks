@@ -1,0 +1,16 @@
+---
+Links:
+[[John 14:17]]
+[[John 17:21]]
+[[Romans 8:9]]
+[[1 Corinthians 3:16]]
+[[1 Corinthians 6:19]]
+[[2 Corinthians 6:16]]
+[[Ephesians 3:17]]
+[[1 Peter 2:4]]
+[[1 John 3:24]]
+[[1 John 4:13]]
+[[1 John 4:16]]
+---
+
+"In whom ye also are builded together for an habitation of God through the Spirit."

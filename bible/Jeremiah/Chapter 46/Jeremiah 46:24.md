@@ -1,5 +1,0 @@
-[[Psalms 137:8]]
-[[Jeremiah 1:15]]
-[[Jeremiah 46:11]]
-[[Jeremiah 46:19]]
-[[Ezekiel 29:1]]

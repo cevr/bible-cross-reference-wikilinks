@@ -1,0 +1,32 @@
+---
+Links:
+[[Genesis 22:24]]
+[[Genesis 25:6]]
+[[Genesis 35:19]]
+[[Joshua 24:30]]
+[[Joshua 24:33]]
+[[Judges 3:27]]
+[[Judges 12:8]]
+[[Judges 17:1]]
+[[Judges 17:6]]
+[[Judges 17:7]]
+[[Judges 17:8]]
+[[Judges 18:1]]
+[[Judges 18:13]]
+[[Judges 21:25]]
+[[2 Samuel 3:7]]
+[[2 Samuel 5:13]]
+[[2 Samuel 16:22]]
+[[2 Samuel 19:5]]
+[[2 Samuel 20:3]]
+[[1 Kings 4:8]]
+[[1 Kings 11:3]]
+[[2 Chronicles 11:21]]
+[[Esther 2:14]]
+[[Songs of Solomon 6:8]]
+[[Daniel 5:3]]
+[[Malachi 2:15]]
+[[Matthew 2:6]]
+---
+
+"And it came to pass in those days, when there was no king in Israel, that there was a certain Levite sojourning on the side of mount Ephraim, who took to him a concubine out of Beth-lehem-judah."

@@ -1,7 +1,0 @@
-[[1 Kings 4:32]]
-[[Ecclesiastes 1:18]]
-[[Luke 16:29]]
-[[John 5:39]]
-[[John 20:31]]
-[[John 21:25]]
-[[2 Peter 1:19]]

@@ -1,7 +1,0 @@
-[[Exodus 3:5]]
-[[Exodus 29:43]]
-[[1 Kings 3:1]]
-[[1 Kings 7:8]]
-[[1 Kings 9:24]]
-[[Ezekiel 21:2]]
-[[2 Peter 1:18]]

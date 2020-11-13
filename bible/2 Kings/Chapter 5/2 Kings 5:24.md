@@ -1,7 +1,0 @@
-[[Joshua 7:1]]
-[[Joshua 7:11]]
-[[Joshua 7:21]]
-[[1 Kings 21:16]]
-[[Isaiah 29:15]]
-[[Habakkuk 2:6]]
-[[Zechariah 5:3]]

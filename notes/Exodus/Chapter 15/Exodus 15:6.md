@@ -1,0 +1,25 @@
+---
+Links:
+[[Exodus 15:11]]
+[[1 Chronicles 29:11]]
+[[Psalms 2:9]]
+[[Psalms 17:7]]
+[[Psalms 44:3]]
+[[Psalms 44:4]]
+[[Psalms 60:5]]
+[[Psalms 74:11]]
+[[Psalms 77:10]]
+[[Psalms 89:8]]
+[[Psalms 89:14]]
+[[Psalms 98:1]]
+[[Psalms 118:15]]
+[[Isaiah 30:14]]
+[[Isaiah 51:9]]
+[[Isaiah 52:10]]
+[[Isaiah 63:12]]
+[[Jeremiah 13:14]]
+[[Matthew 6:13]]
+[[Revelation 2:27]]
+---
+
+"Thy right hand, O LORD, is become glorious in power: thy right hand, O LORD, hath dashed in pieces the enemy."

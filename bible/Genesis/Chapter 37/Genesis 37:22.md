@@ -1,6 +1,0 @@
-[[Genesis 22:12]]
-[[Genesis 42:22]]
-[[Exodus 24:11]]
-[[Deuteronomy 13:9]]
-[[Matthew 27:24]]
-[[Acts 12:1]]

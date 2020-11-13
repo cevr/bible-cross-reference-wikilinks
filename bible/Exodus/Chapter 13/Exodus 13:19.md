@@ -1,8 +1,0 @@
-[[Genesis 48:21]]
-[[Genesis 50:24]]
-[[Genesis 50:25]]
-[[Exodus 4:31]]
-[[Joshua 24:32]]
-[[Luke 1:58]]
-[[Luke 7:16]]
-[[Acts 7:16]]

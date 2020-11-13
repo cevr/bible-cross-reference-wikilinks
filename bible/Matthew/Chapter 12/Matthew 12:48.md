@@ -1,7 +1,0 @@
-[[Deuteronomy 33:9]]
-[[Matthew 10:37]]
-[[Mark 3:32]]
-[[Luke 2:49]]
-[[Luke 2:52]]
-[[John 2:3]]
-[[2 Corinthians 5:16]]

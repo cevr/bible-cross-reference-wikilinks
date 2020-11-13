@@ -1,6 +1,0 @@
-[[Judges 8:4]]
-[[1 Samuel 14:20]]
-[[1 Samuel 14:31]]
-[[1 Samuel 30:9]]
-[[1 Samuel 30:21]]
-[[Isaiah 40:30]]

@@ -1,6 +1,0 @@
-[[Exodus 3:18]]
-[[Exodus 7:15]]
-[[Exodus 8:1]]
-[[Exodus 9:13]]
-[[Psalms 78:45]]
-[[Psalms 105:31]]

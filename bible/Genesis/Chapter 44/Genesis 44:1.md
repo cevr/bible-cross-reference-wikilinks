@@ -1,7 +1,0 @@
-[[Genesis 24:2]]
-[[Genesis 42:25]]
-[[Genesis 42:35]]
-[[Genesis 43:2]]
-[[Genesis 43:16]]
-[[Genesis 43:19]]
-[[Isaiah 3:1]]

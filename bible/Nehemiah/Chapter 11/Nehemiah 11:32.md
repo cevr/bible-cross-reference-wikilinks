@@ -1,8 +1,0 @@
-[[Joshua 21:18]]
-[[1 Samuel 21:1]]
-[[1 Samuel 21:2]]
-[[1 Samuel 22:19]]
-[[Nehemiah 7:27]]
-[[Isaiah 10:30]]
-[[Isaiah 10:32]]
-[[Jeremiah 1:1]]

@@ -1,5 +1,0 @@
-[[Exodus 17:9]]
-[[Exodus 18:21]]
-[[Deuteronomy 20:9]]
-[[Joshua 8:10]]
-[[1 Samuel 8:12]]

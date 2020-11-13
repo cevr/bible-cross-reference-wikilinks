@@ -1,0 +1,31 @@
+---
+Links:
+[[Leviticus 17:10]]
+[[Leviticus 20:5]]
+[[Leviticus 26:36]]
+[[Leviticus 26:37]]
+[[Deuteronomy 28:25]]
+[[Judges 2:14]]
+[[Judges 3:8]]
+[[Judges 3:14]]
+[[Judges 6:2]]
+[[1 Samuel 4:10]]
+[[1 Samuel 12:15]]
+[[1 Samuel 31:1]]
+[[1 Kings 8:33]]
+[[2 Kings 13:3]]
+[[2 Kings 13:7]]
+[[Nehemiah 9:27]]
+[[Psalms 53:5]]
+[[Psalms 53:6]]
+[[Psalms 68:1]]
+[[Psalms 106:41]]
+[[Proverbs 28:1]]
+[[Isaiah 30:17]]
+[[Isaiah 63:10]]
+[[Jeremiah 19:7]]
+[[Lamentations 1:5]]
+[[Lamentations 2:4]]
+---
+
+"And I will set my face against you, and ye shall be slain before your enemies: they that hate you shall reign over you; and ye shall flee when none pursueth you."

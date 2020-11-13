@@ -1,7 +1,0 @@
-[[Psalms 139:7]]
-[[Jeremiah 2:16]]
-[[Ezekiel 29:1]]
-[[Ezekiel 30:1]]
-[[Ezekiel 31:1]]
-[[Ezekiel 32:1]]
-[[2 Timothy 2:9]]

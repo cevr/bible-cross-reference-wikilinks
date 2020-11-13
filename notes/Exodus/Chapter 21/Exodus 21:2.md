@@ -1,0 +1,23 @@
+---
+Links:
+[[Genesis 27:28]]
+[[Genesis 27:36]]
+[[Exodus 12:44]]
+[[Exodus 22:3]]
+[[Leviticus 25:39]]
+[[Leviticus 25:54]]
+[[Deuteronomy 15:1]]
+[[Deuteronomy 15:12]]
+[[Deuteronomy 15:18]]
+[[Deuteronomy 31:10]]
+[[2 Kings 4:1]]
+[[Nehemiah 5:1]]
+[[Nehemiah 5:8]]
+[[Jeremiah 34:8]]
+[[Jeremiah 34:10]]
+[[Jeremiah 34:14]]
+[[Matthew 18:25]]
+[[1 Corinthians 6:20]]
+---
+
+"If thou buy an Hebrew servant, six years he shall serve: and in the seventh he shall go out free for nothing."

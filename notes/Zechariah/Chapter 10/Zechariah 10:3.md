@@ -1,0 +1,33 @@
+---
+Links:
+[[Exodus 4:31]]
+[[Ruth 1:6]]
+[[Job 39:25]]
+[[Proverbs 21:31]]
+[[Songs of Solomon 1:9]]
+[[Isaiah 10:12]]
+[[Isaiah 24:21]]
+[[Isaiah 56:9]]
+[[Jeremiah 10:21]]
+[[Jeremiah 11:22]]
+[[Jeremiah 23:1]]
+[[Jeremiah 23:2]]
+[[Jeremiah 25:12]]
+[[Jeremiah 25:34]]
+[[Jeremiah 50:6]]
+[[Ezekiel 34:2]]
+[[Ezekiel 34:7]]
+[[Ezekiel 34:11]]
+[[Ezekiel 34:16]]
+[[Ezekiel 34:17]]
+[[Ezekiel 34:20]]
+[[Zephaniah 1:8]]
+[[Zephaniah 2:7]]
+[[Zechariah 11:5]]
+[[Zechariah 11:17]]
+[[Matthew 25:32]]
+[[Luke 1:68]]
+[[1 Peter 2:12]]
+---
+
+"Mine anger was kindled against the shepherds, and I punished the goats: for the LORD of hosts hath visited his flock the house of Judah, and hath made them as his goodly horse in the battle."

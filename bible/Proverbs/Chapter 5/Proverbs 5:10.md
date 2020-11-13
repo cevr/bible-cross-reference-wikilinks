@@ -1,5 +1,0 @@
-[[Proverbs 6:35]]
-[[Proverbs 29:3]]
-[[Proverbs 31:3]]
-[[Hosea 7:9]]
-[[Luke 15:30]]

@@ -1,0 +1,22 @@
+---
+Links:
+[[Daniel 4:35]]
+[[Matthew 11:26]]
+[[Matthew 20:15]]
+[[John 3:8]]
+[[John 3:27]]
+[[John 5:21]]
+[[Romans 9:18]]
+[[Romans 12:6]]
+[[1 Corinthians 7:7]]
+[[1 Corinthians 7:17]]
+[[1 Corinthians 12:4]]
+[[1 Corinthians 12:6]]
+[[2 Corinthians 10:13]]
+[[Ephesians 1:11]]
+[[Ephesians 4:7]]
+[[Hebrews 2:4]]
+[[James 1:18]]
+---
+
+"But all these worketh that one and the selfsame Spirit, dividing to every man severally as he will."

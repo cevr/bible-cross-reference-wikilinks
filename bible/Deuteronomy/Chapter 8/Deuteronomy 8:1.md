@@ -1,7 +1,0 @@
-[[Deuteronomy 1:8]]
-[[Deuteronomy 4:1]]
-[[Deuteronomy 5:32]]
-[[Deuteronomy 5:33]]
-[[Deuteronomy 8:18]]
-[[Psalms 119:4]]
-[[1 Thessalonians 4:1]]

@@ -1,5 +1,0 @@
-[[1 Chronicles 24:10]]
-[[1 Chronicles 24:19]]
-[[Nehemiah 12:4]]
-[[Nehemiah 12:17]]
-[[Matthew 2:1]]

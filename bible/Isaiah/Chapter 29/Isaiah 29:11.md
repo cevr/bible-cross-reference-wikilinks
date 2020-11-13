@@ -1,8 +1,0 @@
-[[Isaiah 8:16]]
-[[Daniel 12:4]]
-[[Daniel 12:9]]
-[[Matthew 11:25]]
-[[Matthew 13:11]]
-[[Matthew 16:17]]
-[[Revelation 5:1]]
-[[Revelation 6:1]]

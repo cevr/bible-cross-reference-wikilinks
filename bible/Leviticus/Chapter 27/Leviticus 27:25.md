@@ -1,6 +1,0 @@
-[[Exodus 30:13]]
-[[Leviticus 5:15]]
-[[Leviticus 27:3]]
-[[Numbers 3:47]]
-[[Numbers 18:16]]
-[[Ezekiel 45:12]]

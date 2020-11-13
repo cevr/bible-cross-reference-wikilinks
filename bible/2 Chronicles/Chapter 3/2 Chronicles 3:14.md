@@ -1,5 +1,0 @@
-[[Exodus 26:31]]
-[[Exodus 38:18]]
-[[Matthew 27:51]]
-[[Hebrews 9:3]]
-[[Hebrews 10:20]]

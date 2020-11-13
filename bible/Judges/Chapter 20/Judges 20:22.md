@@ -1,5 +1,0 @@
-[[Judges 20:15]]
-[[Judges 20:17]]
-[[1 Samuel 30:6]]
-[[2 Samuel 11:25]]
-[[Psalms 64:5]]

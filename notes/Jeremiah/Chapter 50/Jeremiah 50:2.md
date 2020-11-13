@@ -1,0 +1,32 @@
+---
+Links:
+[[Psalms 64:9]]
+[[Psalms 96:3]]
+[[Isaiah 12:4]]
+[[Isaiah 13:2]]
+[[Isaiah 21:9]]
+[[Isaiah 37:19]]
+[[Isaiah 39:1]]
+[[Isaiah 46:1]]
+[[Isaiah 48:6]]
+[[Isaiah 66:18]]
+[[Jeremiah 4:16]]
+[[Jeremiah 6:18]]
+[[Jeremiah 10:11]]
+[[Jeremiah 10:15]]
+[[Jeremiah 31:10]]
+[[Jeremiah 43:12]]
+[[Jeremiah 46:14]]
+[[Jeremiah 50:46]]
+[[Jeremiah 51:8]]
+[[Jeremiah 51:31]]
+[[Jeremiah 51:44]]
+[[Jeremiah 51:47]]
+[[Jeremiah 51:52]]
+[[Jeremiah 52:31]]
+[[Zephaniah 2:11]]
+[[Revelation 14:6]]
+[[Revelation 18:2]]
+---
+
+"Declare ye among the nations, and publish, and set up a standard; publish, and conceal not: say, Babylon is taken, Bel is confounded, Merodach is broken in pieces; her idols are confounded, her images are broken in pieces."

@@ -1,0 +1,33 @@
+---
+Links:
+[[Deuteronomy 30:4]]
+[[Psalms 65:5]]
+[[Psalms 98:3]]
+[[Psalms 107:3]]
+[[Isaiah 40:11]]
+[[Isaiah 42:16]]
+[[Isaiah 43:6]]
+[[Isaiah 45:22]]
+[[Isaiah 52:10]]
+[[Jeremiah 3:12]]
+[[Jeremiah 3:18]]
+[[Jeremiah 16:15]]
+[[Jeremiah 23:3]]
+[[Jeremiah 23:8]]
+[[Jeremiah 29:14]]
+[[Ezekiel 20:34]]
+[[Ezekiel 20:41]]
+[[Ezekiel 34:13]]
+[[Ezekiel 34:16]]
+[[Micah 4:6]]
+[[Zephaniah 3:19]]
+[[Zechariah 2:6]]
+[[Matthew 12:20]]
+[[John 21:15]]
+[[1 Corinthians 8:10]]
+[[1 Thessalonians 5:14]]
+[[Hebrews 4:15]]
+[[Hebrews 12:12]]
+---
+
+"Behold, I will bring them from the north country, and gather them from the coasts of the earth, and with them the blind and the lame, the woman with child and her that travaileth with child together: a great company shall return thither."

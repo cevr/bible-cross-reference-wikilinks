@@ -1,8 +1,0 @@
-[[Jeremiah 1:10]]
-[[Jeremiah 12:14]]
-[[Jeremiah 25:9]]
-[[Jeremiah 26:3]]
-[[Jeremiah 45:4]]
-[[Amos 9:8]]
-[[Jonah 3:4]]
-[[Jonah 3:10]]

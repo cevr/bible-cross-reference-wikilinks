@@ -1,0 +1,20 @@
+---
+Links:
+[[Psalms 24:7]]
+[[Psalms 85:8]]
+[[Isaiah 9:6]]
+[[Isaiah 57:18]]
+[[Ezekiel 43:5]]
+[[Micah 5:5]]
+[[Luke 2:14]]
+[[John 1:14]]
+[[John 14:27]]
+[[Acts 10:36]]
+[[2 Corinthians 3:9]]
+[[Ephesians 2:14]]
+[[Colossians 1:19]]
+[[1 Timothy 3:16]]
+[[James 2:1]]
+---
+
+"The glory of this latter house shall be greater than of the former, saith the LORD of hosts: and in this place will I give peace, saith the LORD of hosts."

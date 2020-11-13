@@ -1,5 +1,0 @@
-[[Exodus 9:3]]
-[[1 Kings 10:28]]
-[[Job 2:4]]
-[[Isaiah 31:1]]
-[[Matthew 6:24]]

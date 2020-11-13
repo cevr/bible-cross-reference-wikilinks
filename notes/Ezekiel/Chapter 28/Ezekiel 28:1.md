@@ -1,0 +1,12 @@
+---
+Links:
+[[Jeremiah 25:22]]
+[[Ezekiel 26:1]]
+[[Ezekiel 27:1]]
+[[Ezekiel 27:27]]
+[[Amos 1:9]]
+[[Zechariah 9:2]]
+[[Zechariah 9:3]]
+---
+
+"The word of the LORD came again unto me, saying,"

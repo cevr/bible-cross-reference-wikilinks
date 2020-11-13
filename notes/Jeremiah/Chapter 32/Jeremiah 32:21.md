@@ -1,0 +1,22 @@
+---
+Links:
+[[Exodus 3:20]]
+[[Exodus 6:1]]
+[[Exodus 6:6]]
+[[Exodus 13:9]]
+[[Exodus 13:14]]
+[[Deuteronomy 4:34]]
+[[Deuteronomy 11:3]]
+[[Deuteronomy 26:8]]
+[[2 Samuel 7:23]]
+[[1 Kings 8:42]]
+[[1 Chronicles 17:21]]
+[[Psalms 89:8]]
+[[Psalms 105:37]]
+[[Psalms 105:43]]
+[[Psalms 106:8]]
+[[Psalms 136:11]]
+[[Isaiah 63:12]]
+---
+
+"And hast brought forth thy people Israel out of the land of Egypt with signs, and with wonders, and with a strong hand, and with a stretched out arm, and with great terror;"

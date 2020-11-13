@@ -1,6 +1,0 @@
-[[Ezekiel 1:13]]
-[[Ezekiel 10:6]]
-[[Ezekiel 41:23]]
-[[Matthew 13:41]]
-[[Matthew 13:49]]
-[[Matthew 24:34]]

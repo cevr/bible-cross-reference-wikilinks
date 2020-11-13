@@ -1,0 +1,14 @@
+---
+Links:
+[[Leviticus 23:8]]
+[[Numbers 23:1]]
+[[Numbers 28:15]]
+[[Numbers 28:16]]
+[[Numbers 28:24]]
+[[Numbers 29:5]]
+[[Numbers 29:11]]
+[[Job 42:8]]
+[[Hebrews 10:8]]
+---
+
+"And seven days of the feast he shall prepare a burnt offering to the LORD, seven bullocks and seven rams without blemish daily the seven days; and a kid of the goats daily for a sin offering."

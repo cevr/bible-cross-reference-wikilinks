@@ -1,8 +1,0 @@
-[[Genesis 28:19]]
-[[Genesis 35:6]]
-[[Genesis 48:3]]
-[[Joshua 2:1]]
-[[Joshua 7:2]]
-[[Joshua 16:1]]
-[[Joshua 16:2]]
-[[Judges 18:2]]

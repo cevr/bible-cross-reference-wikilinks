@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 4:19]]
+[[Deuteronomy 17:3]]
+[[Joshua 10:13]]
+[[Joshua 19:42]]
+[[Joshua 21:24]]
+[[Judges 12:12]]
+[[1 Samuel 12:18]]
+[[1 Samuel 14:31]]
+[[2 Kings 20:9]]
+[[2 Kings 20:10]]
+[[2 Kings 20:11]]
+[[1 Chronicles 8:13]]
+[[2 Chronicles 11:10]]
+[[Job 9:7]]
+[[Job 31:26]]
+[[Psalms 19:4]]
+[[Psalms 74:16]]
+[[Psalms 148:3]]
+[[Isaiah 28:21]]
+[[Isaiah 38:8]]
+[[Isaiah 60:20]]
+[[Amos 8:9]]
+[[Habakkuk 2:20]]
+[[Habakkuk 3:11]]
+[[Zechariah 2:13]]
+---
+
+"Then spake Joshua to the LORD in the day when the LORD delivered up the Amorites before the children of Israel, and he said in the sight of Israel, Sun, stand thou still upon Gibeon; and thou, Moon, in the valley of Ajalon."

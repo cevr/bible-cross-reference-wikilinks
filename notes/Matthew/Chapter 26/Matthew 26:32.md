@@ -1,0 +1,17 @@
+---
+Links:
+[[Matthew 16:21]]
+[[Matthew 20:19]]
+[[Matthew 27:63]]
+[[Matthew 28:6]]
+[[Matthew 28:10]]
+[[Matthew 28:16]]
+[[Mark 9:9]]
+[[Mark 14:28]]
+[[Mark 16:7]]
+[[Luke 18:33]]
+[[John 21:1]]
+[[1 Corinthians 15:6]]
+---
+
+"But after I am risen again, I will go before you into Galilee."

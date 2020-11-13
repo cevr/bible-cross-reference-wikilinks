@@ -1,6 +1,0 @@
-[[Genesis 29:22]]
-[[Esther 1:7]]
-[[Ecclesiastes 10:19]]
-[[Matthew 22:2]]
-[[John 2:9]]
-[[Revelation 19:9]]

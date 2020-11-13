@@ -1,0 +1,17 @@
+---
+Links:
+[[1 Kings 22:11]]
+[[1 Kings 22:17]]
+[[Proverbs 26:28]]
+[[Jeremiah 14:13]]
+[[Jeremiah 23:14]]
+[[Lamentations 2:14]]
+[[Ezekiel 13:6]]
+[[Ezekiel 13:23]]
+[[Zechariah 13:2]]
+[[Romans 16:18]]
+[[1 Thessalonians 2:5]]
+[[2 Peter 2:2]]
+---
+
+"For there shall be no more any vain vision nor flattering divination within the house of Israel."

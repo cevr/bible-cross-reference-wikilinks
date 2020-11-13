@@ -1,5 +1,0 @@
-[[Psalms 35:5]]
-[[Psalms 39:5]]
-[[Psalms 39:12]]
-[[Psalms 78:33]]
-[[Psalms 90:4]]

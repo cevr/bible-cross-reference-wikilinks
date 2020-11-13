@@ -1,0 +1,30 @@
+---
+Links:
+[[Exodus 18:26]]
+[[Exodus 21:12]]
+[[Exodus 21:20]]
+[[Exodus 21:22]]
+[[Exodus 21:28]]
+[[Exodus 22:2]]
+[[Numbers 35:11]]
+[[Numbers 35:16]]
+[[Numbers 35:19]]
+[[Deuteronomy 1:17]]
+[[Deuteronomy 12:5]]
+[[Deuteronomy 12:11]]
+[[Deuteronomy 12:14]]
+[[Deuteronomy 19:4]]
+[[Deuteronomy 19:10]]
+[[Deuteronomy 19:17]]
+[[Deuteronomy 21:5]]
+[[2 Samuel 15:2]]
+[[1 Kings 3:16]]
+[[1 Chronicles 26:29]]
+[[2 Chronicles 19:8]]
+[[Psalms 122:4]]
+[[Psalms 122:5]]
+[[Haggai 2:11]]
+[[Malachi 2:7]]
+---
+
+"If there arise a matter too hard for thee in judgment, between blood and blood, between plea and plea, and between stroke and stroke, being matters of controversy within thy gates: then shalt thou arise, and get thee up into the place which the LORD thy God shall choose;"

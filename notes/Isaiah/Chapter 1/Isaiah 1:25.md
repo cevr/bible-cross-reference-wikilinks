@@ -1,0 +1,19 @@
+---
+Links:
+[[Isaiah 1:22]]
+[[Isaiah 4:4]]
+[[Isaiah 6:11]]
+[[Jeremiah 6:29]]
+[[Jeremiah 9:6]]
+[[Jeremiah 9:7]]
+[[Ezekiel 20:38]]
+[[Ezekiel 22:20]]
+[[Ezekiel 22:22]]
+[[Zephaniah 3:11]]
+[[Zechariah 13:7]]
+[[Malachi 3:3]]
+[[Matthew 3:12]]
+[[Revelation 3:19]]
+---
+
+"And I will turn my hand upon thee, and purely purge away thy dross, and take away all thy tin:"

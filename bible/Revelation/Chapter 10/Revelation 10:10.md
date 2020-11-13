@@ -1,7 +1,0 @@
-[[Psalms 19:10]]
-[[Psalms 104:34]]
-[[Psalms 119:103]]
-[[Proverbs 16:24]]
-[[Ezekiel 2:10]]
-[[Ezekiel 3:3]]
-[[Ezekiel 3:14]]

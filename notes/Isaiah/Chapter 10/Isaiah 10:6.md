@@ -1,0 +1,30 @@
+---
+Links:
+[[2 Samuel 22:43]]
+[[2 Kings 18:25]]
+[[Isaiah 5:29]]
+[[Isaiah 8:4]]
+[[Isaiah 9:17]]
+[[Isaiah 9:19]]
+[[Isaiah 10:13]]
+[[Isaiah 19:17]]
+[[Isaiah 22:5]]
+[[Isaiah 29:13]]
+[[Isaiah 30:9]]
+[[Isaiah 33:14]]
+[[Isaiah 37:26]]
+[[Isaiah 41:25]]
+[[Isaiah 45:1]]
+[[Isaiah 63:3]]
+[[Isaiah 63:6]]
+[[Jeremiah 3:10]]
+[[Jeremiah 4:14]]
+[[Jeremiah 25:9]]
+[[Jeremiah 34:22]]
+[[Jeremiah 47:6]]
+[[Micah 7:10]]
+[[Zechariah 10:5]]
+[[Matthew 15:7]]
+---
+
+"I will send him against an hypocritical nation, and against the people of my wrath will I give him a charge, to take the spoil, and to take the prey, and to tread them down like the mire of the streets."

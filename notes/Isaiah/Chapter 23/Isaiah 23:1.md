@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 10:4]]
+[[Numbers 24:24]]
+[[Joshua 19:29]]
+[[1 Kings 5:1]]
+[[1 Kings 10:22]]
+[[1 Kings 22:48]]
+[[2 Chronicles 9:21]]
+[[Psalms 48:7]]
+[[Isaiah 2:16]]
+[[Isaiah 15:1]]
+[[Isaiah 15:8]]
+[[Isaiah 23:12]]
+[[Isaiah 24:10]]
+[[Isaiah 60:9]]
+[[Jeremiah 2:10]]
+[[Jeremiah 25:10]]
+[[Jeremiah 25:15]]
+[[Jeremiah 25:22]]
+[[Jeremiah 47:4]]
+[[Ezekiel 26:1]]
+[[Daniel 11:30]]
+[[Joel 3:4]]
+[[Amos 1:9]]
+[[Zechariah 9:2]]
+[[Revelation 18:17]]
+[[Revelation 18:22]]
+---
+
+"The burden of Tyre. Howl, ye ships of Tarshish; for it is laid waste, so that there is no house, no entering in: from the land of Chittim it is revealed to them."

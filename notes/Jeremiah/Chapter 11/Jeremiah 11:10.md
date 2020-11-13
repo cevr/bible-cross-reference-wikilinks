@@ -1,0 +1,30 @@
+---
+Links:
+[[Leviticus 26:15]]
+[[Deuteronomy 9:7]]
+[[Deuteronomy 31:16]]
+[[Judges 2:12]]
+[[Judges 2:17]]
+[[Judges 2:19]]
+[[1 Samuel 15:11]]
+[[2 Kings 17:7]]
+[[2 Chronicles 34:30]]
+[[Psalms 78:8]]
+[[Psalms 78:57]]
+[[Isaiah 24:5]]
+[[Jeremiah 3:6]]
+[[Jeremiah 22:9]]
+[[Jeremiah 31:32]]
+[[Ezekiel 16:59]]
+[[Ezekiel 20:18]]
+[[Ezekiel 44:7]]
+[[Hosea 6:4]]
+[[Hosea 6:7]]
+[[Hosea 7:16]]
+[[Zephaniah 1:6]]
+[[Zechariah 1:4]]
+[[Acts 7:51]]
+[[Hebrews 8:9]]
+---
+
+"They are turned back to the iniquities of their forefathers, which refused to hear my words; and they went after other gods to serve them: the house of Israel and the house of Judah have broken my covenant which I made with their fathers."

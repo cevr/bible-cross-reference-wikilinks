@@ -1,0 +1,17 @@
+---
+Links:
+[[2 Samuel 10:6]]
+[[2 Kings 6:11]]
+[[Psalms 83:2]]
+[[Isaiah 7:1]]
+[[Isaiah 8:8]]
+[[Isaiah 10:8]]
+[[Isaiah 14:32]]
+[[Isaiah 26:1]]
+[[Isaiah 29:5]]
+[[Revelation 17:12]]
+[[Revelation 19:20]]
+[[Revelation 20:8]]
+---
+
+"For, lo, the kings were assembled, they passed by together."

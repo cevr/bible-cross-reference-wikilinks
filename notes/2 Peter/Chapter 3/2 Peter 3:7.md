@@ -1,0 +1,30 @@
+---
+Links:
+[[Psalms 50:3]]
+[[Psalms 102:26]]
+[[Isaiah 51:6]]
+[[Zephaniah 3:8]]
+[[Matthew 10:15]]
+[[Matthew 11:22]]
+[[Matthew 11:24]]
+[[Matthew 12:36]]
+[[Matthew 24:35]]
+[[Matthew 25:41]]
+[[Mark 6:11]]
+[[Romans 2:5]]
+[[Philippians 1:28]]
+[[2 Thessalonians 1:7]]
+[[2 Thessalonians 2:3]]
+[[1 Timothy 6:9]]
+[[2 Peter 2:9]]
+[[2 Peter 3:10]]
+[[2 Peter 3:12]]
+[[1 John 4:17]]
+[[Jude 1:7]]
+[[Revelation 17:8]]
+[[Revelation 17:11]]
+[[Revelation 20:11]]
+[[Revelation 21:1]]
+---
+
+"But the heavens and the earth, which are now, by the same word are kept in store, reserved unto fire against the day of judgment and perdition of ungodly men."

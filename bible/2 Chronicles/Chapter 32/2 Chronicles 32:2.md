@@ -1,5 +1,0 @@
-[[2 Kings 12:17]]
-[[Nehemiah 4:13]]
-[[Isaiah 10:32]]
-[[Luke 9:51]]
-[[Luke 9:53]]

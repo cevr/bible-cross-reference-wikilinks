@@ -1,8 +1,0 @@
-[[Ezekiel 1:17]]
-[[Ezekiel 1:26]]
-[[Ezekiel 8:16]]
-[[Ezekiel 10:1]]
-[[Ezekiel 11:1]]
-[[Ezekiel 11:22]]
-[[Ezekiel 43:1]]
-[[Ezekiel 43:4]]

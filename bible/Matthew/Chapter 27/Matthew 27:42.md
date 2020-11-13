@@ -1,8 +1,0 @@
-[[Matthew 2:2]]
-[[Matthew 27:37]]
-[[Luke 19:38]]
-[[John 1:49]]
-[[John 9:24]]
-[[John 12:13]]
-[[John 12:47]]
-[[Acts 4:14]]

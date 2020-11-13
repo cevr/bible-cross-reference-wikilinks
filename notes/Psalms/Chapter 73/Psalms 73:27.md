@@ -1,0 +1,20 @@
+---
+Links:
+[[Exodus 34:15]]
+[[Numbers 15:39]]
+[[1 Chronicles 10:13]]
+[[Esther 9:30]]
+[[Job 21:14]]
+[[Psalms 106:39]]
+[[Psalms 119:155]]
+[[Isaiah 29:13]]
+[[Jeremiah 12:2]]
+[[Jeremiah 17:13]]
+[[Matthew 15:7]]
+[[Ephesians 2:13]]
+[[Ephesians 2:17]]
+[[James 4:4]]
+[[Revelation 17:1]]
+---
+
+"For, lo, they that are far from thee shall perish: thou hast destroyed all them that go a whoring from thee."

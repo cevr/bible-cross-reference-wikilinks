@@ -1,5 +1,0 @@
-[[Leviticus 22:19]]
-[[Leviticus 22:20]]
-[[Leviticus 22:23]]
-[[Deuteronomy 17:1]]
-[[Malachi 1:7]]

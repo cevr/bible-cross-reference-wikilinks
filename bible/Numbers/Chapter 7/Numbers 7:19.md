@@ -1,8 +1,0 @@
-[[Exodus 25:29]]
-[[Leviticus 2:1]]
-[[Leviticus 5:11]]
-[[Ezra 1:9]]
-[[Jeremiah 52:18]]
-[[Zechariah 14:20]]
-[[Matthew 14:8]]
-[[Mark 6:25]]

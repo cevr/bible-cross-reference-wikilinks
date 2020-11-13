@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 1:29]]
+[[Genesis 9:3]]
+[[1 Samuel 9:13]]
+[[Ecclesiastes 5:18]]
+[[Daniel 11:37]]
+[[Matthew 14:19]]
+[[Matthew 15:36]]
+[[Luke 24:30]]
+[[John 6:23]]
+[[John 8:31]]
+[[Acts 10:13]]
+[[Acts 27:35]]
+[[Romans 14:3]]
+[[Romans 14:6]]
+[[Romans 14:17]]
+[[1 Corinthians 6:13]]
+[[1 Corinthians 7:28]]
+[[1 Corinthians 7:36]]
+[[1 Corinthians 8:8]]
+[[1 Corinthians 10:30]]
+[[Colossians 2:16]]
+[[Colossians 2:20]]
+[[Colossians 3:17]]
+[[2 Thessalonians 2:13]]
+[[1 Timothy 2:4]]
+[[1 Timothy 4:4]]
+[[Hebrews 13:4]]
+[[Hebrews 13:9]]
+---
+
+"Forbidding to marry, and commanding to abstain from meats, which God hath created to be received with thanksgiving of them which believe and know the truth."

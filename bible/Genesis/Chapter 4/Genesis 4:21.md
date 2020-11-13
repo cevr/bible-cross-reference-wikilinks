@@ -1,5 +1,0 @@
-[[Genesis 31:27]]
-[[Job 21:12]]
-[[Isaiah 5:12]]
-[[Amos 6:5]]
-[[Romans 4:11]]

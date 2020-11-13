@@ -1,7 +1,0 @@
-[[1 Kings 4:22]]
-[[1 Chronicles 2:6]]
-[[1 Chronicles 6:29]]
-[[2 Chronicles 2:10]]
-[[2 Chronicles 9:22]]
-[[Psalms 88:1]]
-[[Psalms 89:1]]

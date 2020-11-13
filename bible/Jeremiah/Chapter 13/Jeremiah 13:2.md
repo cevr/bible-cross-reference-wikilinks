@@ -1,6 +1,0 @@
-[[Proverbs 3:5]]
-[[Isaiah 20:2]]
-[[Ezekiel 2:8]]
-[[Hosea 1:2]]
-[[John 13:6]]
-[[John 15:14]]

@@ -1,5 +1,0 @@
-[[Leviticus 13:7]]
-[[Leviticus 13:22]]
-[[Leviticus 13:27]]
-[[Leviticus 13:36]]
-[[Leviticus 13:51]]

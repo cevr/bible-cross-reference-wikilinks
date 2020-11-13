@@ -1,0 +1,30 @@
+---
+Links:
+[[1 Kings 22:14]]
+[[1 Kings 22:16]]
+[[2 Chronicles 19:10]]
+[[Songs of Solomon 3:3]]
+[[Songs of Solomon 5:7]]
+[[Isaiah 21:11]]
+[[Isaiah 62:6]]
+[[Jeremiah 1:17]]
+[[Jeremiah 6:27]]
+[[Jeremiah 23:28]]
+[[Jeremiah 26:2]]
+[[Jeremiah 31:6]]
+[[Ezekiel 2:7]]
+[[Ezekiel 3:17]]
+[[Micah 7:4]]
+[[Habakkuk 2:1]]
+[[Acts 5:20]]
+[[Acts 20:20]]
+[[Acts 20:26]]
+[[1 Corinthians 11:23]]
+[[1 Corinthians 15:3]]
+[[Ephesians 4:11]]
+[[Colossians 1:28]]
+[[1 Thessalonians 4:1]]
+[[Hebrews 13:17]]
+---
+
+"So thou, O son of man, I have set thee a watchman unto the house of Israel; therefore thou shalt hear the word at my mouth, and warn them from me."

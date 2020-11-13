@@ -1,6 +1,0 @@
-[[Numbers 14:6]]
-[[Proverbs 21:28]]
-[[2 Corinthians 4:13]]
-[[Hebrews 11:1]]
-[[2 Peter 1:16]]
-[[2 Peter 1:21]]

@@ -1,0 +1,28 @@
+---
+Links:
+[[Exodus 14:4]]
+[[Exodus 14:17]]
+[[Exodus 15:11]]
+[[Exodus 18:11]]
+[[Numbers 14:21]]
+[[Joshua 2:10]]
+[[Joshua 4:24]]
+[[1 Samuel 4:8]]
+[[2 Samuel 7:23]]
+[[2 Kings 19:35]]
+[[1 Chronicles 16:24]]
+[[Psalms 64:9]]
+[[Psalms 83:17]]
+[[Psalms 136:10]]
+[[Proverbs 16:4]]
+[[Isaiah 63:12]]
+[[Malachi 1:11]]
+[[Malachi 1:14]]
+[[Romans 9:17]]
+[[Romans 9:22]]
+[[1 Peter 2:8]]
+[[1 Peter 2:19]]
+[[Jude 1:4]]
+---
+
+"And in very deed for this cause have I raised thee up, for to shew in thee my power; and that my name may be declared throughout all the earth."

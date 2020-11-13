@@ -1,6 +1,0 @@
-[[1 Samuel 30:14]]
-[[2 Samuel 14:2]]
-[[1 Chronicles 2:9]]
-[[1 Chronicles 2:18]]
-[[1 Chronicles 4:5]]
-[[Amos 1:1]]

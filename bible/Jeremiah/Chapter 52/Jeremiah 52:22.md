@@ -1,7 +1,0 @@
-[[Exodus 28:14]]
-[[Exodus 28:25]]
-[[Exodus 39:15]]
-[[1 Kings 7:16]]
-[[2 Kings 25:17]]
-[[2 Chronicles 3:15]]
-[[2 Chronicles 4:12]]

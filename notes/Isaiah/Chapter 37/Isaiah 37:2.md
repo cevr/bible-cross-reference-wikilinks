@@ -1,0 +1,17 @@
+---
+Links:
+[[2 Kings 18:18]]
+[[2 Kings 19:2]]
+[[2 Kings 22:12]]
+[[2 Chronicles 20:20]]
+[[Esther 4:1]]
+[[Isaiah 1:1]]
+[[Isaiah 22:12]]
+[[Isaiah 22:15]]
+[[Isaiah 22:20]]
+[[Isaiah 36:3]]
+[[Isaiah 37:14]]
+[[Joel 1:13]]
+---
+
+"And he sent Eliakim, who was over the household, and Shebna the scribe, and the elders of the priests covered with sackcloth, unto Isaiah the prophet the son of Amoz."

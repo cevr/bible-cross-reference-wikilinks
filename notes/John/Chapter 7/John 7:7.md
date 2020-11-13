@@ -1,0 +1,31 @@
+---
+Links:
+[[Leviticus 13:10]]
+[[1 Kings 21:20]]
+[[1 Kings 22:8]]
+[[Proverbs 8:36]]
+[[Proverbs 9:7]]
+[[Proverbs 15:12]]
+[[Isaiah 29:21]]
+[[Isaiah 49:7]]
+[[Jeremiah 20:8]]
+[[Amos 7:7]]
+[[Zechariah 11:8]]
+[[Malachi 3:5]]
+[[Luke 6:26]]
+[[Luke 11:39]]
+[[John 3:19]]
+[[John 15:18]]
+[[John 15:23]]
+[[John 17:14]]
+[[Acts 5:28]]
+[[Acts 7:51]]
+[[Romans 8:7]]
+[[Galatians 4:16]]
+[[James 4:4]]
+[[1 John 3:12]]
+[[1 John 4:5]]
+[[Revelation 11:5]]
+---
+
+"The world cannot hate you; but me it hateth, because I testify of it, that the works thereof are evil."

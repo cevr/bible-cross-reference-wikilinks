@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 28:19]]
+[[Joshua 7:6]]
+[[Joshua 24:1]]
+[[Judges 20:18]]
+[[Judges 20:23]]
+[[Judges 21:2]]
+[[Judges 21:4]]
+[[1 Samuel 7:6]]
+[[2 Samuel 3:35]]
+[[2 Chronicles 20:3]]
+[[Ezra 8:21]]
+[[Ezra 9:4]]
+[[Joel 1:14]]
+[[Joel 2:12]]
+[[Jonah 3:5]]
+---
+
+"Then all the children of Israel, and all the people, went up, and came unto the house of God, and wept, and sat there before the LORD, and fasted that day until even, and offered burnt offerings and peace offerings before the LORD."

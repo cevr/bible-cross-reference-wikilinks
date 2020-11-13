@@ -1,7 +1,0 @@
-[[Joshua 8:5]]
-[[Judges 20:31]]
-[[Judges 20:36]]
-[[Psalms 9:16]]
-[[Ezekiel 38:11]]
-[[Revelation 16:14]]
-[[Revelation 19:19]]

@@ -1,6 +1,0 @@
-[[Leviticus 1:5]]
-[[Leviticus 1:9]]
-[[Leviticus 1:13]]
-[[Leviticus 4:30]]
-[[Leviticus 17:11]]
-[[Jeremiah 7:21]]

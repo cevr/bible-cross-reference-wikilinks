@@ -1,0 +1,16 @@
+---
+Links:
+[[Deuteronomy 12:5]]
+[[Deuteronomy 12:11]]
+[[Joshua 18:1]]
+[[Judges 18:31]]
+[[1 Samuel 1:3]]
+[[1 Samuel 4:3]]
+[[1 Samuel 4:10]]
+[[1 Samuel 4:22]]
+[[1 Kings 9:7]]
+[[Psalms 78:60]]
+[[Jeremiah 26:6]]
+---
+
+"But go ye now unto my place which was in Shiloh, where I set my name at the first, and see what I did to it for the wickedness of my people Israel."

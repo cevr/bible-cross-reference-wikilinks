@@ -1,6 +1,0 @@
-[[2 Kings 21:1]]
-[[2 Kings 21:20]]
-[[2 Chronicles 33:1]]
-[[2 Chronicles 34:3]]
-[[Isaiah 44:13]]
-[[Ezekiel 20:18]]

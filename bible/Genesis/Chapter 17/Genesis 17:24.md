@@ -1,7 +1,0 @@
-[[Genesis 12:4]]
-[[Genesis 17:1]]
-[[Genesis 17:17]]
-[[Genesis 18:11]]
-[[Genesis 21:5]]
-[[Romans 4:11]]
-[[Romans 4:19]]

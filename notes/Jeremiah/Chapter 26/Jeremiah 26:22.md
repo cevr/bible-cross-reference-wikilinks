@@ -1,0 +1,14 @@
+---
+Links:
+[[2 Kings 22:12]]
+[[2 Kings 22:14]]
+[[Psalms 12:8]]
+[[Proverbs 29:12]]
+[[Jeremiah 29:3]]
+[[Jeremiah 36:12]]
+[[Jeremiah 36:25]]
+[[Jeremiah 39:14]]
+[[Ezekiel 8:11]]
+---
+
+"And Jehoiakim the king sent men into Egypt, namely, Elnathan the son of Achbor, and certain men with him into Egypt."

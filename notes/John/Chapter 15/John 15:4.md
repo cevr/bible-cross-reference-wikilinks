@@ -1,0 +1,33 @@
+---
+Links:
+[[Songs of Solomon 8:5]]
+[[Isaiah 27:10]]
+[[Ezekiel 15:2]]
+[[Hosea 14:8]]
+[[Luke 8:15]]
+[[John 6:56]]
+[[John 6:68]]
+[[John 8:31]]
+[[John 14:20]]
+[[John 15:5]]
+[[John 17:23]]
+[[Acts 11:23]]
+[[Acts 14:22]]
+[[Romans 8:9]]
+[[2 Corinthians 12:8]]
+[[2 Corinthians 13:5]]
+[[Galatians 2:20]]
+[[Ephesians 3:17]]
+[[Philippians 1:11]]
+[[Colossians 1:23]]
+[[Colossians 1:27]]
+[[Colossians 2:6]]
+[[1 Thessalonians 3:5]]
+[[Hebrews 10:39]]
+[[1 John 2:6]]
+[[1 John 2:24]]
+[[2 John 1:9]]
+[[Jude 1:20]]
+---
+
+"Abide in me, and I in you. As the branch cannot bear fruit of itself, except it abide in the vine; no more can ye, except ye abide in me."

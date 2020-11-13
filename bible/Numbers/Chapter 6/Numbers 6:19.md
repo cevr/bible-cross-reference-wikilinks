@@ -1,5 +1,0 @@
-[[Exodus 29:23]]
-[[Leviticus 7:30]]
-[[Leviticus 8:27]]
-[[Leviticus 8:31]]
-[[1 Samuel 2:15]]

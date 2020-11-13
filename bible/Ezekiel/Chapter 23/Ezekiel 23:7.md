@@ -1,8 +1,0 @@
-[[Genesis 10:22]]
-[[Psalms 106:39]]
-[[Ezekiel 16:15]]
-[[Ezekiel 20:7]]
-[[Ezekiel 22:3]]
-[[Ezekiel 23:30]]
-[[Hosea 5:3]]
-[[Hosea 6:10]]

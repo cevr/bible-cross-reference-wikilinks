@@ -1,6 +1,0 @@
-[[Deuteronomy 31:2]]
-[[Deuteronomy 33:25]]
-[[Deuteronomy 34:7]]
-[[Psalms 90:10]]
-[[Psalms 103:5]]
-[[Isaiah 40:31]]

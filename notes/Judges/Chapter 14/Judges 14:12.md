@@ -1,0 +1,24 @@
+---
+Links:
+[[Genesis 29:27]]
+[[Genesis 45:22]]
+[[1 Kings 10:1]]
+[[2 Kings 5:5]]
+[[2 Kings 5:22]]
+[[2 Chronicles 7:8]]
+[[Psalms 49:4]]
+[[Proverbs 1:6]]
+[[Ezekiel 17:2]]
+[[Ezekiel 20:49]]
+[[Matthew 6:19]]
+[[Matthew 13:13]]
+[[Matthew 13:34]]
+[[Matthew 27:28]]
+[[Mark 14:51]]
+[[Luke 14:7]]
+[[John 16:29]]
+[[1 Corinthians 13:12]]
+[[James 5:2]]
+---
+
+"And Samson said unto them, I will now put forth a riddle unto you: if ye can certainly declare it me within the seven days of the feast, and find it out, then I will give you thirty sheets and thirty change of garments:"

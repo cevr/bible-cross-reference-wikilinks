@@ -1,0 +1,15 @@
+---
+Links:
+[[Leviticus 19:35]]
+[[Leviticus 19:36]]
+[[Deuteronomy 25:13]]
+[[Proverbs 11:1]]
+[[Proverbs 20:10]]
+[[Proverbs 20:23]]
+[[Ezekiel 45:10]]
+[[Hosea 12:7]]
+[[Amos 8:5]]
+[[Micah 6:11]]
+---
+
+"A just weight and balance are the LORD'S: all the weights of the bag are his work."

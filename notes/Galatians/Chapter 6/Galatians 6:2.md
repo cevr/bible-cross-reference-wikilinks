@@ -1,0 +1,26 @@
+---
+Links:
+[[Exodus 23:5]]
+[[Numbers 11:11]]
+[[Deuteronomy 1:12]]
+[[1 Chronicles 19:12]]
+[[Isaiah 58:6]]
+[[Matthew 8:17]]
+[[Matthew 11:29]]
+[[Luke 11:46]]
+[[John 13:14]]
+[[John 13:34]]
+[[John 15:12]]
+[[Romans 8:2]]
+[[Romans 15:1]]
+[[1 Corinthians 9:21]]
+[[Galatians 5:13]]
+[[Galatians 6:5]]
+[[1 Thessalonians 5:14]]
+[[James 2:8]]
+[[1 Peter 2:24]]
+[[1 John 2:8]]
+[[1 John 4:21]]
+---
+
+"Bear ye one another's burdens, and so fulfil the law of Christ."

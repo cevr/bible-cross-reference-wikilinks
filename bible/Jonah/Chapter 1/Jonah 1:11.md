@@ -1,5 +1,0 @@
-[[1 Samuel 6:2]]
-[[2 Samuel 21:1]]
-[[2 Samuel 21:3]]
-[[2 Samuel 24:11]]
-[[Micah 6:6]]

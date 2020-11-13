@@ -1,0 +1,22 @@
+---
+Links:
+[[Deuteronomy 33:9]]
+[[2 Samuel 16:10]]
+[[2 Samuel 19:22]]
+[[Ecclesiastes 3:1]]
+[[Matthew 8:29]]
+[[Matthew 15:28]]
+[[Luke 2:49]]
+[[John 7:6]]
+[[John 7:30]]
+[[John 8:20]]
+[[John 12:23]]
+[[John 13:1]]
+[[John 19:26]]
+[[John 20:13]]
+[[John 20:15]]
+[[2 Corinthians 5:16]]
+[[Galatians 2:5]]
+---
+
+"Jesus saith unto her, Woman, what have I to do with thee? mine hour is not yet come."

@@ -1,6 +1,0 @@
-[[Genesis 32:10]]
-[[Genesis 47:29]]
-[[Numbers 20:17]]
-[[Deuteronomy 2:27]]
-[[Joshua 2:14]]
-[[Proverbs 3:3]]

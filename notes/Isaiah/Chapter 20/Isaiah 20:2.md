@@ -1,0 +1,25 @@
+---
+Links:
+[[Exodus 3:5]]
+[[Joshua 5:15]]
+[[1 Samuel 19:24]]
+[[2 Samuel 6:20]]
+[[2 Kings 1:8]]
+[[Job 1:20]]
+[[Isaiah 13:1]]
+[[Jeremiah 13:1]]
+[[Jeremiah 19:1]]
+[[Ezekiel 4:5]]
+[[Ezekiel 24:17]]
+[[Ezekiel 24:23]]
+[[Micah 1:8]]
+[[Micah 1:11]]
+[[Zechariah 13:4]]
+[[Matthew 3:4]]
+[[Matthew 16:24]]
+[[John 21:7]]
+[[Acts 19:16]]
+[[Revelation 11:3]]
+---
+
+"At the same time spake the LORD by Isaiah the son of Amoz, saying, Go and loose the sackcloth from off thy loins, and put off thy shoe from thy foot. And he did so, walking naked and barefoot."

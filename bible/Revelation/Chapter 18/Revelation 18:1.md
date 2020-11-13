@@ -1,8 +1,0 @@
-[[Isaiah 60:1]]
-[[Ezekiel 43:2]]
-[[Luke 17:24]]
-[[2 Thessalonians 2:8]]
-[[Revelation 10:1]]
-[[Revelation 17:1]]
-[[Revelation 17:7]]
-[[Revelation 21:23]]

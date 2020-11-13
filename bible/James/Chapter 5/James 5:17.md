@@ -1,7 +1,0 @@
-[[1 Kings 17:1]]
-[[1 Kings 18:1]]
-[[Luke 4:25]]
-[[Acts 10:26]]
-[[Acts 14:15]]
-[[Romans 11:2]]
-[[Revelation 11:6]]

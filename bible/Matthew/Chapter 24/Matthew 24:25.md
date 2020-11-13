@@ -1,5 +1,0 @@
-[[Isaiah 44:7]]
-[[Isaiah 46:10]]
-[[Isaiah 48:5]]
-[[Luke 21:13]]
-[[John 16:1]]

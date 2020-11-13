@@ -1,0 +1,17 @@
+---
+Links:
+[[Deuteronomy 13:13]]
+[[1 Samuel 2:12]]
+[[1 Samuel 25:17]]
+[[2 Samuel 3:37]]
+[[2 Samuel 11:15]]
+[[2 Samuel 12:9]]
+[[1 Kings 21:10]]
+[[1 Kings 21:13]]
+[[Psalms 3:2]]
+[[Psalms 5:6]]
+[[Psalms 51:14]]
+[[Psalms 55:4]]
+---
+
+"And thus said Shimei when he cursed, Come out, come out, thou bloody man, and thou man of Belial:"

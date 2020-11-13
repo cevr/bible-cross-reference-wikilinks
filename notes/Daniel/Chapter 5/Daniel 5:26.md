@@ -1,0 +1,15 @@
+---
+Links:
+[[Job 14:14]]
+[[Isaiah 13:1]]
+[[Isaiah 21:1]]
+[[Isaiah 47:1]]
+[[Jeremiah 25:11]]
+[[Jeremiah 25:12]]
+[[Jeremiah 27:7]]
+[[Jeremiah 50:1]]
+[[Daniel 9:2]]
+[[Acts 15:18]]
+---
+
+"This is the interpretation of the thing: MENE; God hath numbered thy kingdom, and finished it."

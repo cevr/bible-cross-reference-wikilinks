@@ -1,0 +1,20 @@
+---
+Links:
+[[Job 22:11]]
+[[Psalms 18:4]]
+[[Psalms 32:6]]
+[[Psalms 42:7]]
+[[Psalms 45:1]]
+[[Psalms 60:1]]
+[[Psalms 69:2]]
+[[Psalms 69:14]]
+[[Psalms 80:1]]
+[[Isaiah 28:17]]
+[[Isaiah 43:2]]
+[[Lamentations 3:54]]
+[[Jonah 2:3]]
+[[Revelation 12:15]]
+[[Revelation 17:15]]
+---
+
+"Save me, O God; for the waters are come in unto my soul."

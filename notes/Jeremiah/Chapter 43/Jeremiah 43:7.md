@@ -1,0 +1,14 @@
+---
+Links:
+[[2 Kings 25:26]]
+[[2 Chronicles 25:16]]
+[[Isaiah 30:4]]
+[[Jeremiah 2:16]]
+[[Jeremiah 41:17]]
+[[Jeremiah 42:21]]
+[[Jeremiah 44:1]]
+[[Jeremiah 46:14]]
+[[Ezekiel 30:18]]
+---
+
+"So they came into the land of Egypt: for they obeyed not the voice of the LORD: thus came they even to Tahpanhes."

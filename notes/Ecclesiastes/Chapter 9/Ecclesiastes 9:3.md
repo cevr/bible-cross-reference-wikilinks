@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 6:5]]
+[[Genesis 8:21]]
+[[Job 9:22]]
+[[Job 15:16]]
+[[Job 21:26]]
+[[Psalms 51:5]]
+[[Psalms 64:7]]
+[[Proverbs 14:32]]
+[[Ecclesiastes 1:17]]
+[[Ecclesiastes 2:14]]
+[[Ecclesiastes 7:25]]
+[[Ecclesiastes 8:11]]
+[[Ecclesiastes 9:2]]
+[[Ecclesiastes 9:11]]
+[[Ecclesiastes 12:7]]
+[[Jeremiah 17:9]]
+[[Matthew 15:19]]
+[[Mark 7:21]]
+[[Luke 6:11]]
+[[Luke 15:17]]
+[[Acts 12:23]]
+[[Acts 26:11]]
+[[Acts 26:24]]
+[[Romans 1:29]]
+[[Titus 3:3]]
+[[2 Peter 2:16]]
+---
+
+"This is an evil among all things that are done under the sun, that there is one event unto all: yea, also the heart of the sons of men is full of evil, and madness is in their heart while they live, and after that they go to the dead."

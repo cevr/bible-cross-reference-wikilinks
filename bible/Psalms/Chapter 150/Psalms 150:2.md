@@ -1,8 +1,0 @@
-[[Deuteronomy 3:24]]
-[[Psalms 96:3]]
-[[Psalms 96:4]]
-[[Psalms 145:3]]
-[[Psalms 145:5]]
-[[Psalms 145:12]]
-[[Jeremiah 32:17]]
-[[Revelation 15:3]]

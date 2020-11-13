@@ -1,0 +1,16 @@
+---
+Links:
+[[Job 18:8]]
+[[Psalms 7:3]]
+[[Psalms 9:15]]
+[[Psalms 25:3]]
+[[Psalms 57:7]]
+[[Psalms 64:4]]
+[[Psalms 69:4]]
+[[Psalms 119:85]]
+[[Psalms 140:5]]
+[[Jeremiah 18:20]]
+[[John 15:25]]
+---
+
+"For without cause have they hid for me their net in a pit, which without cause they have digged for my soul."

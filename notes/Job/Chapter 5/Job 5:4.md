@@ -1,0 +1,19 @@
+---
+Links:
+[[Exodus 20:5]]
+[[Job 1:19]]
+[[Job 4:10]]
+[[Job 8:4]]
+[[Job 10:7]]
+[[Job 18:16]]
+[[Job 27:14]]
+[[Psalms 7:2]]
+[[Psalms 109:9]]
+[[Psalms 109:10]]
+[[Psalms 119:155]]
+[[Psalms 127:5]]
+[[Amos 5:12]]
+[[Luke 13:4]]
+---
+
+"His children are far from safety, and they are crushed in the gate, neither is there any to deliver them."

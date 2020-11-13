@@ -1,0 +1,11 @@
+---
+Links:
+[[Psalms 35:13]]
+[[Psalms 102:8]]
+[[Psalms 109:24]]
+[[Psalms 109:25]]
+[[Psalms 119:139]]
+[[Luke 7:33]]
+---
+
+"When I wept, and chastened my soul with fasting, that was to my reproach."

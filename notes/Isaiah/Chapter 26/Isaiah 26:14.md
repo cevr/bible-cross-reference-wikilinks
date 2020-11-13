@@ -1,0 +1,24 @@
+---
+Links:
+[[Exodus 14:30]]
+[[Deuteronomy 4:28]]
+[[Job 7:9]]
+[[Job 18:17]]
+[[Job 24:20]]
+[[Psalms 9:6]]
+[[Psalms 106:28]]
+[[Psalms 109:13]]
+[[Proverbs 10:7]]
+[[Isaiah 8:19]]
+[[Isaiah 10:3]]
+[[Isaiah 14:19]]
+[[Isaiah 26:19]]
+[[Isaiah 51:12]]
+[[Habakkuk 2:18]]
+[[Matthew 2:20]]
+[[Revelation 18:2]]
+[[Revelation 19:19]]
+[[Revelation 20:5]]
+---
+
+"They are dead, they shall not live; they are deceased, they shall not rise: therefore hast thou visited and destroyed them, and made all their memory to perish."

@@ -1,8 +1,0 @@
-[[Malachi 4:6]]
-[[Matthew 5:17]]
-[[Luke 24:27]]
-[[Luke 24:44]]
-[[John 5:46]]
-[[Acts 3:22]]
-[[Acts 13:27]]
-[[Romans 3:21]]

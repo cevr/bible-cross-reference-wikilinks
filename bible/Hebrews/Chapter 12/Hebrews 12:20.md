@@ -1,6 +1,0 @@
-[[Exodus 19:12]]
-[[Exodus 19:16]]
-[[Deuteronomy 33:2]]
-[[Romans 3:19]]
-[[Galatians 2:19]]
-[[Galatians 3:10]]

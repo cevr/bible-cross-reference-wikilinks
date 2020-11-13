@@ -1,8 +1,0 @@
-[[Ezra 4:9]]
-[[Ezra 4:23]]
-[[Ezra 5:6]]
-[[Ezra 6:6]]
-[[Esther 6:11]]
-[[Job 5:12]]
-[[Proverbs 29:26]]
-[[Ecclesiastes 8:4]]

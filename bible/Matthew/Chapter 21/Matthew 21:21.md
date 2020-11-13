@@ -1,8 +1,0 @@
-[[Matthew 8:12]]
-[[Matthew 14:29]]
-[[Matthew 17:20]]
-[[Mark 11:22]]
-[[Luke 17:6]]
-[[Romans 4:19]]
-[[1 Corinthians 13:2]]
-[[James 1:6]]

@@ -1,0 +1,21 @@
+---
+Links:
+[[Leviticus 18:25]]
+[[Leviticus 18:28]]
+[[Leviticus 20:22]]
+[[Deuteronomy 28:29]]
+[[Isaiah 32:9]]
+[[Jeremiah 2:14]]
+[[Jeremiah 4:13]]
+[[Jeremiah 4:20]]
+[[Jeremiah 4:30]]
+[[Lamentations 4:15]]
+[[Lamentations 5:2]]
+[[Ezekiel 7:16]]
+[[Ezekiel 27:2]]
+[[Micah 1:8]]
+[[Micah 2:4]]
+[[Micah 2:10]]
+---
+
+"For a voice of wailing is heard out of Zion, How are we spoiled! we are greatly confounded, because we have forsaken the land, because our dwellings have cast us out."

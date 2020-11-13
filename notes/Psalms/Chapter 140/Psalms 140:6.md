@@ -1,0 +1,23 @@
+---
+Links:
+[[Psalms 16:2]]
+[[Psalms 16:5]]
+[[Psalms 27:7]]
+[[Psalms 28:1]]
+[[Psalms 31:14]]
+[[Psalms 55:1]]
+[[Psalms 57:7]]
+[[Psalms 64:1]]
+[[Psalms 91:2]]
+[[Psalms 116:1]]
+[[Psalms 119:57]]
+[[Psalms 130:2]]
+[[Psalms 142:4]]
+[[Psalms 142:5]]
+[[Psalms 143:1]]
+[[Jeremiah 18:22]]
+[[Lamentations 3:24]]
+[[Zechariah 13:9]]
+---
+
+"I said unto the LORD, Thou art my God: hear the voice of my supplications, O LORD."

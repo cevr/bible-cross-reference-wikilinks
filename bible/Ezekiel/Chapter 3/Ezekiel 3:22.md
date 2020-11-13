@@ -1,5 +1,0 @@
-[[Ezekiel 1:3]]
-[[Ezekiel 3:14]]
-[[Ezekiel 8:4]]
-[[Ezekiel 37:1]]
-[[Acts 9:6]]

@@ -1,0 +1,24 @@
+---
+Links:
+[[Job 21:7]]
+[[Psalms 49:6]]
+[[Psalms 49:16]]
+[[Psalms 73:3]]
+[[Proverbs 1:32]]
+[[Jeremiah 5:4]]
+[[Amos 4:1]]
+[[Amos 6:1]]
+[[Haggai 2:9]]
+[[Matthew 6:2]]
+[[Matthew 6:5]]
+[[Matthew 6:16]]
+[[Luke 12:15]]
+[[Luke 16:19]]
+[[Luke 18:23]]
+[[1 Timothy 6:17]]
+[[James 2:6]]
+[[James 5:1]]
+[[Revelation 18:6]]
+---
+
+"But woe unto you that are rich! for ye have received your consolation."

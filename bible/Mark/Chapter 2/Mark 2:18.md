@@ -1,7 +1,0 @@
-[[Matthew 6:16]]
-[[Matthew 6:18]]
-[[Matthew 9:14]]
-[[Matthew 23:5]]
-[[Luke 5:33]]
-[[Luke 18:12]]
-[[Romans 10:3]]

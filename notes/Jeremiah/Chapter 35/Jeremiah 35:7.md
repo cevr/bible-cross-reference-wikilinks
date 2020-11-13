@@ -1,0 +1,14 @@
+---
+Links:
+[[Genesis 25:27]]
+[[Exodus 20:12]]
+[[Leviticus 23:42]]
+[[Nehemiah 8:14]]
+[[Jeremiah 35:10]]
+[[Ephesians 5:18]]
+[[Ephesians 6:2]]
+[[Hebrews 11:9]]
+[[1 Peter 2:11]]
+---
+
+"Neither shall ye build house, nor sow seed, nor plant vineyard, nor have any: but all your days ye shall dwell in tents; that ye may live many days in the land where ye be strangers."

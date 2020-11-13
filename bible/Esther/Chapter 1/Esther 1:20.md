@@ -1,6 +1,0 @@
-[[Deuteronomy 17:13]]
-[[Deuteronomy 21:21]]
-[[Ephesians 5:22]]
-[[Ephesians 5:33]]
-[[Colossians 3:18]]
-[[1 Peter 3:1]]

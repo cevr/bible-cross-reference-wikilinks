@@ -1,5 +1,0 @@
-[[Hosea 9:7]]
-[[John 10:20]]
-[[Acts 2:13]]
-[[Acts 26:24]]
-[[1 Corinthians 11:18]]

@@ -1,0 +1,30 @@
+---
+Links:
+[[Proverbs 30:9]]
+[[Daniel 11:34]]
+[[Matthew 26:70]]
+[[Luke 12:9]]
+[[John 14:21]]
+[[John 15:20]]
+[[John 17:6]]
+[[Acts 3:13]]
+[[Acts 14:27]]
+[[1 Corinthians 16:9]]
+[[2 Corinthians 2:12]]
+[[2 Corinthians 12:8]]
+[[Philippians 4:13]]
+[[Colossians 4:3]]
+[[1 Timothy 5:8]]
+[[2 Timothy 4:7]]
+[[1 John 2:22]]
+[[Jude 1:4]]
+[[Revelation 2:2]]
+[[Revelation 2:13]]
+[[Revelation 3:1]]
+[[Revelation 3:7]]
+[[Revelation 3:10]]
+[[Revelation 3:15]]
+[[Revelation 22:7]]
+---
+
+"I know thy works: behold, I have set before thee an open door, and no man can shut it: for thou hast a little strength, and hast kept my word, and hast not denied my name."

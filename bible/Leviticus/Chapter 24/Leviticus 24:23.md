@@ -1,6 +1,0 @@
-[[Exodus 12:28]]
-[[Leviticus 16:34]]
-[[Leviticus 24:14]]
-[[Numbers 15:35]]
-[[Hebrews 2:2]]
-[[Hebrews 10:28]]

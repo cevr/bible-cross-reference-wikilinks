@@ -1,5 +1,0 @@
-[[1 Samuel 30:1]]
-[[1 Chronicles 5:24]]
-[[1 Chronicles 11:10]]
-[[1 Chronicles 11:21]]
-[[1 Chronicles 12:20]]

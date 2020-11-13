@@ -1,7 +1,0 @@
-[[Job 5:26]]
-[[Isaiah 57:1]]
-[[Joel 3:13]]
-[[Matthew 13:30]]
-[[Matthew 13:40]]
-[[2 Timothy 4:7]]
-[[Revelation 14:13]]

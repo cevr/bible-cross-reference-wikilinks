@@ -1,6 +1,0 @@
-[[Joshua 19:24]]
-[[Joshua 19:28]]
-[[Joshua 19:29]]
-[[Joshua 19:30]]
-[[2 Samuel 24:6]]
-[[1 Kings 16:31]]

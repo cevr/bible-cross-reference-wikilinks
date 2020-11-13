@@ -1,0 +1,26 @@
+---
+Links:
+[[1 Samuel 16:13]]
+[[1 Samuel 17:33]]
+[[1 Samuel 17:45]]
+[[1 Kings 18:12]]
+[[2 Chronicles 34:3]]
+[[Psalms 13:5]]
+[[Psalms 22:9]]
+[[Psalms 39:7]]
+[[Psalms 42:11]]
+[[Psalms 71:17]]
+[[Psalms 119:81]]
+[[Psalms 119:166]]
+[[Ecclesiastes 12:1]]
+[[Jeremiah 14:8]]
+[[Jeremiah 17:7]]
+[[Jeremiah 17:13]]
+[[Jeremiah 17:17]]
+[[Jeremiah 50:7]]
+[[Luke 2:40]]
+[[Romans 15:13]]
+[[2 Timothy 3:15]]
+---
+
+"For thou art my hope, O Lord GOD: thou art my trust from my youth."

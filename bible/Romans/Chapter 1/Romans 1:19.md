@@ -1,7 +1,0 @@
-[[Psalms 19:1]]
-[[Isaiah 40:26]]
-[[Jeremiah 10:10]]
-[[John 1:9]]
-[[Acts 14:16]]
-[[Acts 17:23]]
-[[Romans 1:20]]

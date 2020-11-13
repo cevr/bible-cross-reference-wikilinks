@@ -1,0 +1,30 @@
+---
+Links:
+[[Joshua 14:10]]
+[[Joshua 15:61]]
+[[Judges 1:16]]
+[[Isaiah 40:3]]
+[[Matthew 3:8]]
+[[Matthew 11:7]]
+[[Matthew 11:11]]
+[[Matthew 14:2]]
+[[Matthew 16:14]]
+[[Matthew 17:12]]
+[[Matthew 21:25]]
+[[Matthew 21:32]]
+[[Mark 1:3]]
+[[Mark 1:15]]
+[[Mark 6:16]]
+[[Luke 1:13]]
+[[Luke 1:76]]
+[[Luke 3:1]]
+[[Luke 7:24]]
+[[John 1:6]]
+[[John 1:15]]
+[[John 3:27]]
+[[Acts 1:22]]
+[[Acts 13:24]]
+[[Acts 19:3]]
+---
+
+"In those days came John the Baptist, preaching in the wilderness of Judaea,"

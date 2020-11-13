@@ -1,7 +1,0 @@
-[[Genesis 40:8]]
-[[Genesis 41:9]]
-[[2 Chronicles 26:5]]
-[[Psalms 25:14]]
-[[Daniel 5:12]]
-[[Daniel 5:14]]
-[[Daniel 5:16]]

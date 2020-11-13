@@ -1,0 +1,27 @@
+---
+Links:
+[[Genesis 10:8]]
+[[Deuteronomy 32:2]]
+[[2 Kings 15:29]]
+[[2 Kings 17:3]]
+[[2 Kings 18:9]]
+[[2 Kings 19:32]]
+[[1 Chronicles 1:10]]
+[[2 Chronicles 33:11]]
+[[Job 29:22]]
+[[Psalms 72:6]]
+[[Psalms 110:3]]
+[[Isaiah 6:13]]
+[[Isaiah 10:5]]
+[[Isaiah 14:2]]
+[[Isaiah 14:25]]
+[[Isaiah 33:1]]
+[[Jeremiah 14:22]]
+[[Nahum 2:11]]
+[[Zephaniah 2:13]]
+[[Zephaniah 3:12]]
+[[Luke 1:71]]
+[[Luke 1:74]]
+---
+
+"And they shall waste the land of Assyria with the sword, and the land of Nimrod in the entrances thereof: thus shall he deliver us from the Assyrian, when he cometh into our land, and when he treadeth within our borders."

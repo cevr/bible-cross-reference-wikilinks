@@ -1,6 +1,0 @@
-[[Joshua 19:46]]
-[[1 Kings 5:11]]
-[[2 Chronicles 2:10]]
-[[Ezra 3:7]]
-[[Isaiah 60:13]]
-[[Jonah 1:3]]

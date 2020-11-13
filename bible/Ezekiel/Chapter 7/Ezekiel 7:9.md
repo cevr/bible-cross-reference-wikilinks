@@ -1,8 +1,0 @@
-[[Isaiah 9:13]]
-[[Jeremiah 13:14]]
-[[Jeremiah 36:31]]
-[[Ezekiel 5:11]]
-[[Ezekiel 22:22]]
-[[Micah 6:9]]
-[[Galatians 6:7]]
-[[Revelation 20:13]]

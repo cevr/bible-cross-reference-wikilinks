@@ -1,0 +1,28 @@
+---
+Links:
+[[Esther 6:6]]
+[[Proverbs 13:4]]
+[[Proverbs 15:19]]
+[[Proverbs 18:9]]
+[[Proverbs 19:15]]
+[[Proverbs 20:4]]
+[[Proverbs 21:25]]
+[[Proverbs 24:30]]
+[[Proverbs 26:13]]
+[[Proverbs 27:23]]
+[[Proverbs 29:21]]
+[[Isaiah 10:3]]
+[[Jeremiah 5:31]]
+[[Hosea 9:5]]
+[[Mark 10:46]]
+[[Luke 12:17]]
+[[Luke 16:20]]
+[[Luke 16:22]]
+[[Luke 18:4]]
+[[John 9:8]]
+[[Acts 3:2]]
+[[Acts 9:6]]
+[[2 Thessalonians 3:11]]
+---
+
+"Then the steward said within himself, What shall I do? for my lord taketh away from me the stewardship: I cannot dig; to beg I am ashamed."

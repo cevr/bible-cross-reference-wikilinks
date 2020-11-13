@@ -1,6 +1,0 @@
-[[1 Corinthians 7:2]]
-[[1 Corinthians 7:28]]
-[[1 Corinthians 7:36]]
-[[1 Corinthians 7:39]]
-[[1 Timothy 5:11]]
-[[1 Timothy 5:14]]

@@ -1,0 +1,18 @@
+---
+Links:
+[[1 Samuel 4:3]]
+[[Isaiah 48:2]]
+[[Isaiah 59:4]]
+[[Jeremiah 6:14]]
+[[Jeremiah 7:8]]
+[[Jeremiah 28:15]]
+[[Jeremiah 29:23]]
+[[Jeremiah 29:31]]
+[[Ezekiel 13:19]]
+[[Micah 3:11]]
+[[Zephaniah 3:11]]
+[[Matthew 3:9]]
+[[Luke 3:8]]
+---
+
+"Trust ye not in lying words, saying, The temple of the LORD, The temple of the LORD, The temple of the LORD, are these."

@@ -1,0 +1,22 @@
+---
+Links:
+[[Exodus 12:29]]
+[[Exodus 13:2]]
+[[Exodus 13:12]]
+[[Exodus 29:44]]
+[[Leviticus 27:14]]
+[[Leviticus 27:26]]
+[[Numbers 3:13]]
+[[Psalms 78:51]]
+[[Psalms 105:36]]
+[[Psalms 135:8]]
+[[Ezekiel 20:12]]
+[[Luke 2:23]]
+[[John 10:36]]
+[[John 17:19]]
+[[Hebrews 10:29]]
+[[Hebrews 11:28]]
+[[James 1:18]]
+---
+
+"For all the firstborn of the children of Israel are mine, both man and beast: on the day that I smote every firstborn in the land of Egypt I sanctified them for myself."

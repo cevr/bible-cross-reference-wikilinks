@@ -1,6 +1,0 @@
-[[Genesis 5:3]]
-[[Job 14:4]]
-[[John 3:6]]
-[[Romans 5:12]]
-[[1 Corinthians 15:21]]
-[[Philippians 3:20]]

@@ -1,5 +1,0 @@
-[[Exodus 4:21]]
-[[Exodus 7:13]]
-[[Exodus 9:7]]
-[[Psalms 81:11]]
-[[Revelation 16:10]]

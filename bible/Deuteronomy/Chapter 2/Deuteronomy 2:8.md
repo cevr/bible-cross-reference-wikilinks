@@ -1,8 +1,0 @@
-[[Numbers 20:20]]
-[[Numbers 20:21]]
-[[Numbers 33:35]]
-[[Deuteronomy 1:1]]
-[[Judges 11:18]]
-[[1 Kings 9:26]]
-[[2 Kings 14:22]]
-[[2 Kings 16:6]]

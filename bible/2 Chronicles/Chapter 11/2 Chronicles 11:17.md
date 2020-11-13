@@ -1,6 +1,0 @@
-[[2 Chronicles 1:1]]
-[[2 Chronicles 7:17]]
-[[2 Chronicles 8:13]]
-[[2 Chronicles 12:1]]
-[[Hosea 6:4]]
-[[Matthew 13:20]]

@@ -1,7 +1,0 @@
-[[Exodus 21:1]]
-[[Exodus 21:2]]
-[[Leviticus 25:39]]
-[[Leviticus 25:40]]
-[[Deuteronomy 15:1]]
-[[Jeremiah 34:14]]
-[[John 8:35]]

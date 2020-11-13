@@ -1,5 +1,0 @@
-[[Genesis 21:20]]
-[[Genesis 25:18]]
-[[Genesis 27:40]]
-[[Job 11:12]]
-[[Job 39:5]]

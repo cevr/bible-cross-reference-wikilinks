@@ -1,0 +1,27 @@
+---
+Links:
+[[Genesis 34:30]]
+[[Genesis 38:24]]
+[[Leviticus 20:2]]
+[[Leviticus 20:14]]
+[[Leviticus 21:9]]
+[[Leviticus 24:14]]
+[[Deuteronomy 13:10]]
+[[Deuteronomy 13:11]]
+[[Deuteronomy 17:5]]
+[[Deuteronomy 21:21]]
+[[Deuteronomy 22:21]]
+[[Joshua 6:18]]
+[[Joshua 7:11]]
+[[Joshua 7:15]]
+[[1 Kings 18:17]]
+[[1 Chronicles 2:7]]
+[[Proverbs 1:19]]
+[[Proverbs 15:27]]
+[[Habakkuk 2:6]]
+[[Galatians 5:12]]
+[[2 Thessalonians 1:6]]
+[[Hebrews 12:15]]
+---
+
+"And Joshua said, Why hast thou troubled us? the LORD shall trouble thee this day. And all Israel stoned him with stones, and burned them with fire, after they had stoned them with stones."

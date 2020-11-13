@@ -1,0 +1,23 @@
+---
+Links:
+[[Exodus 19:5]]
+[[Numbers 16:3]]
+[[Deuteronomy 26:5]]
+[[Deuteronomy 26:9]]
+[[Deuteronomy 32:8]]
+[[1 Samuel 2:8]]
+[[1 Kings 8:36]]
+[[Job 5:10]]
+[[Psalms 65:9]]
+[[Psalms 65:10]]
+[[Psalms 65:11]]
+[[Psalms 74:1]]
+[[Psalms 74:19]]
+[[Psalms 78:20]]
+[[Isaiah 40:29]]
+[[Matthew 11:5]]
+[[Luke 1:53]]
+[[1 Peter 5:3]]
+---
+
+"Thy congregation hath dwelt therein: thou, O God, hast prepared of thy goodness for the poor."

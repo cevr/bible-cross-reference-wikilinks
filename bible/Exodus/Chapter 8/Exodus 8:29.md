@@ -1,7 +1,0 @@
-[[Exodus 8:8]]
-[[Exodus 8:15]]
-[[Psalms 66:3]]
-[[Psalms 78:34]]
-[[Jeremiah 42:20]]
-[[Acts 5:3]]
-[[Galatians 6:7]]

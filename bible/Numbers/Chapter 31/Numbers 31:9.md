@@ -1,7 +1,0 @@
-[[Genesis 34:29]]
-[[Numbers 31:15]]
-[[Numbers 31:53]]
-[[Deuteronomy 20:14]]
-[[2 Chronicles 14:15]]
-[[2 Chronicles 28:5]]
-[[2 Chronicles 28:8]]

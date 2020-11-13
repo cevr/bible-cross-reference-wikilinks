@@ -1,5 +1,0 @@
-[[Exodus 12:18]]
-[[Exodus 13:6]]
-[[Exodus 13:7]]
-[[Leviticus 23:6]]
-[[Leviticus 23:14]]

@@ -1,0 +1,22 @@
+---
+Links:
+[[Deuteronomy 28:63]]
+[[Deuteronomy 32:43]]
+[[Psalms 132:2]]
+[[Proverbs 1:25]]
+[[Isaiah 30:29]]
+[[Isaiah 35:4]]
+[[Isaiah 49:26]]
+[[Isaiah 60:16]]
+[[Isaiah 61:2]]
+[[Isaiah 63:4]]
+[[Jeremiah 50:34]]
+[[Ezekiel 5:12]]
+[[Ezekiel 5:13]]
+[[Ezekiel 16:42]]
+[[Ezekiel 21:17]]
+[[Hebrews 10:13]]
+[[Revelation 18:8]]
+---
+
+"Therefore saith the Lord, the LORD of hosts, the mighty One of Israel, Ah, I will ease me of mine adversaries, and avenge me of mine enemies:"

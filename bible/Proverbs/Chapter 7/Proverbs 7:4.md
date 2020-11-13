@@ -1,6 +1,0 @@
-[[Job 17:14]]
-[[Proverbs 2:2]]
-[[Proverbs 4:6]]
-[[Songs of Solomon 8:1]]
-[[Matthew 12:49]]
-[[Luke 11:27]]

@@ -1,7 +1,0 @@
-[[Leviticus 14:3]]
-[[Job 5:18]]
-[[Hosea 6:1]]
-[[Mark 5:29]]
-[[Mark 5:34]]
-[[Luke 7:21]]
-[[1 Corinthians 6:11]]

@@ -1,6 +1,0 @@
-[[2 Chronicles 35:25]]
-[[Job 3:8]]
-[[Ecclesiastes 12:5]]
-[[Amos 5:16]]
-[[Matthew 9:23]]
-[[Mark 5:38]]

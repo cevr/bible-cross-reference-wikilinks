@@ -1,0 +1,14 @@
+---
+Links:
+[[Numbers 21:30]]
+[[Deuteronomy 3:12]]
+[[Deuteronomy 3:16]]
+[[Joshua 12:2]]
+[[Joshua 13:16]]
+[[1 Chronicles 19:7]]
+[[Isaiah 15:2]]
+[[Jeremiah 48:18]]
+[[Jeremiah 48:22]]
+---
+
+"From Aroer, that is upon the bank of the river Arnon, and the city that is in the midst of the river, and all the plain of Medeba unto Dibon;"

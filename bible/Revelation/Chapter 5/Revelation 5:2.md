@@ -1,7 +1,0 @@
-[[Job 41:15]]
-[[Psalms 103:20]]
-[[Isaiah 29:11]]
-[[Isaiah 41:22]]
-[[Revelation 5:5]]
-[[Revelation 10:1]]
-[[Revelation 18:21]]

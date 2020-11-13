@@ -1,0 +1,18 @@
+---
+Links:
+[[Leviticus 26:29]]
+[[Deuteronomy 28:52]]
+[[1 Kings 3:21]]
+[[2 Kings 6:26]]
+[[Job 39:13]]
+[[Job 39:16]]
+[[Isaiah 49:15]]
+[[Jeremiah 19:9]]
+[[Lamentations 2:20]]
+[[Lamentations 4:10]]
+[[Ezekiel 5:10]]
+[[Luke 23:28]]
+[[Romans 1:31]]
+---
+
+"Even the sea monsters draw out the breast, they give suck to their young ones: the daughter of my people is become cruel, like the ostriches in the wilderness."

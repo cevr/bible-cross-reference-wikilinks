@@ -1,0 +1,33 @@
+---
+Links:
+[[Mark 10:39]]
+[[John 16:33]]
+[[Acts 14:22]]
+[[Romans 2:7]]
+[[Romans 5:3]]
+[[Romans 8:17]]
+[[Romans 8:25]]
+[[1 Corinthians 4:9]]
+[[Philippians 1:7]]
+[[Philippians 4:14]]
+[[2 Thessalonians 1:4]]
+[[2 Thessalonians 3:5]]
+[[2 Timothy 1:8]]
+[[2 Timothy 2:3]]
+[[Hebrews 10:36]]
+[[James 5:7]]
+[[Revelation 1:2]]
+[[Revelation 1:4]]
+[[Revelation 2:9]]
+[[Revelation 3:10]]
+[[Revelation 6:9]]
+[[Revelation 7:14]]
+[[Revelation 11:7]]
+[[Revelation 12:11]]
+[[Revelation 12:17]]
+[[Revelation 13:10]]
+[[Revelation 14:12]]
+[[Revelation 19:10]]
+---
+
+"I John, who also am your brother, and companion in tribulation, and in the kingdom and patience of Jesus Christ, was in the isle that is called Patmos, for the word of God, and for the testimony of Jesus Christ."

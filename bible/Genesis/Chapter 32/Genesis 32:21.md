@@ -1,5 +1,0 @@
-[[Genesis 33:11]]
-[[Genesis 43:11]]
-[[Joshua 8:9]]
-[[1 Samuel 25:19]]
-[[Proverbs 17:8]]

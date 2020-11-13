@@ -1,0 +1,17 @@
+---
+Links:
+[[Exodus 1:13]]
+[[Exodus 2:23]]
+[[1 Samuel 8:11]]
+[[1 Kings 4:20]]
+[[1 Kings 4:25]]
+[[1 Kings 5:15]]
+[[1 Kings 9:22]]
+[[1 Kings 12:4]]
+[[Isaiah 47:6]]
+[[Matthew 11:29]]
+[[Matthew 23:4]]
+[[1 John 5:3]]
+---
+
+"Thy father made our yoke grievous: now therefore ease thou somewhat the grievous servitude of thy father, and his heavy yoke that he put upon us, and we will serve thee."

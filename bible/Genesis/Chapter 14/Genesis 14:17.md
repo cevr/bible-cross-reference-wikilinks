@@ -1,6 +1,0 @@
-[[Judges 11:34]]
-[[1 Samuel 18:6]]
-[[2 Samuel 18:18]]
-[[Proverbs 14:20]]
-[[Proverbs 19:4]]
-[[Hebrews 7:1]]

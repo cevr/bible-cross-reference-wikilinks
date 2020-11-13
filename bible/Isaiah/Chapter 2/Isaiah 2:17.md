@@ -1,6 +1,0 @@
-[[Psalms 46:11]]
-[[Isaiah 2:11]]
-[[Isaiah 5:16]]
-[[Isaiah 13:11]]
-[[Jeremiah 48:29]]
-[[Ezekiel 28:2]]

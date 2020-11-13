@@ -1,0 +1,20 @@
+---
+Links:
+[[Exodus 9:16]]
+[[Deuteronomy 32:40]]
+[[Psalms 57:6]]
+[[Psalms 72:19]]
+[[Isaiah 6:3]]
+[[Isaiah 49:18]]
+[[Jeremiah 22:24]]
+[[Ezekiel 5:11]]
+[[Ezekiel 18:3]]
+[[Ezekiel 20:36]]
+[[Ezekiel 33:11]]
+[[Ezekiel 33:27]]
+[[Habakkuk 2:14]]
+[[Zephaniah 2:9]]
+[[Matthew 6:10]]
+---
+
+"But as truly as I live, all the earth shall be filled with the glory of the LORD."

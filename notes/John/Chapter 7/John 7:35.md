@@ -1,0 +1,26 @@
+---
+Links:
+[[Psalms 67:1]]
+[[Psalms 98:2]]
+[[Isaiah 11:10]]
+[[Isaiah 11:12]]
+[[Isaiah 27:12]]
+[[Isaiah 49:6]]
+[[Zephaniah 3:10]]
+[[Matthew 12:21]]
+[[Luke 2:32]]
+[[John 8:22]]
+[[John 12:20]]
+[[Acts 11:18]]
+[[Acts 13:46]]
+[[Acts 21:21]]
+[[Acts 22:21]]
+[[Ephesians 3:8]]
+[[Colossians 1:27]]
+[[1 Timothy 2:7]]
+[[2 Timothy 1:11]]
+[[James 1:1]]
+[[1 Peter 1:1]]
+---
+
+"Then said the Jews among themselves, Whither will he go, that we shall not find him? will he go unto the dispersed among the Gentiles, and teach the Gentiles?"

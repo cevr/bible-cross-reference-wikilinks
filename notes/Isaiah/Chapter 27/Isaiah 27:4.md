@@ -1,0 +1,21 @@
+---
+Links:
+[[2 Samuel 23:6]]
+[[2 Samuel 23:7]]
+[[Psalms 85:3]]
+[[Psalms 103:9]]
+[[Isaiah 9:18]]
+[[Isaiah 10:17]]
+[[Isaiah 12:1]]
+[[Isaiah 26:20]]
+[[Isaiah 54:6]]
+[[Jeremiah 29:11]]
+[[Ezekiel 16:63]]
+[[Nahum 1:3]]
+[[Malachi 4:3]]
+[[Matthew 3:12]]
+[[Hebrews 6:8]]
+[[2 Peter 2:9]]
+---
+
+"Fury is not in me: who would set the briers and thorns against me in battle? I would go through them, I would burn them together."

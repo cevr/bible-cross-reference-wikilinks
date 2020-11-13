@@ -1,0 +1,20 @@
+---
+Links:
+[[Esther 3:6]]
+[[Esther 7:5]]
+[[Proverbs 6:18]]
+[[Proverbs 12:2]]
+[[Proverbs 12:16]]
+[[Proverbs 14:29]]
+[[Proverbs 15:18]]
+[[Proverbs 16:32]]
+[[Proverbs 20:3]]
+[[Proverbs 22:24]]
+[[Proverbs 29:22]]
+[[Ecclesiastes 7:9]]
+[[Isaiah 32:7]]
+[[Jeremiah 5:26]]
+[[James 1:19]]
+---
+
+"He that is soon angry dealeth foolishly: and a man of wicked devices is hated."

@@ -1,8 +1,0 @@
-[[Numbers 11:20]]
-[[Numbers 11:22]]
-[[2 Kings 4:43]]
-[[2 Kings 7:2]]
-[[Matthew 15:33]]
-[[Mark 8:4]]
-[[Mark 9:23]]
-[[John 6:5]]

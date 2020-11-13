@@ -1,5 +1,0 @@
-[[2 Samuel 10:18]]
-[[1 Chronicles 19:13]]
-[[Psalms 18:32]]
-[[Psalms 33:16]]
-[[Psalms 46:11]]

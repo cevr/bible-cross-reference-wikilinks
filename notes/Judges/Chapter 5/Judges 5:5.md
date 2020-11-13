@@ -1,0 +1,18 @@
+---
+Links:
+[[Exodus 19:18]]
+[[Exodus 20:18]]
+[[Deuteronomy 4:11]]
+[[Deuteronomy 5:22]]
+[[Psalms 68:8]]
+[[Psalms 68:9]]
+[[Psalms 97:5]]
+[[Psalms 114:4]]
+[[Isaiah 63:19]]
+[[Isaiah 64:1]]
+[[Nahum 1:5]]
+[[Habakkuk 3:10]]
+[[Hebrews 12:18]]
+---
+
+"The mountains melted from before the LORD, even that Sinai from before the LORD God of Israel."

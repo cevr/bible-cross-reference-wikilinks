@@ -1,8 +1,0 @@
-[[Exodus 2:14]]
-[[1 Chronicles 24:1]]
-[[Matthew 20:4]]
-[[Matthew 26:55]]
-[[Mark 11:27]]
-[[Luke 19:47]]
-[[Acts 4:7]]
-[[Acts 7:27]]

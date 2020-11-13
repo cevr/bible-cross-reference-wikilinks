@@ -1,7 +1,0 @@
-[[Judges 5:11]]
-[[Isaiah 1:18]]
-[[Isaiah 5:3]]
-[[Ezekiel 18:25]]
-[[Micah 6:1]]
-[[Micah 6:5]]
-[[Acts 17:3]]

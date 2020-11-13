@@ -1,5 +1,0 @@
-[[Genesis 12:16]]
-[[Genesis 12:19]]
-[[Genesis 20:2]]
-[[Genesis 20:7]]
-[[Genesis 20:11]]

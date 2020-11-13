@@ -1,5 +1,0 @@
-[[Jeremiah 40:8]]
-[[Jeremiah 40:13]]
-[[Jeremiah 41:11]]
-[[Jeremiah 42:1]]
-[[Jeremiah 43:2]]

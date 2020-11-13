@@ -1,0 +1,30 @@
+---
+Links:
+[[2 Kings 17:19]]
+[[2 Chronicles 36:16]]
+[[Job 30:26]]
+[[Psalms 78:59]]
+[[Psalms 80:12]]
+[[Psalms 89:38]]
+[[Proverbs 29:1]]
+[[Jeremiah 6:30]]
+[[Jeremiah 7:29]]
+[[Jeremiah 8:15]]
+[[Jeremiah 8:22]]
+[[Jeremiah 12:7]]
+[[Jeremiah 12:8]]
+[[Jeremiah 15:1]]
+[[Jeremiah 15:18]]
+[[Jeremiah 30:12]]
+[[Jeremiah 30:13]]
+[[Jeremiah 51:5]]
+[[Lamentations 2:13]]
+[[Lamentations 2:22]]
+[[Lamentations 4:17]]
+[[Lamentations 5:22]]
+[[Zechariah 11:8]]
+[[Romans 11:1]]
+[[1 Thessalonians 5:3]]
+---
+
+"Hast thou utterly rejected Judah? hath thy soul lothed Zion? why hast thou smitten us, and there is no healing for us? we looked for peace, and there is no good; and for the time of healing, and behold trouble!"

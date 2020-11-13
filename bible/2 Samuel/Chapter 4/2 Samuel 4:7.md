@@ -1,7 +1,0 @@
-[[1 Samuel 17:51]]
-[[1 Samuel 17:54]]
-[[1 Samuel 31:9]]
-[[2 Samuel 2:29]]
-[[2 Kings 10:6]]
-[[Matthew 14:11]]
-[[Mark 6:28]]

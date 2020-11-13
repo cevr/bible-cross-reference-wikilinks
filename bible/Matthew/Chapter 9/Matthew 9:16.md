@@ -1,7 +1,0 @@
-[[Genesis 33:14]]
-[[Psalms 125:3]]
-[[Isaiah 40:11]]
-[[Luke 5:36]]
-[[John 16:12]]
-[[1 Corinthians 3:1]]
-[[1 Corinthians 13:13]]

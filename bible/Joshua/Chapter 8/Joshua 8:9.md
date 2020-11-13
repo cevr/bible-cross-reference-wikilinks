@@ -1,6 +1,0 @@
-[[Genesis 12:8]]
-[[Genesis 32:21]]
-[[Joshua 7:2]]
-[[Joshua 8:12]]
-[[Ezra 2:28]]
-[[Nehemiah 7:32]]

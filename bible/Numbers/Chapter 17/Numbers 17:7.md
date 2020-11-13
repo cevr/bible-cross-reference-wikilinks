@@ -1,5 +1,0 @@
-[[Exodus 38:21]]
-[[Numbers 9:15]]
-[[Numbers 14:10]]
-[[Numbers 18:2]]
-[[Acts 7:44]]

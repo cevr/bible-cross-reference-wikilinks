@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 10:22]]
+[[Genesis 14:1]]
+[[Genesis 24:10]]
+[[Deuteronomy 23:4]]
+[[Judges 3:8]]
+[[2 Kings 17:6]]
+[[1 Chronicles 19:6]]
+[[Ezra 6:2]]
+[[Isaiah 11:11]]
+[[Isaiah 21:2]]
+[[Daniel 8:2]]
+[[Daniel 8:20]]
+[[Acts 6:9]]
+[[Acts 7:2]]
+[[Acts 16:6]]
+[[Acts 18:2]]
+[[Acts 19:10]]
+[[Acts 19:27]]
+[[Acts 19:31]]
+[[Acts 20:16]]
+[[Acts 20:18]]
+[[Romans 16:5]]
+[[1 Corinthians 16:19]]
+[[2 Corinthians 1:8]]
+[[2 Timothy 1:15]]
+[[1 Peter 1:1]]
+[[Revelation 1:4]]
+[[Revelation 1:11]]
+---
+
+"Parthians, and Medes, and Elamites, and the dwellers in Mesopotamia, and in Judaea, and Cappadocia, in Pontus, and Asia,"

@@ -1,0 +1,30 @@
+---
+Links:
+[[1 Samuel 2:9]]
+[[Psalms 4:7]]
+[[Psalms 6:10]]
+[[Psalms 25:2]]
+[[Psalms 31:1]]
+[[Psalms 34:5]]
+[[Psalms 35:4]]
+[[Psalms 35:26]]
+[[Psalms 40:14]]
+[[Psalms 69:6]]
+[[Psalms 70:2]]
+[[Psalms 71:24]]
+[[Psalms 80:4]]
+[[Psalms 80:8]]
+[[Psalms 83:16]]
+[[Psalms 94:17]]
+[[Psalms 115:17]]
+[[Isaiah 41:11]]
+[[Isaiah 45:16]]
+[[Isaiah 50:6]]
+[[Isaiah 65:13]]
+[[Jeremiah 20:11]]
+[[Daniel 12:2]]
+[[Joel 2:26]]
+[[Matthew 22:12]]
+---
+
+"Let me not be ashamed, O LORD; for I have called upon thee: let the wicked be ashamed, and let them be silent in the grave."

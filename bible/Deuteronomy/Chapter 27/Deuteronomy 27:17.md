@@ -1,5 +1,0 @@
-[[Deuteronomy 19:14]]
-[[Job 24:2]]
-[[Proverbs 22:28]]
-[[Proverbs 23:10]]
-[[Hosea 5:10]]

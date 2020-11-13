@@ -1,7 +1,0 @@
-[[Genesis 35:19]]
-[[Ruth 1:2]]
-[[1 Samuel 7:1]]
-[[1 Samuel 17:12]]
-[[2 Samuel 6:3]]
-[[1 Chronicles 13:5]]
-[[Micah 5:2]]

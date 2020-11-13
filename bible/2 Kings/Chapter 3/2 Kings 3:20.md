@@ -1,7 +1,0 @@
-[[Exodus 29:39]]
-[[1 Kings 18:36]]
-[[Psalms 78:15]]
-[[Psalms 78:20]]
-[[Psalms 107:35]]
-[[Isaiah 35:6]]
-[[Daniel 9:21]]

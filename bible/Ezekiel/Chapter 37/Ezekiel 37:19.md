@@ -1,6 +1,0 @@
-[[1 Chronicles 9:1]]
-[[Jeremiah 3:18]]
-[[Ezekiel 37:16]]
-[[Zechariah 10:6]]
-[[Ephesians 2:13]]
-[[Colossians 3:11]]

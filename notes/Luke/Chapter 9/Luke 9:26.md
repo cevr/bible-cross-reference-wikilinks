@@ -1,0 +1,33 @@
+---
+Links:
+[[Psalms 22:6]]
+[[Isaiah 53:3]]
+[[Daniel 7:10]]
+[[Matthew 7:22]]
+[[Matthew 10:32]]
+[[Matthew 16:27]]
+[[Matthew 24:30]]
+[[Matthew 25:31]]
+[[Matthew 26:64]]
+[[Mark 8:38]]
+[[Luke 12:8]]
+[[Luke 13:25]]
+[[John 5:44]]
+[[John 12:43]]
+[[Romans 1:16]]
+[[2 Corinthians 12:10]]
+[[Galatians 6:14]]
+[[2 Thessalonians 1:8]]
+[[2 Timothy 1:12]]
+[[2 Timothy 2:12]]
+[[Hebrews 11:26]]
+[[Hebrews 13:13]]
+[[1 Peter 4:14]]
+[[Jude 1:14]]
+[[Revelation 1:7]]
+[[Revelation 3:5]]
+[[Revelation 20:11]]
+[[Revelation 21:8]]
+---
+
+"For whosoever shall be ashamed of me and of my words, of him shall the Son of man be ashamed, when he shall come in his own glory, and in his Father's, and of the holy angels."

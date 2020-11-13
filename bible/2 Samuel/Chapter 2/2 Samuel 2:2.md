@@ -1,5 +1,0 @@
-[[1 Samuel 25:42]]
-[[1 Samuel 25:43]]
-[[1 Samuel 30:5]]
-[[2 Samuel 3:3]]
-[[Luke 22:28]]

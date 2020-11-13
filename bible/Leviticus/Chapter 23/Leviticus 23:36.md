@@ -1,8 +1,0 @@
-[[Leviticus 23:7]]
-[[Numbers 29:12]]
-[[Deuteronomy 16:8]]
-[[2 Chronicles 7:8]]
-[[Nehemiah 8:18]]
-[[Joel 1:14]]
-[[Joel 2:15]]
-[[John 7:37]]

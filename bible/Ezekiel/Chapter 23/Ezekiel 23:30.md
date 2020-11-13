@@ -1,8 +1,0 @@
-[[Psalms 106:35]]
-[[Jeremiah 2:18]]
-[[Jeremiah 2:19]]
-[[Jeremiah 16:11]]
-[[Jeremiah 22:8]]
-[[Ezekiel 6:9]]
-[[Ezekiel 23:7]]
-[[Ezekiel 23:12]]

@@ -1,6 +1,0 @@
-[[Genesis 29:31]]
-[[1 Samuel 1:5]]
-[[Isaiah 4:1]]
-[[Luke 1:21]]
-[[Luke 1:25]]
-[[Luke 1:27]]

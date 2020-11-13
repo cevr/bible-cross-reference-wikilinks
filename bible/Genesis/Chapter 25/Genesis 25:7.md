@@ -1,5 +1,0 @@
-[[Genesis 12:4]]
-[[Genesis 35:28]]
-[[Genesis 35:29]]
-[[Genesis 47:28]]
-[[Genesis 50:26]]

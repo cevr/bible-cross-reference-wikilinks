@@ -1,0 +1,15 @@
+---
+Links:
+[[2 Samuel 8:15]]
+[[1 Chronicles 12:38]]
+[[Psalms 72:1]]
+[[Psalms 78:71]]
+[[Psalms 89:14]]
+[[Isaiah 9:7]]
+[[Isaiah 32:1]]
+[[Jeremiah 22:15]]
+[[Jeremiah 23:5]]
+[[Jeremiah 33:15]]
+---
+
+"So David reigned over all Israel, and executed judgment and justice among all his people."

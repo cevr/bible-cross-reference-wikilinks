@@ -1,5 +1,0 @@
-[[Exodus 28:17]]
-[[Exodus 29:10]]
-[[Job 28:16]]
-[[Proverbs 3:15]]
-[[Isaiah 54:11]]

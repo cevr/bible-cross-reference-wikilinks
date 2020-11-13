@@ -1,6 +1,0 @@
-[[Genesis 25:23]]
-[[Genesis 48:10]]
-[[1 Samuel 3:2]]
-[[1 Kings 14:4]]
-[[Ecclesiastes 12:3]]
-[[John 9:3]]

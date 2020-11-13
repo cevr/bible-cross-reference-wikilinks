@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 19:4]]
+[[Exodus 19:6]]
+[[Exodus 24:3]]
+[[Exodus 24:8]]
+[[Exodus 29:45]]
+[[Exodus 33:12]]
+[[Exodus 34:8]]
+[[Exodus 34:10]]
+[[Numbers 11:25]]
+[[Joshua 1:9]]
+[[Joshua 8:1]]
+[[1 Samuel 12:20]]
+[[2 Chronicles 20:17]]
+[[Nehemiah 9:20]]
+[[Nehemiah 9:30]]
+[[Psalms 51:11]]
+[[Isaiah 41:10]]
+[[Isaiah 41:13]]
+[[Isaiah 63:11]]
+[[Zechariah 4:6]]
+[[Zechariah 8:13]]
+[[Zechariah 8:15]]
+[[Matthew 28:5]]
+[[John 14:16]]
+[[Acts 27:24]]
+[[Revelation 1:17]]
+---
+
+"According to the word that I covenanted with you when ye came out of Egypt, so my spirit remaineth among you: fear ye not."

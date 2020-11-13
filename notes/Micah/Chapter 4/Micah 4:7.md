@@ -1,0 +1,32 @@
+---
+Links:
+[[Psalms 2:6]]
+[[Isaiah 6:13]]
+[[Isaiah 9:6]]
+[[Isaiah 10:21]]
+[[Isaiah 11:11]]
+[[Isaiah 24:23]]
+[[Isaiah 49:21]]
+[[Isaiah 60:22]]
+[[Isaiah 66:8]]
+[[Ezekiel 43:7]]
+[[Daniel 7:14]]
+[[Daniel 7:27]]
+[[Hosea 1:10]]
+[[Joel 3:17]]
+[[Obadiah 1:21]]
+[[Micah 2:12]]
+[[Micah 2:13]]
+[[Micah 5:3]]
+[[Micah 5:7]]
+[[Micah 7:18]]
+[[Zephaniah 3:20]]
+[[Zechariah 9:13]]
+[[Zechariah 10:5]]
+[[Luke 1:33]]
+[[Romans 11:5]]
+[[Romans 11:25]]
+[[Revelation 11:15]]
+---
+
+"And I will make her that halted a remnant, and her that was cast far off a strong nation: and the LORD shall reign over them in mount Zion from henceforth, even for ever."

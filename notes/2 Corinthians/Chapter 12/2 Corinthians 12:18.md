@@ -1,0 +1,17 @@
+---
+Links:
+[[Numbers 16:15]]
+[[1 Samuel 12:3]]
+[[Nehemiah 5:14]]
+[[Acts 20:33]]
+[[Romans 4:12]]
+[[2 Corinthians 2:12]]
+[[2 Corinthians 7:2]]
+[[2 Corinthians 7:6]]
+[[2 Corinthians 8:6]]
+[[2 Corinthians 8:16]]
+[[Philippians 2:19]]
+[[1 Peter 2:21]]
+---
+
+"I desired Titus, and with him I sent a brother. Did Titus make a gain of you? walked we not in the same spirit? walked we not in the same steps?"

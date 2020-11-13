@@ -1,5 +1,0 @@
-[[Genesis 31:26]]
-[[Judges 8:1]]
-[[Judges 12:1]]
-[[2 Samuel 19:3]]
-[[John 7:5]]

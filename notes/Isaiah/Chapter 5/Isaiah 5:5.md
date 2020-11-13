@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 11:4]]
+[[Genesis 11:7]]
+[[Leviticus 26:31]]
+[[Deuteronomy 28:49]]
+[[2 Chronicles 36:4]]
+[[Nehemiah 2:3]]
+[[Psalms 74:1]]
+[[Psalms 80:12]]
+[[Psalms 80:13]]
+[[Psalms 89:41]]
+[[Proverbs 24:31]]
+[[Ecclesiastes 3:3]]
+[[Isaiah 10:6]]
+[[Isaiah 25:10]]
+[[Isaiah 27:10]]
+[[Isaiah 28:3]]
+[[Isaiah 28:18]]
+[[Jeremiah 45:4]]
+[[Lamentations 1:2]]
+[[Lamentations 1:15]]
+[[Lamentations 2:6]]
+[[Lamentations 4:12]]
+[[Daniel 8:13]]
+[[Hosea 2:14]]
+[[Luke 21:24]]
+[[Revelation 11:2]]
+---
+
+"And now go to; I will tell you what I will do to my vineyard: I will take away the hedge thereof, and it shall be eaten up; and break down the wall thereof, and it shall be trodden down:"

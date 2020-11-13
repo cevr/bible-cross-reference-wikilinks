@@ -1,6 +1,0 @@
-[[Numbers 16:1]]
-[[Numbers 16:31]]
-[[Numbers 16:32]]
-[[Numbers 26:9]]
-[[Numbers 27:3]]
-[[Psalms 106:17]]

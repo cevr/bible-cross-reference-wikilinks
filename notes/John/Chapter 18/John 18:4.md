@@ -1,0 +1,31 @@
+---
+Links:
+[[1 Kings 18:10]]
+[[1 Kings 18:14]]
+[[Nehemiah 6:11]]
+[[Psalms 3:6]]
+[[Psalms 27:3]]
+[[Proverbs 28:1]]
+[[Matthew 16:21]]
+[[Matthew 17:22]]
+[[Matthew 20:18]]
+[[Matthew 26:2]]
+[[Matthew 26:21]]
+[[Matthew 26:31]]
+[[Mark 10:33]]
+[[Luke 18:31]]
+[[Luke 24:6]]
+[[Luke 24:44]]
+[[John 6:64]]
+[[John 10:17]]
+[[John 13:1]]
+[[John 13:11]]
+[[John 18:7]]
+[[John 19:28]]
+[[Acts 2:28]]
+[[Acts 4:24]]
+[[Acts 20:22]]
+[[1 Peter 4:1]]
+---
+
+"Jesus therefore, knowing all things that should come upon him, went forth, and said unto them, Whom seek ye?"

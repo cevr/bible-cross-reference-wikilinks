@@ -1,0 +1,30 @@
+---
+Links:
+[[Exodus 20:3]]
+[[Exodus 32:34]]
+[[Deuteronomy 28:68]]
+[[1 Samuel 15:22]]
+[[Proverbs 21:27]]
+[[Isaiah 1:11]]
+[[Jeremiah 7:21]]
+[[Jeremiah 14:10]]
+[[Hosea 4:9]]
+[[Hosea 5:6]]
+[[Hosea 6:6]]
+[[Hosea 7:2]]
+[[Hosea 7:16]]
+[[Hosea 9:3]]
+[[Hosea 9:4]]
+[[Hosea 9:6]]
+[[Hosea 9:9]]
+[[Hosea 11:5]]
+[[Hosea 12:11]]
+[[Amos 3:2]]
+[[Amos 5:22]]
+[[Amos 8:7]]
+[[1 Corinthians 11:20]]
+[[1 Corinthians 11:29]]
+[[Revelation 16:19]]
+---
+
+"They sacrifice flesh for the sacrifices of mine offerings, and eat it; but the LORD accepteth them not; now will he remember their iniquity, and visit their sins: they shall return to Egypt."

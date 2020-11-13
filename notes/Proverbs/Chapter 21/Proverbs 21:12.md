@@ -1,0 +1,24 @@
+---
+Links:
+[[Genesis 19:29]]
+[[Job 5:3]]
+[[Job 8:15]]
+[[Job 18:14]]
+[[Job 21:28]]
+[[Job 27:13]]
+[[Psalms 37:35]]
+[[Psalms 52:5]]
+[[Psalms 107:43]]
+[[Proverbs 11:3]]
+[[Proverbs 13:6]]
+[[Proverbs 14:11]]
+[[Proverbs 14:32]]
+[[Hosea 14:9]]
+[[Amos 4:11]]
+[[Habakkuk 2:9]]
+[[1 Corinthians 10:5]]
+[[2 Peter 2:4]]
+[[2 Peter 3:6]]
+---
+
+"The righteous man wisely considereth the house of the wicked: but God overthroweth the wicked for their wickedness."

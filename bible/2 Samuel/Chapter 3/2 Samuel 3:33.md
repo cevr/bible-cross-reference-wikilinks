@@ -1,8 +1,0 @@
-[[2 Samuel 1:17]]
-[[2 Samuel 13:12]]
-[[2 Samuel 13:28]]
-[[2 Chronicles 35:25]]
-[[Proverbs 18:7]]
-[[Ecclesiastes 2:15]]
-[[Jeremiah 17:11]]
-[[Luke 12:19]]

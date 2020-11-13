@@ -1,0 +1,12 @@
+---
+Links:
+[[1 Kings 22:11]]
+[[1 Kings 22:24]]
+[[Jeremiah 27:2]]
+[[Jeremiah 28:2]]
+[[Jeremiah 28:4]]
+[[Jeremiah 36:23]]
+[[Malachi 3:13]]
+---
+
+"Then Hananiah the prophet took the yoke from off the prophet Jeremiah's neck, and brake it."

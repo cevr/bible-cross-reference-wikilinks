@@ -1,0 +1,18 @@
+---
+Links:
+[[Job 13:24]]
+[[Job 23:9]]
+[[Job 34:29]]
+[[Psalms 13:1]]
+[[Psalms 22:1]]
+[[Psalms 27:9]]
+[[Psalms 30:7]]
+[[Psalms 44:24]]
+[[Psalms 44:25]]
+[[Psalms 46:1]]
+[[Psalms 88:14]]
+[[Jeremiah 14:8]]
+[[Jeremiah 14:9]]
+---
+
+"Why standest thou afar off, O LORD? why hidest thou thyself in times of trouble?"

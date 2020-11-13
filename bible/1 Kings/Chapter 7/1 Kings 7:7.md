@@ -1,8 +1,0 @@
-[[1 Kings 3:9]]
-[[1 Kings 3:28]]
-[[1 Kings 6:3]]
-[[1 Kings 6:15]]
-[[1 Kings 10:18]]
-[[Psalms 122:5]]
-[[Proverbs 20:8]]
-[[Isaiah 9:7]]

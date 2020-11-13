@@ -1,0 +1,28 @@
+---
+Links:
+[[Numbers 32:23]]
+[[Deuteronomy 28:15]]
+[[Judges 9:57]]
+[[2 Samuel 3:39]]
+[[1 Kings 21:21]]
+[[Job 10:15]]
+[[Psalms 1:3]]
+[[Psalms 11:5]]
+[[Psalms 28:4]]
+[[Psalms 62:12]]
+[[Psalms 120:3]]
+[[Proverbs 1:31]]
+[[Proverbs 11:31]]
+[[Proverbs 26:27]]
+[[Ecclesiastes 8:13]]
+[[Isaiah 13:11]]
+[[Isaiah 48:22]]
+[[Isaiah 57:20]]
+[[Isaiah 65:13]]
+[[Isaiah 65:20]]
+[[Ezekiel 16:59]]
+[[2 Corinthians 5:10]]
+[[James 2:13]]
+---
+
+"Woe unto the wicked! it shall be ill with him: for the reward of his hands shall be given him."

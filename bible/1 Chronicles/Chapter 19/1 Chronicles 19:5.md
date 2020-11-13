@@ -1,5 +1,0 @@
-[[Joshua 6:24]]
-[[Judges 16:22]]
-[[2 Samuel 10:5]]
-[[1 Kings 16:34]]
-[[Matthew 18:31]]

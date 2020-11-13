@@ -1,0 +1,19 @@
+---
+Links:
+[[Job 30:29]]
+[[Proverbs 10:4]]
+[[Proverbs 19:15]]
+[[Proverbs 23:20]]
+[[Proverbs 23:21]]
+[[Proverbs 24:30]]
+[[Proverbs 24:33]]
+[[Proverbs 24:34]]
+[[Proverbs 28:24]]
+[[Matthew 25:26]]
+[[Luke 15:13]]
+[[Luke 16:1]]
+[[Romans 12:11]]
+[[Hebrews 6:12]]
+---
+
+"He also that is slothful in his work is brother to him that is a great waster."

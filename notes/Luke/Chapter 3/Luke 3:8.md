@@ -1,0 +1,26 @@
+---
+Links:
+[[Joshua 4:3]]
+[[Nehemiah 5:11]]
+[[Isaiah 1:16]]
+[[Isaiah 48:1]]
+[[Jeremiah 7:4]]
+[[Ezekiel 18:27]]
+[[Matthew 8:11]]
+[[Matthew 21:43]]
+[[Luke 13:28]]
+[[Luke 16:23]]
+[[Luke 19:40]]
+[[John 8:33]]
+[[John 8:39]]
+[[Acts 26:20]]
+[[Romans 4:16]]
+[[Romans 9:7]]
+[[2 Corinthians 7:10]]
+[[Galatians 3:28]]
+[[Galatians 5:22]]
+[[Philippians 1:11]]
+[[Hebrews 6:7]]
+---
+
+"Bring forth therefore fruits worthy of repentance, and begin not to say within yourselves, We have Abraham to our father: for I say unto you, That God is able of these stones to raise up children unto Abraham."

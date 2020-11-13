@@ -1,0 +1,24 @@
+---
+Links:
+[[Leviticus 10:3]]
+[[Numbers 18:5]]
+[[2 Chronicles 29:11]]
+[[Ezekiel 44:23]]
+[[Matthew 25:17]]
+[[Acts 1:17]]
+[[Acts 14:23]]
+[[Acts 20:28]]
+[[1 Corinthians 4:1]]
+[[Ephesians 4:11]]
+[[1 Timothy 4:6]]
+[[1 Timothy 4:14]]
+[[1 Timothy 4:16]]
+[[1 Timothy 6:11]]
+[[1 Timothy 6:20]]
+[[2 Timothy 1:6]]
+[[2 Timothy 2:2]]
+[[2 Timothy 4:1]]
+[[Philemon 1:2]]
+---
+
+"And say to Archippus, Take heed to the ministry which thou hast received in the Lord, that thou fulfil it."

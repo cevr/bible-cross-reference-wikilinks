@@ -1,5 +1,0 @@
-[[Joshua 10:10]]
-[[1 Kings 9:17]]
-[[1 Kings 16:24]]
-[[1 Kings 16:29]]
-[[2 Chronicles 8:5]]

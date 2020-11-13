@@ -1,0 +1,21 @@
+---
+Links:
+[[Deuteronomy 1:31]]
+[[Deuteronomy 32:39]]
+[[Joshua 24:17]]
+[[Nehemiah 9:12]]
+[[Job 15:19]]
+[[Psalms 27:11]]
+[[Psalms 78:14]]
+[[Psalms 78:52]]
+[[Psalms 80:1]]
+[[Psalms 136:16]]
+[[Isaiah 43:11]]
+[[Isaiah 43:12]]
+[[Isaiah 44:7]]
+[[Isaiah 46:4]]
+[[Isaiah 63:9]]
+[[Hosea 11:4]]
+---
+
+"So the LORD alone did lead him, and there was no strange god with him."

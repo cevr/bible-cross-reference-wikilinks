@@ -1,5 +1,0 @@
-[[Ezekiel 1:6]]
-[[Ezekiel 1:8]]
-[[Ezekiel 10:14]]
-[[Ezekiel 41:18]]
-[[Revelation 4:7]]

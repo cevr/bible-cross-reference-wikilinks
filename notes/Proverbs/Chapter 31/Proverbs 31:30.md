@@ -1,0 +1,24 @@
+---
+Links:
+[[Exodus 1:17]]
+[[2 Samuel 14:25]]
+[[Esther 1:11]]
+[[Psalms 147:11]]
+[[Proverbs 1:7]]
+[[Proverbs 6:25]]
+[[Proverbs 8:13]]
+[[Proverbs 11:22]]
+[[Ecclesiastes 7:18]]
+[[Ecclesiastes 12:13]]
+[[Ezekiel 16:15]]
+[[Luke 1:6]]
+[[Luke 1:46]]
+[[Romans 2:29]]
+[[1 Corinthians 4:5]]
+[[James 1:11]]
+[[1 Peter 1:7]]
+[[1 Peter 1:24]]
+[[1 Peter 3:4]]
+---
+
+"Favour is deceitful, and beauty is vain: but a woman that feareth the LORD, she shall be praised."

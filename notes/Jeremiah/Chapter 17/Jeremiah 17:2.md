@@ -1,0 +1,17 @@
+---
+Links:
+[[Deuteronomy 12:2]]
+[[Judges 3:7]]
+[[2 Chronicles 24:18]]
+[[2 Chronicles 33:3]]
+[[2 Chronicles 33:19]]
+[[Psalms 78:58]]
+[[Isaiah 1:29]]
+[[Isaiah 17:8]]
+[[Jeremiah 2:20]]
+[[Jeremiah 7:18]]
+[[Ezekiel 20:28]]
+[[Hosea 4:13]]
+---
+
+"Whilst their children remember their altars and their groves by the green trees upon the high hills."

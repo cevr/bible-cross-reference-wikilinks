@@ -1,5 +1,0 @@
-[[Nehemiah 11:1]]
-[[Nehemiah 11:2]]
-[[Isaiah 58:12]]
-[[Haggai 1:4]]
-[[Matthew 6:33]]

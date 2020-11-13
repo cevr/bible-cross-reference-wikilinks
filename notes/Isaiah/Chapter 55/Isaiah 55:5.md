@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 49:10]]
+[[2 Samuel 22:44]]
+[[Psalms 18:43]]
+[[Psalms 110:1]]
+[[Isaiah 11:10]]
+[[Isaiah 45:23]]
+[[Isaiah 49:6]]
+[[Isaiah 52:15]]
+[[Isaiah 55:4]]
+[[Isaiah 56:8]]
+[[Isaiah 60:5]]
+[[Isaiah 60:9]]
+[[Hosea 1:10]]
+[[Zechariah 2:11]]
+[[Zechariah 8:20]]
+[[Zechariah 8:23]]
+[[Luke 24:26]]
+[[John 13:31]]
+[[John 17:1]]
+[[Acts 3:13]]
+[[Acts 5:31]]
+[[Romans 15:20]]
+[[Ephesians 2:11]]
+[[Ephesians 3:5]]
+[[Hebrews 5:5]]
+[[1 Peter 1:11]]
+---
+
+"Behold, thou shalt call a nation that thou knowest not, and nations that knew not thee shall run unto thee because of the LORD thy God, and for the Holy One of Israel; for he hath glorified thee."

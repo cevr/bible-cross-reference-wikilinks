@@ -1,0 +1,20 @@
+---
+Links:
+[[Ezra 8:31]]
+[[Proverbs 1:11]]
+[[Jeremiah 5:26]]
+[[Acts 9:23]]
+[[Acts 16:9]]
+[[Acts 18:18]]
+[[Acts 19:21]]
+[[Acts 20:19]]
+[[Acts 21:3]]
+[[Acts 23:12]]
+[[Acts 25:3]]
+[[2 Corinthians 1:15]]
+[[2 Corinthians 7:5]]
+[[2 Corinthians 11:26]]
+[[Galatians 1:21]]
+---
+
+"And there abode three months. And when the Jews laid wait for him, as he was about to sail into Syria, he purposed to return through Macedonia."

@@ -1,5 +1,0 @@
-[[Exodus 19:12]]
-[[Exodus 21:14]]
-[[Numbers 3:10]]
-[[Numbers 3:38]]
-[[2 Kings 11:8]]

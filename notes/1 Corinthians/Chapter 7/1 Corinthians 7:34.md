@@ -1,0 +1,17 @@
+---
+Links:
+[[Luke 2:36]]
+[[Luke 10:40]]
+[[Romans 6:13]]
+[[Romans 12:1]]
+[[1 Corinthians 6:20]]
+[[2 Corinthians 7:11]]
+[[2 Corinthians 8:16]]
+[[2 Corinthians 11:28]]
+[[Philippians 1:20]]
+[[1 Thessalonians 5:23]]
+[[1 Timothy 3:5]]
+[[Titus 3:8]]
+---
+
+"There is difference also between a wife and a virgin. The unmarried woman careth for the things of the Lord, that she may be holy both in body and in spirit: but she that is married careth for the things of the world, how she may please her husband."

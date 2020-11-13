@@ -1,0 +1,26 @@
+---
+Links:
+[[Numbers 22:39]]
+[[Numbers 22:41]]
+[[Numbers 23:14]]
+[[Numbers 23:28]]
+[[Numbers 24:17]]
+[[1 Kings 11:7]]
+[[1 Kings 18:29]]
+[[2 Kings 3:27]]
+[[2 Kings 19:12]]
+[[2 Kings 19:16]]
+[[Psalms 115:3]]
+[[Proverbs 1:28]]
+[[Isaiah 15:2]]
+[[Isaiah 26:16]]
+[[Isaiah 37:38]]
+[[Isaiah 47:13]]
+[[Jeremiah 10:5]]
+[[Jeremiah 48:7]]
+[[Jeremiah 48:13]]
+[[Jeremiah 48:35]]
+[[Jeremiah 48:46]]
+---
+
+"And it shall come to pass, when it is seen that Moab is weary on the high place, that he shall come to his sanctuary to pray; but he shall not prevail."

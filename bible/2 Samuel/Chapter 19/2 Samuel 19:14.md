@@ -1,7 +1,0 @@
-[[Judges 20:1]]
-[[2 Samuel 3:9]]
-[[2 Samuel 5:1]]
-[[2 Samuel 17:25]]
-[[2 Samuel 20:4]]
-[[Psalms 110:2]]
-[[Acts 4:32]]

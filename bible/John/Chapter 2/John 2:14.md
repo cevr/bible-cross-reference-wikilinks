@@ -1,6 +1,0 @@
-[[Deuteronomy 14:23]]
-[[Malachi 3:1]]
-[[Matthew 21:12]]
-[[Mark 11:15]]
-[[Mark 11:17]]
-[[Luke 19:45]]

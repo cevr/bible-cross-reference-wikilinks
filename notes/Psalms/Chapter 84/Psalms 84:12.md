@@ -1,0 +1,15 @@
+---
+Links:
+[[Psalms 2:12]]
+[[Psalms 3:4]]
+[[Psalms 34:8]]
+[[Psalms 62:8]]
+[[Psalms 125:4]]
+[[Psalms 146:5]]
+[[Isaiah 30:18]]
+[[Isaiah 50:10]]
+[[Isaiah 60:19]]
+[[Jeremiah 17:7]]
+---
+
+"O LORD of hosts, blessed is the man that trusteth in thee."

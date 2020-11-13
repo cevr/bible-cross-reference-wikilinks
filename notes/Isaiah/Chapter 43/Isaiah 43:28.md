@@ -1,0 +1,28 @@
+---
+Links:
+[[Deuteronomy 28:15]]
+[[Deuteronomy 29:21]]
+[[2 Samuel 1:21]]
+[[1 Chronicles 24:5]]
+[[2 Chronicles 36:17]]
+[[Psalms 79:4]]
+[[Psalms 82:6]]
+[[Psalms 89:39]]
+[[Isaiah 42:24]]
+[[Isaiah 47:6]]
+[[Isaiah 65:15]]
+[[Jeremiah 24:9]]
+[[Jeremiah 52:27]]
+[[Lamentations 2:2]]
+[[Lamentations 2:6]]
+[[Lamentations 4:20]]
+[[Ezekiel 5:15]]
+[[Daniel 9:11]]
+[[Daniel 9:12]]
+[[Daniel 9:14]]
+[[Zechariah 8:13]]
+[[Luke 21:21]]
+[[1 Thessalonians 2:16]]
+---
+
+"Therefore I have profaned the princes of the sanctuary, and have given Jacob to the curse, and Israel to reproaches."

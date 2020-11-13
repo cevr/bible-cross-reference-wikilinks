@@ -1,0 +1,17 @@
+---
+Links:
+[[Psalms 98:1]]
+[[Isaiah 40:9]]
+[[Isaiah 40:10]]
+[[Isaiah 49:4]]
+[[Isaiah 49:6]]
+[[Isaiah 59:20]]
+[[Zechariah 9:9]]
+[[Matthew 21:5]]
+[[Mark 16:15]]
+[[John 12:15]]
+[[Romans 10:11]]
+[[Revelation 22:12]]
+---
+
+"Behold, the LORD hath proclaimed unto the end of the world, Say ye to the daughter of Zion, Behold, thy salvation cometh; behold, his reward is with him, and his work before him."

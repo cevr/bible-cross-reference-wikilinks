@@ -1,0 +1,31 @@
+---
+Links:
+[[2 Samuel 15:20]]
+[[2 Samuel 15:25]]
+[[1 Chronicles 16:1]]
+[[1 Chronicles 16:39]]
+[[1 Chronicles 21:29]]
+[[Psalms 2:6]]
+[[Psalms 3:4]]
+[[Psalms 25:4]]
+[[Psalms 36:9]]
+[[Psalms 40:11]]
+[[Psalms 42:4]]
+[[Psalms 46:4]]
+[[Psalms 57:3]]
+[[Psalms 57:4]]
+[[Psalms 68:15]]
+[[Psalms 78:68]]
+[[Psalms 84:1]]
+[[Psalms 97:11]]
+[[Psalms 119:105]]
+[[Psalms 132:13]]
+[[Psalms 143:10]]
+[[Proverbs 3:5]]
+[[Micah 7:8]]
+[[Micah 7:20]]
+[[John 1:4]]
+[[John 1:17]]
+---
+
+"O send out thy light and thy truth: let them lead me; let them bring me unto thy holy hill, and to thy tabernacles."

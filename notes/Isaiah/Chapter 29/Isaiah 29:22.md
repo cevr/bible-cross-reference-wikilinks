@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 48:16]]
+[[Joshua 24:2]]
+[[Nehemiah 9:7]]
+[[Isaiah 41:8]]
+[[Isaiah 41:14]]
+[[Isaiah 44:21]]
+[[Isaiah 45:17]]
+[[Isaiah 45:25]]
+[[Isaiah 46:3]]
+[[Isaiah 49:7]]
+[[Isaiah 51:2]]
+[[Isaiah 51:11]]
+[[Isaiah 54:4]]
+[[Isaiah 60:1]]
+[[Isaiah 61:7]]
+[[Isaiah 63:16]]
+[[Jeremiah 30:5]]
+[[Jeremiah 30:10]]
+[[Jeremiah 31:10]]
+[[Jeremiah 33:24]]
+[[Ezekiel 37:24]]
+[[Ezekiel 37:28]]
+[[Ezekiel 39:25]]
+[[Joel 2:27]]
+[[Luke 1:68]]
+[[Romans 11:11]]
+[[1 Peter 1:18]]
+[[Revelation 5:9]]
+---
+
+"Therefore thus saith the LORD, who redeemed Abraham, concerning the house of Jacob, Jacob shall not now be ashamed, neither shall his face now wax pale."

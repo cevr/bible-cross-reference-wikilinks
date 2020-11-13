@@ -1,0 +1,21 @@
+---
+Links:
+[[Genesis 24:15]]
+[[2 Kings 19:20]]
+[[Psalms 32:5]]
+[[Psalms 50:15]]
+[[Psalms 91:15]]
+[[Isaiah 30:19]]
+[[Isaiah 55:6]]
+[[Isaiah 58:9]]
+[[Daniel 9:20]]
+[[Daniel 10:12]]
+[[Mark 11:24]]
+[[Luke 15:18]]
+[[Acts 4:31]]
+[[Acts 10:30]]
+[[Acts 12:5]]
+[[1 John 5:14]]
+---
+
+"And it shall come to pass, that before they call, I will answer; and while they are yet speaking, I will hear."

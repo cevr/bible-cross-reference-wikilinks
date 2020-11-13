@@ -1,0 +1,28 @@
+---
+Links:
+[[Exodus 13:3]]
+[[Exodus 13:14]]
+[[Exodus 20:2]]
+[[Exodus 24:3]]
+[[Exodus 24:7]]
+[[Deuteronomy 5:2]]
+[[Deuteronomy 5:6]]
+[[Deuteronomy 5:27]]
+[[Deuteronomy 6:12]]
+[[Deuteronomy 7:8]]
+[[Deuteronomy 8:14]]
+[[Deuteronomy 13:10]]
+[[Deuteronomy 15:15]]
+[[Deuteronomy 16:12]]
+[[Deuteronomy 24:18]]
+[[Deuteronomy 29:1]]
+[[Joshua 24:17]]
+[[Judges 6:8]]
+[[Jeremiah 7:22]]
+[[Jeremiah 11:4]]
+[[Jeremiah 11:7]]
+[[Jeremiah 31:32]]
+[[Hebrews 8:10]]
+---
+
+"Thus saith the LORD, the God of Israel; I made a covenant with your fathers in the day that I brought them forth out of the land of Egypt, out of the house of bondmen, saying,"

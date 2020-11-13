@@ -1,5 +1,0 @@
-[[Exodus 28:1]]
-[[Exodus 31:10]]
-[[Exodus 39:1]]
-[[Exodus 39:41]]
-[[Numbers 4:5]]

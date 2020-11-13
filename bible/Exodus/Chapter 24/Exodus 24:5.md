@@ -1,6 +1,0 @@
-[[Exodus 18:12]]
-[[Exodus 19:22]]
-[[Leviticus 1:1]]
-[[Leviticus 3:1]]
-[[Leviticus 7:11]]
-[[Psalms 50:5]]

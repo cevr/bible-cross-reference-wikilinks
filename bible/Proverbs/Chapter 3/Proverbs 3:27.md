@@ -1,8 +1,0 @@
-[[Genesis 31:29]]
-[[Deuteronomy 15:13]]
-[[Micah 2:1]]
-[[Romans 13:7]]
-[[Galatians 6:10]]
-[[Titus 2:14]]
-[[James 2:15]]
-[[James 5:4]]

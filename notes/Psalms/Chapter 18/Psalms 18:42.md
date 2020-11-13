@@ -1,0 +1,15 @@
+---
+Links:
+[[2 Kings 13:7]]
+[[Job 27:9]]
+[[Psalms 50:22]]
+[[Proverbs 1:28]]
+[[Isaiah 10:6]]
+[[Isaiah 25:10]]
+[[Isaiah 41:2]]
+[[Isaiah 41:15]]
+[[Zechariah 10:5]]
+[[Malachi 4:3]]
+---
+
+"Then did I beat them small as the dust before the wind: I did cast them out as the dirt in the streets."

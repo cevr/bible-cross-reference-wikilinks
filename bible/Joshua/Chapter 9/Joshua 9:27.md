@@ -1,7 +1,0 @@
-[[Numbers 31:28]]
-[[Numbers 31:30]]
-[[Numbers 31:47]]
-[[Deuteronomy 12:5]]
-[[Deuteronomy 12:11]]
-[[Deuteronomy 12:14]]
-[[2 Chronicles 2:16]]

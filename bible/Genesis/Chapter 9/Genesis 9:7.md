@@ -1,5 +1,0 @@
-[[Genesis 1:28]]
-[[Genesis 8:17]]
-[[Genesis 9:1]]
-[[Genesis 9:19]]
-[[Jeremiah 29:6]]

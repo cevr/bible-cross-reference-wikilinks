@@ -1,7 +1,0 @@
-[[Genesis 4:1]]
-[[Genesis 4:8]]
-[[Genesis 4:10]]
-[[Genesis 5:3]]
-[[Genesis 5:6]]
-[[1 Chronicles 1:1]]
-[[Luke 3:38]]

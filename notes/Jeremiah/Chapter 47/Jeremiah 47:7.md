@@ -1,0 +1,18 @@
+---
+Links:
+[[1 Samuel 15:3]]
+[[Isaiah 10:6]]
+[[Isaiah 13:3]]
+[[Isaiah 37:26]]
+[[Isaiah 45:1]]
+[[Isaiah 46:10]]
+[[Ezekiel 14:17]]
+[[Ezekiel 21:9]]
+[[Ezekiel 21:14]]
+[[Ezekiel 25:16]]
+[[Amos 3:6]]
+[[Micah 6:9]]
+[[Zephaniah 2:6]]
+---
+
+"How can it be quiet, seeing the LORD hath given it a charge against Ashkelon, and against the sea shore? there hath he appointed it."

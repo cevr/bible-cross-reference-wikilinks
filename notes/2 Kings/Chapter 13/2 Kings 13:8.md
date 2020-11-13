@@ -1,0 +1,11 @@
+---
+Links:
+[[1 Kings 11:4]]
+[[1 Kings 14:19]]
+[[1 Kings 14:29]]
+[[1 Kings 14:31]]
+[[2 Kings 1:18]]
+[[2 Kings 10:34]]
+---
+
+"Now the rest of the acts of Jehoahaz, and all that he did, and his might, are they not written in the book of the chronicles of the kings of Israel?"

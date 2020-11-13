@@ -1,5 +1,0 @@
-[[1 Samuel 2:34]]
-[[1 Samuel 3:11]]
-[[1 Samuel 3:12]]
-[[1 Samuel 4:10]]
-[[Psalms 78:64]]

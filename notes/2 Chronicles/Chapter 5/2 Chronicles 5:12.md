@@ -1,0 +1,30 @@
+---
+Links:
+[[Numbers 10:1]]
+[[Joshua 6:6]]
+[[1 Chronicles 6:33]]
+[[1 Chronicles 6:39]]
+[[1 Chronicles 13:8]]
+[[1 Chronicles 15:16]]
+[[1 Chronicles 15:24]]
+[[1 Chronicles 15:27]]
+[[1 Chronicles 16:4]]
+[[1 Chronicles 16:41]]
+[[1 Chronicles 23:5]]
+[[1 Chronicles 23:30]]
+[[1 Chronicles 25:1]]
+[[2 Chronicles 7:6]]
+[[2 Chronicles 29:25]]
+[[Ezra 3:10]]
+[[Psalms 50:1]]
+[[Psalms 62:1]]
+[[Psalms 68:25]]
+[[Psalms 88:1]]
+[[Psalms 92:3]]
+[[Psalms 149:3]]
+[[Psalms 150:3]]
+[[Revelation 15:6]]
+[[Revelation 19:8]]
+---
+
+"Also the Levites which were the singers, all of them of Asaph, of Heman, of Jeduthun, with their sons and their brethren, being arrayed in white linen, having cymbals and psalteries and harps, stood at the east end of the altar, and with them an hundred and twenty priests sounding with trumpets:)"

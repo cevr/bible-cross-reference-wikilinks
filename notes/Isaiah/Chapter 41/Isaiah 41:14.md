@@ -1,0 +1,33 @@
+---
+Links:
+[[Deuteronomy 7:7]]
+[[Joshua 17:18]]
+[[Job 19:25]]
+[[Job 25:6]]
+[[Psalms 19:14]]
+[[Psalms 22:6]]
+[[Isaiah 37:4]]
+[[Isaiah 43:3]]
+[[Isaiah 43:14]]
+[[Isaiah 44:6]]
+[[Isaiah 44:24]]
+[[Isaiah 47:4]]
+[[Isaiah 48:17]]
+[[Isaiah 49:7]]
+[[Isaiah 49:26]]
+[[Isaiah 54:5]]
+[[Isaiah 54:8]]
+[[Isaiah 59:20]]
+[[Isaiah 60:16]]
+[[Isaiah 63:16]]
+[[Jeremiah 50:34]]
+[[Lamentations 3:57]]
+[[Matthew 7:14]]
+[[Luke 12:32]]
+[[Romans 9:27]]
+[[Galatians 3:13]]
+[[Titus 2:14]]
+[[Revelation 5:9]]
+---
+
+"Fear not, thou worm Jacob, and ye men of Israel; I will help thee, saith the LORD, and thy redeemer, the Holy One of Israel."

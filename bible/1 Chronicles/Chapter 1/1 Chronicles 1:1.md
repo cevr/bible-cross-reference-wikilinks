@@ -1,5 +1,0 @@
-[[Genesis 4:25]]
-[[Genesis 5:1]]
-[[Genesis 5:5]]
-[[Genesis 10:1]]
-[[Luke 3:38]]

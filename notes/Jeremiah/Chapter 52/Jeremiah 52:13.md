@@ -1,0 +1,32 @@
+---
+Links:
+[[2 Kings 25:9]]
+[[2 Chronicles 36:19]]
+[[Psalms 74:6]]
+[[Psalms 74:7]]
+[[Psalms 79:1]]
+[[Isaiah 64:10]]
+[[Jeremiah 6:5]]
+[[Jeremiah 7:14]]
+[[Jeremiah 22:14]]
+[[Jeremiah 32:29]]
+[[Jeremiah 34:22]]
+[[Jeremiah 37:8]]
+[[Jeremiah 38:23]]
+[[Jeremiah 39:8]]
+[[Lamentations 2:7]]
+[[Lamentations 2:8]]
+[[Ezekiel 7:20]]
+[[Ezekiel 16:41]]
+[[Ezekiel 24:1]]
+[[Ezekiel 24:21]]
+[[Amos 2:5]]
+[[Amos 3:10]]
+[[Amos 6:11]]
+[[Micah 3:12]]
+[[Zechariah 11:1]]
+[[Matthew 24:2]]
+[[Acts 6:13]]
+---
+
+"And burned the house of the LORD, and the king's house; and all the houses of Jerusalem, and all the houses of the great men, burned he with fire:"

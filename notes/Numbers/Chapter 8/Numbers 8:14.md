@@ -1,0 +1,17 @@
+---
+Links:
+[[Numbers 3:9]]
+[[Numbers 3:12]]
+[[Numbers 3:45]]
+[[Numbers 6:2]]
+[[Numbers 8:17]]
+[[Numbers 16:9]]
+[[Numbers 18:6]]
+[[Deuteronomy 10:8]]
+[[Malachi 3:17]]
+[[Romans 1:1]]
+[[Galatians 1:15]]
+[[Hebrews 7:26]]
+---
+
+"Thus shalt thou separate the Levites from among the children of Israel: and the Levites shall be mine."

@@ -1,0 +1,16 @@
+---
+Links:
+[[Leviticus 19:16]]
+[[Joshua 2:14]]
+[[Joshua 2:20]]
+[[Nehemiah 6:17]]
+[[Proverbs 10:19]]
+[[Proverbs 14:5]]
+[[Proverbs 20:19]]
+[[Proverbs 25:9]]
+[[Proverbs 26:20]]
+[[Jeremiah 38:27]]
+[[1 Timothy 5:13]]
+---
+
+"A talebearer revealeth secrets: but he that is of a faithful spirit concealeth the matter."

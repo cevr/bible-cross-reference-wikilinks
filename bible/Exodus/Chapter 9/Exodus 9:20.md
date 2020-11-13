@@ -1,8 +1,0 @@
-[[Exodus 7:23]]
-[[Proverbs 13:13]]
-[[Proverbs 16:16]]
-[[Proverbs 22:3]]
-[[Proverbs 22:23]]
-[[Jonah 3:5]]
-[[Mark 13:14]]
-[[Hebrews 11:7]]

@@ -1,5 +1,0 @@
-[[Genesis 30:34]]
-[[Proverbs 12:10]]
-[[Proverbs 12:16]]
-[[Ecclesiastes 9:3]]
-[[Matthew 15:19]]

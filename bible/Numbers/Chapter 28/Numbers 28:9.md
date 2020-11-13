@@ -1,7 +1,0 @@
-[[Exodus 20:8]]
-[[2 Kings 4:23]]
-[[2 Chronicles 2:3]]
-[[Psalms 92:1]]
-[[Isaiah 58:13]]
-[[Ezekiel 20:12]]
-[[Revelation 1:10]]

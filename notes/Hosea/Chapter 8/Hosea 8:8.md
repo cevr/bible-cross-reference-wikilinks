@@ -1,0 +1,22 @@
+---
+Links:
+[[Leviticus 26:33]]
+[[Deuteronomy 28:25]]
+[[Deuteronomy 28:64]]
+[[2 Kings 17:1]]
+[[2 Kings 18:11]]
+[[Isaiah 30:14]]
+[[Jeremiah 22:28]]
+[[Jeremiah 48:38]]
+[[Jeremiah 50:17]]
+[[Jeremiah 51:34]]
+[[Lamentations 2:2]]
+[[Lamentations 2:5]]
+[[Lamentations 2:16]]
+[[Lamentations 4:2]]
+[[Ezekiel 36:3]]
+[[Romans 9:22]]
+[[2 Timothy 2:20]]
+---
+
+"Israel is swallowed up: now shall they be among the Gentiles as a vessel wherein is no pleasure."

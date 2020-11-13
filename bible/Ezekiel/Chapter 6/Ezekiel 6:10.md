@@ -1,8 +1,0 @@
-[[Jeremiah 5:12]]
-[[Jeremiah 44:28]]
-[[Ezekiel 5:13]]
-[[Ezekiel 6:7]]
-[[Ezekiel 14:22]]
-[[Ezekiel 22:14]]
-[[Daniel 9:12]]
-[[Zechariah 1:6]]

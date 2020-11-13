@@ -1,0 +1,11 @@
+---
+Links:
+[[Genesis 33:10]]
+[[Genesis 43:3]]
+[[2 Samuel 14:24]]
+[[1 Kings 1:53]]
+[[1 Kings 2:36]]
+[[Matthew 18:10]]
+---
+
+"So Absalom dwelt two full years in Jerusalem, and saw not the king's face."

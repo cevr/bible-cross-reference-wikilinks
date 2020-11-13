@@ -1,5 +1,0 @@
-[[Ezekiel 2:5]]
-[[Ezekiel 12:1]]
-[[Ezekiel 17:12]]
-[[Ezekiel 20:49]]
-[[Ezekiel 24:19]]

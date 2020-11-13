@@ -1,5 +1,0 @@
-[[Numbers 22:7]]
-[[1 Timothy 6:9]]
-[[2 Peter 2:3]]
-[[2 Peter 2:15]]
-[[Jude 1:11]]

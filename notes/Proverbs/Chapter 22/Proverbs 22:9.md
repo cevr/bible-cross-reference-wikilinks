@@ -1,0 +1,33 @@
+---
+Links:
+[[Deuteronomy 15:7]]
+[[Deuteronomy 28:56]]
+[[Job 31:16]]
+[[Psalms 41:1]]
+[[Psalms 112:9]]
+[[Proverbs 11:17]]
+[[Proverbs 11:25]]
+[[Proverbs 11:27]]
+[[Proverbs 14:21]]
+[[Proverbs 19:17]]
+[[Proverbs 21:13]]
+[[Proverbs 28:24]]
+[[Proverbs 28:27]]
+[[Ecclesiastes 11:1]]
+[[Isaiah 32:8]]
+[[Isaiah 58:7]]
+[[Matthew 20:15]]
+[[Matthew 25:34]]
+[[Mark 7:22]]
+[[Luke 6:35]]
+[[Luke 14:13]]
+[[Acts 20:35]]
+[[2 Corinthians 8:1]]
+[[2 Corinthians 9:6]]
+[[1 Timothy 6:18]]
+[[Hebrews 6:10]]
+[[Hebrews 13:16]]
+[[1 Peter 4:9]]
+---
+
+"He that hath a bountiful eye shall be blessed; for he giveth of his bread to the poor."

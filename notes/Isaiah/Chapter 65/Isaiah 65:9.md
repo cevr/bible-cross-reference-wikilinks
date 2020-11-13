@@ -1,0 +1,27 @@
+---
+Links:
+[[Isaiah 10:20]]
+[[Isaiah 11:11]]
+[[Isaiah 27:6]]
+[[Isaiah 32:18]]
+[[Isaiah 45:19]]
+[[Isaiah 60:21]]
+[[Isaiah 65:15]]
+[[Isaiah 65:22]]
+[[Jeremiah 31:36]]
+[[Jeremiah 33:17]]
+[[Ezekiel 36:8]]
+[[Ezekiel 36:12]]
+[[Ezekiel 36:24]]
+[[Ezekiel 37:21]]
+[[Ezekiel 39:25]]
+[[Amos 9:11]]
+[[Obadiah 1:17]]
+[[Zephaniah 3:20]]
+[[Zechariah 10:6]]
+[[Matthew 24:22]]
+[[Romans 11:5]]
+[[Romans 11:28]]
+---
+
+"And I will bring forth a seed out of Jacob, and out of Judah an inheritor of my mountains: and mine elect shall inherit it, and my servants shall dwell there."

@@ -1,8 +1,0 @@
-[[Numbers 14:23]]
-[[Numbers 14:24]]
-[[Numbers 14:28]]
-[[Numbers 26:2]]
-[[Numbers 26:64]]
-[[Deuteronomy 1:35]]
-[[Deuteronomy 2:14]]
-[[Joshua 14:8]]

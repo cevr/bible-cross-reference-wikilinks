@@ -1,5 +1,0 @@
-[[Genesis 27:27]]
-[[Genesis 27:28]]
-[[Genesis 36:6]]
-[[Joshua 24:4]]
-[[Hebrews 11:20]]

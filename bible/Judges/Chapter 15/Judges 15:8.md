@@ -1,5 +1,0 @@
-[[Judges 15:10]]
-[[2 Chronicles 11:6]]
-[[Isaiah 25:10]]
-[[Isaiah 63:3]]
-[[Isaiah 63:6]]

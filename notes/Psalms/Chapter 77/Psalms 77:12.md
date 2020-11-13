@@ -1,0 +1,18 @@
+---
+Links:
+[[Deuteronomy 6:7]]
+[[Deuteronomy 7:18]]
+[[Deuteronomy 7:19]]
+[[Psalms 71:24]]
+[[Psalms 104:34]]
+[[Psalms 105:2]]
+[[Psalms 105:5]]
+[[Psalms 119:52]]
+[[Psalms 143:5]]
+[[Psalms 145:4]]
+[[Psalms 145:11]]
+[[Isaiah 63:11]]
+[[Luke 24:14]]
+---
+
+"I will meditate also of all thy work, and talk of thy doings."

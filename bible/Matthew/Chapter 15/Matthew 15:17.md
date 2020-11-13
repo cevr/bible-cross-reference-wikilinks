@@ -1,6 +1,0 @@
-[[2 Kings 10:27]]
-[[Matthew 7:19]]
-[[Luke 6:45]]
-[[1 Corinthians 6:13]]
-[[Colossians 2:21]]
-[[James 3:6]]

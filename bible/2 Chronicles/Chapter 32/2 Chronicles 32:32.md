@@ -1,6 +1,0 @@
-[[2 Kings 18:1]]
-[[2 Chronicles 25:26]]
-[[2 Chronicles 26:22]]
-[[2 Chronicles 31:20]]
-[[2 Chronicles 35:26]]
-[[Isaiah 36:1]]

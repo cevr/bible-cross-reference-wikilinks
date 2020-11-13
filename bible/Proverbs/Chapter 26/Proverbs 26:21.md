@@ -1,8 +1,0 @@
-[[2 Samuel 20:1]]
-[[1 Kings 12:2]]
-[[1 Kings 12:20]]
-[[Psalms 120:4]]
-[[Proverbs 10:12]]
-[[Proverbs 15:18]]
-[[Proverbs 29:22]]
-[[Proverbs 30:33]]

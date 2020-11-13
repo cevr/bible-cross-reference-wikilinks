@@ -1,5 +1,0 @@
-[[Exodus 12:6]]
-[[Numbers 9:7]]
-[[2 Chronicles 29:34]]
-[[2 Chronicles 35:3]]
-[[Ezekiel 44:11]]

@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 15:16]]
+[[Numbers 14:8]]
+[[Deuteronomy 4:37]]
+[[Deuteronomy 7:7]]
+[[Deuteronomy 8:17]]
+[[Deuteronomy 10:15]]
+[[Joshua 3:10]]
+[[Joshua 24:12]]
+[[1 Samuel 12:22]]
+[[2 Samuel 7:23]]
+[[2 Chronicles 20:7]]
+[[Psalms 4:6]]
+[[Psalms 17:7]]
+[[Psalms 20:6]]
+[[Psalms 42:5]]
+[[Psalms 42:11]]
+[[Psalms 74:11]]
+[[Psalms 77:15]]
+[[Psalms 78:55]]
+[[Psalms 80:9]]
+[[Psalms 80:16]]
+[[Psalms 111:6]]
+[[Isaiah 63:12]]
+[[Zechariah 4:6]]
+[[Malachi 1:2]]
+[[Romans 9:10]]
+[[2 Corinthians 4:7]]
+---
+
+"For they got not the land in possession by their own sword, neither did their own arm save them: but thy right hand, and thine arm, and the light of thy countenance, because thou hadst a favour unto them."

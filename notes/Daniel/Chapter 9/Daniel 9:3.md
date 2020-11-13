@@ -1,0 +1,33 @@
+---
+Links:
+[[2 Samuel 12:16]]
+[[Ezra 8:21]]
+[[Ezra 9:5]]
+[[Ezra 10:6]]
+[[Nehemiah 1:4]]
+[[Nehemiah 9:1]]
+[[Esther 4:1]]
+[[Esther 4:3]]
+[[Esther 4:16]]
+[[Job 42:6]]
+[[Psalms 35:13]]
+[[Psalms 69:10]]
+[[Psalms 102:13]]
+[[Isaiah 22:12]]
+[[Jeremiah 29:10]]
+[[Jeremiah 29:12]]
+[[Jeremiah 33:3]]
+[[Ezekiel 36:37]]
+[[Daniel 6:10]]
+[[Daniel 10:2]]
+[[Joel 1:13]]
+[[Joel 2:12]]
+[[Jonah 3:6]]
+[[Matthew 17:21]]
+[[Luke 2:37]]
+[[Acts 10:30]]
+[[James 4:8]]
+[[James 5:16]]
+---
+
+"And I set my face unto the Lord God, to seek by prayer and supplications, with fasting, and sackcloth, and ashes:"

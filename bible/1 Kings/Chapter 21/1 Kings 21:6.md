@@ -1,6 +1,0 @@
-[[1 Kings 21:2]]
-[[Esther 5:9]]
-[[Esther 6:12]]
-[[Proverbs 14:30]]
-[[1 Timothy 6:9]]
-[[James 4:2]]

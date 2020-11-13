@@ -1,0 +1,20 @@
+---
+Links:
+[[Deuteronomy 24:6]]
+[[Deuteronomy 24:10]]
+[[Deuteronomy 24:17]]
+[[Job 22:6]]
+[[Job 24:3]]
+[[Job 24:9]]
+[[Job 34:28]]
+[[Psalms 10:14]]
+[[Psalms 34:7]]
+[[Proverbs 20:16]]
+[[Proverbs 22:27]]
+[[Ezekiel 18:7]]
+[[Ezekiel 18:16]]
+[[Ezekiel 33:15]]
+[[Amos 2:8]]
+---
+
+"If thou at all take thy neighbour's raiment to pledge, thou shalt deliver it unto him by that the sun goeth down:"

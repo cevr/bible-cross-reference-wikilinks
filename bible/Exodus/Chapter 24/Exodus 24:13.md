@@ -1,8 +1,0 @@
-[[Exodus 3:1]]
-[[Exodus 17:9]]
-[[Exodus 19:3]]
-[[Exodus 32:17]]
-[[Exodus 33:11]]
-[[Numbers 11:28]]
-[[Joshua 1:1]]
-[[1 Chronicles 7:27]]

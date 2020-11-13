@@ -1,6 +1,0 @@
-[[Leviticus 2:13]]
-[[Numbers 18:19]]
-[[2 Chronicles 13:5]]
-[[Matthew 5:13]]
-[[Mark 9:49]]
-[[Colossians 4:6]]

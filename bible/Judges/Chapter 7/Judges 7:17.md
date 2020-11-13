@@ -1,5 +1,0 @@
-[[Judges 9:48]]
-[[Matthew 16:24]]
-[[1 Corinthians 11:1]]
-[[Hebrews 13:7]]
-[[1 Peter 5:3]]

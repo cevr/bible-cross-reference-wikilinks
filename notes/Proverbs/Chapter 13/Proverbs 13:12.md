@@ -1,0 +1,22 @@
+---
+Links:
+[[Genesis 21:6]]
+[[Genesis 46:30]]
+[[1 Samuel 1:26]]
+[[Nehemiah 2:2]]
+[[Psalms 17:15]]
+[[Psalms 40:2]]
+[[Psalms 42:1]]
+[[Psalms 69:3]]
+[[Psalms 119:81]]
+[[Psalms 143:7]]
+[[Proverbs 3:18]]
+[[Proverbs 11:30]]
+[[Proverbs 13:19]]
+[[Songs of Solomon 5:8]]
+[[Luke 2:29]]
+[[John 16:22]]
+[[Revelation 22:2]]
+---
+
+"Hope deferred maketh the heart sick: but when the desire cometh, it is a tree of life."

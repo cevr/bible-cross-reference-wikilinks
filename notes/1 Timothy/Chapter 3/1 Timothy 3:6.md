@@ -1,0 +1,28 @@
+---
+Links:
+[[Deuteronomy 8:14]]
+[[Deuteronomy 17:20]]
+[[2 Kings 14:10]]
+[[2 Chronicles 26:16]]
+[[2 Chronicles 32:25]]
+[[Proverbs 16:18]]
+[[Proverbs 18:12]]
+[[Proverbs 29:23]]
+[[Isaiah 2:12]]
+[[Isaiah 14:12]]
+[[Daniel 11:12]]
+[[Luke 10:18]]
+[[1 Corinthians 3:1]]
+[[1 Corinthians 4:6]]
+[[1 Corinthians 8:1]]
+[[2 Corinthians 12:7]]
+[[1 Timothy 6:4]]
+[[2 Timothy 3:4]]
+[[Hebrews 5:12]]
+[[1 Peter 2:2]]
+[[1 Peter 5:5]]
+[[2 Peter 2:4]]
+[[Jude 1:6]]
+---
+
+"Not a novice, lest being lifted up with pride he fall into the condemnation of the devil."

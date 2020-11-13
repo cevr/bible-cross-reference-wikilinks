@@ -1,0 +1,20 @@
+---
+Links:
+[[1 Samuel 2:6]]
+[[1 Samuel 2:36]]
+[[1 Kings 14:26]]
+[[Job 1:21]]
+[[Job 5:5]]
+[[Job 20:15]]
+[[Job 27:16]]
+[[Psalms 39:6]]
+[[Psalms 49:18]]
+[[Psalms 109:9]]
+[[Proverbs 23:5]]
+[[Ecclesiastes 2:26]]
+[[Haggai 1:9]]
+[[Haggai 2:16]]
+[[Matthew 6:19]]
+---
+
+"But those riches perish by evil travail: and he begetteth a son, and there is nothing in his hand."

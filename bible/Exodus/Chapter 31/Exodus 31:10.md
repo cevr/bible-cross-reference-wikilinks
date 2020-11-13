@@ -1,5 +1,0 @@
-[[Exodus 28:1]]
-[[Exodus 39:1]]
-[[Leviticus 8:7]]
-[[Leviticus 8:13]]
-[[Numbers 4:5]]

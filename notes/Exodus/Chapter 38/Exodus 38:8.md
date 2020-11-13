@@ -1,0 +1,26 @@
+---
+Links:
+[[Exodus 30:17]]
+[[Exodus 30:18]]
+[[Exodus 40:7]]
+[[Exodus 40:30]]
+[[1 Samuel 2:22]]
+[[1 Kings 7:23]]
+[[1 Kings 7:38]]
+[[2 Chronicles 4:2]]
+[[Psalms 26:6]]
+[[Proverbs 8:34]]
+[[Isaiah 3:23]]
+[[Zechariah 13:1]]
+[[Matthew 26:69]]
+[[Luke 2:37]]
+[[John 13:10]]
+[[John 18:16]]
+[[1 Timothy 5:5]]
+[[Titus 3:5]]
+[[Hebrews 9:10]]
+[[1 John 3:7]]
+[[Revelation 1:5]]
+---
+
+"And he made the laver of brass, and the foot of it of brass, of the lookingglasses of the women assembling, which assembled at the door of the tabernacle of the congregation."

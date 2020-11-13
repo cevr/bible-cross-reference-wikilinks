@@ -1,6 +1,0 @@
-[[Exodus 17:8]]
-[[Nehemiah 5:9]]
-[[Nehemiah 5:15]]
-[[Psalms 36:1]]
-[[Proverbs 16:6]]
-[[Romans 3:18]]

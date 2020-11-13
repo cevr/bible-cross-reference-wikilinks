@@ -1,0 +1,15 @@
+---
+Links:
+[[Judges 4:6]]
+[[Judges 4:12]]
+[[Job 26:7]]
+[[Psalms 62:11]]
+[[Psalms 89:10]]
+[[Psalms 98:8]]
+[[Isaiah 44:23]]
+[[Isaiah 49:13]]
+[[Daniel 4:34]]
+[[Matthew 6:13]]
+---
+
+"Thou hast a mighty arm: strong is thy hand, and high is thy right hand."

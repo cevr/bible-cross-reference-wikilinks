@@ -1,6 +1,0 @@
-[[2 Kings 21:9]]
-[[2 Chronicles 33:9]]
-[[Jeremiah 2:10]]
-[[Ezekiel 5:11]]
-[[Ezekiel 16:47]]
-[[Ezekiel 16:54]]

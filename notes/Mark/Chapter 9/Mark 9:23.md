@@ -1,0 +1,15 @@
+---
+Links:
+[[2 Chronicles 20:20]]
+[[Matthew 14:29]]
+[[Matthew 17:20]]
+[[Matthew 21:21]]
+[[Mark 11:23]]
+[[Luke 17:6]]
+[[John 4:48]]
+[[John 11:40]]
+[[Acts 14:9]]
+[[Hebrews 11:6]]
+---
+
+"Jesus said unto him, If thou canst believe, all things are possible to him that believeth."

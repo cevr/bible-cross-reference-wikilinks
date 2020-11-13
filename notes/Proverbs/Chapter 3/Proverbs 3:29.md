@@ -1,0 +1,15 @@
+---
+Links:
+[[Psalms 35:20]]
+[[Psalms 55:20]]
+[[Psalms 59:3]]
+[[Proverbs 6:14]]
+[[Proverbs 6:18]]
+[[Proverbs 14:22]]
+[[Proverbs 16:29]]
+[[Jeremiah 18:18]]
+[[Micah 2:1]]
+[[Zechariah 7:10]]
+---
+
+"Devise not evil against thy neighbour, seeing he dwelleth securely by thee."

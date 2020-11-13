@@ -1,6 +1,0 @@
-[[Exodus 33:20]]
-[[Job 11:7]]
-[[Job 26:14]]
-[[John 1:18]]
-[[1 Corinthians 13:12]]
-[[1 Timothy 6:16]]

@@ -1,5 +1,0 @@
-[[Jeremiah 6:16]]
-[[Mark 7:7]]
-[[Romans 4:11]]
-[[Hebrews 11:1]]
-[[Hebrews 11:39]]

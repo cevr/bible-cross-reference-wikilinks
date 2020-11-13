@@ -1,5 +1,0 @@
-[[Exodus 29:26]]
-[[Leviticus 7:30]]
-[[Isaiah 66:20]]
-[[1 Corinthians 10:31]]
-[[1 Peter 4:11]]

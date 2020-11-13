@@ -1,0 +1,12 @@
+---
+Links:
+[[Isaiah 6:13]]
+[[Isaiah 10:22]]
+[[Isaiah 19:24]]
+[[Isaiah 65:8]]
+[[Jeremiah 5:1]]
+[[Ezekiel 22:30]]
+[[Matthew 24:22]]
+---
+
+"And the LORD said, If I find in Sodom fifty righteous within the city, then I will spare all the place for their sakes."

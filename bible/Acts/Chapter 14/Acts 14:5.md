@@ -1,8 +1,0 @@
-[[Psalms 2:1]]
-[[Psalms 83:5]]
-[[Matthew 5:44]]
-[[Luke 6:28]]
-[[Acts 4:25]]
-[[Acts 14:19]]
-[[Acts 17:5]]
-[[2 Timothy 3:11]]

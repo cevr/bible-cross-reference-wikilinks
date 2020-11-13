@@ -1,7 +1,0 @@
-[[Psalms 125:3]]
-[[Proverbs 28:15]]
-[[Isaiah 9:3]]
-[[Isaiah 9:4]]
-[[Isaiah 10:5]]
-[[Isaiah 14:29]]
-[[Jeremiah 48:15]]

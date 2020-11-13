@@ -1,0 +1,14 @@
+---
+Links:
+[[Leviticus 22:7]]
+[[Matthew 10:10]]
+[[Luke 10:7]]
+[[1 Corinthians 9:7]]
+[[Galatians 6:6]]
+[[1 Thessalonians 2:6]]
+[[1 Thessalonians 2:9]]
+[[2 Thessalonians 3:8]]
+[[1 Timothy 5:17]]
+---
+
+"Have we not power to eat and to drink?"

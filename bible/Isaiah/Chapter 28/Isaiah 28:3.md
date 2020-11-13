@@ -1,8 +1,0 @@
-[[2 Kings 9:33]]
-[[Isaiah 25:10]]
-[[Isaiah 26:6]]
-[[Isaiah 28:1]]
-[[Lamentations 1:15]]
-[[Daniel 8:13]]
-[[Hebrews 10:29]]
-[[Revelation 11:2]]

@@ -1,5 +1,0 @@
-[[Genesis 9:25]]
-[[Genesis 26:34]]
-[[Genesis 27:46]]
-[[Genesis 28:9]]
-[[Genesis 36:25]]

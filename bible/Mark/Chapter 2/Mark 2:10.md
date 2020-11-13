@@ -1,6 +1,0 @@
-[[Daniel 7:13]]
-[[Matthew 9:6]]
-[[Matthew 16:13]]
-[[John 5:20]]
-[[Acts 5:31]]
-[[1 Timothy 1:13]]

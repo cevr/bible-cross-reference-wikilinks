@@ -1,6 +1,0 @@
-[[Exodus 22:18]]
-[[Leviticus 19:31]]
-[[Leviticus 20:2]]
-[[Leviticus 20:6]]
-[[Deuteronomy 18:10]]
-[[1 Samuel 28:7]]

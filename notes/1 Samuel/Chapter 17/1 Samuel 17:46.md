@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 40:19]]
+[[Exodus 9:16]]
+[[Exodus 15:14]]
+[[Deuteronomy 7:2]]
+[[Deuteronomy 7:23]]
+[[Deuteronomy 9:2]]
+[[Deuteronomy 28:26]]
+[[Joshua 4:24]]
+[[Joshua 10:8]]
+[[1 Samuel 17:44]]
+[[1 Kings 8:43]]
+[[1 Kings 18:36]]
+[[1 Kings 18:37]]
+[[2 Kings 5:15]]
+[[2 Kings 19:19]]
+[[Psalms 31:8]]
+[[Psalms 46:10]]
+[[Isaiah 37:20]]
+[[Isaiah 52:10]]
+[[Isaiah 56:9]]
+[[Jeremiah 19:7]]
+[[Daniel 2:47]]
+[[Daniel 3:29]]
+[[Daniel 6:26]]
+[[Matthew 24:28]]
+[[Revelation 19:17]]
+---
+
+"This day will the LORD deliver thee into mine hand; and I will smite thee, and take thine head from thee; and I will give the carcases of the host of the Philistines this day unto the fowls of the air, and to the wild beasts of the earth; that all the earth may know that there is a God in Israel."

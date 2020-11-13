@@ -1,0 +1,26 @@
+---
+Links:
+[[Luke 12:11]]
+[[Luke 21:14]]
+[[Acts 7:2]]
+[[Acts 13:26]]
+[[Acts 19:33]]
+[[Acts 23:1]]
+[[Acts 23:6]]
+[[Acts 24:10]]
+[[Acts 25:8]]
+[[Acts 25:16]]
+[[Acts 26:1]]
+[[Acts 26:24]]
+[[Acts 28:17]]
+[[Romans 2:15]]
+[[1 Corinthians 9:3]]
+[[2 Corinthians 7:11]]
+[[2 Corinthians 12:19]]
+[[Philippians 1:7]]
+[[Philippians 1:17]]
+[[2 Timothy 4:16]]
+[[1 Peter 3:15]]
+---
+
+"Men, brethren, and fathers, hear ye my defence which I make now unto you."

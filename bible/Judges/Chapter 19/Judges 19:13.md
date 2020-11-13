@@ -1,5 +1,0 @@
-[[Joshua 18:25]]
-[[Joshua 18:28]]
-[[1 Samuel 10:26]]
-[[Isaiah 10:29]]
-[[Hosea 5:8]]

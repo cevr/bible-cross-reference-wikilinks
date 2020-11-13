@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 8:22]]
+[[Exodus 9:4]]
+[[Exodus 9:26]]
+[[Exodus 10:23]]
+[[Leviticus 26:18]]
+[[Leviticus 26:23]]
+[[Leviticus 26:27]]
+[[Deuteronomy 11:17]]
+[[Deuteronomy 28:23]]
+[[Judges 6:37]]
+[[1 Kings 8:35]]
+[[2 Chronicles 7:13]]
+[[Isaiah 5:6]]
+[[Jeremiah 3:3]]
+[[Jeremiah 5:24]]
+[[Jeremiah 14:3]]
+[[Jeremiah 14:4]]
+[[Jeremiah 14:22]]
+[[Joel 1:10]]
+[[Joel 2:23]]
+[[Haggai 1:10]]
+[[Zechariah 14:17]]
+[[John 4:35]]
+[[1 Corinthians 4:7]]
+[[James 5:17]]
+[[Revelation 11:6]]
+---
+
+"And also I have withholden the rain from you, when there were yet three months to the harvest: and I caused it to rain upon one city, and caused it not to rain upon another city: one piece was rained upon, and the piece whereupon it rained not withered."

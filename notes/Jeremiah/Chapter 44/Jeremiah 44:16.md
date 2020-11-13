@@ -1,0 +1,24 @@
+---
+Links:
+[[Exodus 5:2]]
+[[1 Samuel 8:19]]
+[[Job 15:25]]
+[[Job 21:14]]
+[[Psalms 2:3]]
+[[Psalms 73:8]]
+[[Isaiah 3:9]]
+[[Jeremiah 6:16]]
+[[Jeremiah 8:6]]
+[[Jeremiah 8:12]]
+[[Jeremiah 11:8]]
+[[Jeremiah 11:10]]
+[[Jeremiah 16:15]]
+[[Jeremiah 18:18]]
+[[Jeremiah 38:4]]
+[[Jeremiah 44:25]]
+[[Daniel 3:15]]
+[[Luke 19:14]]
+[[Luke 19:27]]
+---
+
+"As for the word that thou hast spoken unto us in the name of the LORD, we will not hearken unto thee."

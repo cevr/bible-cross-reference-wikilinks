@@ -1,5 +1,0 @@
-[[1 Samuel 4:3]]
-[[Psalms 44:23]]
-[[Psalms 78:65]]
-[[Isaiah 64:12]]
-[[Lamentations 2:3]]

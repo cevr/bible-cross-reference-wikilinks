@@ -1,5 +1,0 @@
-[[Deuteronomy 29:24]]
-[[1 Kings 9:8]]
-[[2 Kings 25:8]]
-[[Psalms 48:4]]
-[[Jeremiah 21:13]]

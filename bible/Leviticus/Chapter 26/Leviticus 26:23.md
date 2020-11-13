@@ -1,7 +1,0 @@
-[[Leviticus 26:21]]
-[[Isaiah 1:16]]
-[[Jeremiah 2:30]]
-[[Jeremiah 5:3]]
-[[Ezekiel 24:13]]
-[[Daniel 9:13]]
-[[Amos 4:6]]

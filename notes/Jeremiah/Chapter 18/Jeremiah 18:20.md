@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 18:22]]
+[[1 Samuel 24:17]]
+[[Job 6:27]]
+[[Psalms 7:15]]
+[[Psalms 35:7]]
+[[Psalms 35:12]]
+[[Psalms 38:20]]
+[[Psalms 57:6]]
+[[Psalms 106:23]]
+[[Psalms 109:4]]
+[[Psalms 109:5]]
+[[Psalms 119:95]]
+[[Proverbs 17:13]]
+[[Proverbs 26:27]]
+[[Ecclesiastes 10:8]]
+[[Jeremiah 7:16]]
+[[Jeremiah 11:14]]
+[[Jeremiah 14:7]]
+[[Jeremiah 14:20]]
+[[Jeremiah 17:18]]
+[[Jeremiah 18:22]]
+[[Ezekiel 22:30]]
+[[Zechariah 3:1]]
+[[John 10:32]]
+[[John 15:25]]
+---
+
+"Shall evil be recompensed for good? for they have digged a pit for my soul. Remember that I stood before thee to speak good for them, and to turn away thy wrath from them."

@@ -1,6 +1,0 @@
-[[Exodus 7:17]]
-[[Isaiah 34:3]]
-[[Isaiah 34:7]]
-[[Ezekiel 35:8]]
-[[Revelation 14:20]]
-[[Revelation 16:6]]

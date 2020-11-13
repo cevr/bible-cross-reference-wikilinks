@@ -1,0 +1,31 @@
+---
+Links:
+[[Deuteronomy 28:52]]
+[[2 Kings 24:1]]
+[[2 Kings 24:10]]
+[[2 Kings 25:8]]
+[[1 Chronicles 6:15]]
+[[2 Chronicles 36:11]]
+[[2 Chronicles 36:17]]
+[[Isaiah 29:3]]
+[[Jeremiah 27:8]]
+[[Jeremiah 32:2]]
+[[Jeremiah 32:24]]
+[[Jeremiah 32:28]]
+[[Jeremiah 34:1]]
+[[Jeremiah 39:1]]
+[[Jeremiah 43:10]]
+[[Jeremiah 51:34]]
+[[Jeremiah 52:1]]
+[[Jeremiah 52:4]]
+[[Ezekiel 4:1]]
+[[Ezekiel 21:22]]
+[[Ezekiel 24:1]]
+[[Ezekiel 24:2]]
+[[Ezekiel 26:7]]
+[[Daniel 4:1]]
+[[Zechariah 8:19]]
+[[Luke 19:43]]
+---
+
+"And it came to pass in the ninth year of his reign, in the tenth month, in the tenth day of the month, that Nebuchadnezzar king of Babylon came, he, and all his host, against Jerusalem, and pitched against it; and they built forts against it round about."

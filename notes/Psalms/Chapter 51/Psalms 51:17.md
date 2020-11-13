@@ -1,0 +1,30 @@
+---
+Links:
+[[Exodus 37:22]]
+[[2 Kings 22:19]]
+[[2 Chronicles 33:12]]
+[[Psalms 22:24]]
+[[Psalms 34:18]]
+[[Psalms 102:17]]
+[[Psalms 107:22]]
+[[Psalms 147:3]]
+[[Isaiah 57:15]]
+[[Isaiah 61:1]]
+[[Isaiah 66:2]]
+[[Ezekiel 9:3]]
+[[Ezekiel 9:6]]
+[[Amos 5:21]]
+[[Matthew 5:3]]
+[[Mark 12:33]]
+[[Luke 7:39]]
+[[Luke 15:2]]
+[[Luke 15:10]]
+[[Luke 15:21]]
+[[Luke 18:11]]
+[[Romans 12:1]]
+[[Philippians 4:18]]
+[[Hebrews 13:16]]
+[[1 Peter 2:5]]
+---
+
+"The sacrifices of God are a broken spirit: a broken and a contrite heart, O God, thou wilt not despise."

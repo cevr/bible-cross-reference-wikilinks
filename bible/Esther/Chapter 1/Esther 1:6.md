@@ -1,8 +1,0 @@
-[[Exodus 26:1]]
-[[Exodus 26:31]]
-[[Exodus 26:36]]
-[[Esther 7:8]]
-[[Esther 8:15]]
-[[Ezekiel 23:41]]
-[[Amos 2:8]]
-[[Amos 6:4]]

@@ -1,5 +1,0 @@
-[[Isaiah 13:21]]
-[[Isaiah 13:22]]
-[[Jeremiah 49:33]]
-[[Jeremiah 51:37]]
-[[Malachi 1:3]]

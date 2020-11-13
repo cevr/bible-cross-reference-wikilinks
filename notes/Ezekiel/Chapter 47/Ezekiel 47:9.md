@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 15:26]]
+[[Psalms 78:16]]
+[[Psalms 103:3]]
+[[Isaiah 12:3]]
+[[Isaiah 30:26]]
+[[Isaiah 49:12]]
+[[Isaiah 55:1]]
+[[Isaiah 60:3]]
+[[Zechariah 2:11]]
+[[Zechariah 8:21]]
+[[John 3:16]]
+[[John 4:14]]
+[[John 5:25]]
+[[John 6:63]]
+[[John 7:37]]
+[[John 11:25]]
+[[John 14:6]]
+[[John 14:19]]
+[[Acts 2:41]]
+[[Acts 2:47]]
+[[Acts 4:4]]
+[[Acts 5:14]]
+[[Acts 6:7]]
+[[Acts 21:20]]
+[[Romans 8:2]]
+[[1 Corinthians 15:45]]
+[[Ephesians 2:1]]
+---
+
+"And it shall come to pass, that every thing that liveth, which moveth, whithersoever the rivers shall come, shall live: and there shall be a very great multitude of fish, because these waters shall come thither: for they shall be healed; and every thing shall live whither the river cometh."

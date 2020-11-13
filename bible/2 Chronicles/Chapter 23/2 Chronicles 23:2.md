@@ -1,7 +1,0 @@
-[[1 Chronicles 15:12]]
-[[1 Chronicles 24:6]]
-[[2 Chronicles 11:13]]
-[[2 Chronicles 21:2]]
-[[Psalms 112:5]]
-[[Matthew 10:16]]
-[[Ephesians 5:15]]

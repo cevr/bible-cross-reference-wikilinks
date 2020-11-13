@@ -1,6 +1,0 @@
-[[Numbers 13:22]]
-[[Numbers 14:22]]
-[[Deuteronomy 1:36]]
-[[Joshua 1:3]]
-[[Judges 1:20]]
-[[Psalms 37:9]]

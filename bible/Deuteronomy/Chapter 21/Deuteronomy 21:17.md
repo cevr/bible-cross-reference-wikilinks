@@ -1,7 +1,0 @@
-[[Genesis 25:5]]
-[[Genesis 25:31]]
-[[Genesis 49:3]]
-[[1 Chronicles 5:1]]
-[[1 Chronicles 5:2]]
-[[2 Chronicles 21:3]]
-[[Psalms 105:36]]

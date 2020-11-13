@@ -1,7 +1,0 @@
-[[Psalms 137:1]]
-[[Isaiah 5:29]]
-[[Isaiah 10:6]]
-[[Isaiah 10:14]]
-[[Isaiah 30:6]]
-[[Jeremiah 48:36]]
-[[Nahum 2:12]]

@@ -1,0 +1,32 @@
+---
+Links:
+[[Genesis 17:7]]
+[[Exodus 3:6]]
+[[Exodus 4:5]]
+[[Exodus 6:2]]
+[[Deuteronomy 1:11]]
+[[Deuteronomy 1:35]]
+[[Deuteronomy 4:1]]
+[[1 Chronicles 16:16]]
+[[1 Chronicles 29:18]]
+[[2 Chronicles 28:9]]
+[[Psalms 30:5]]
+[[Psalms 68:5]]
+[[Psalms 72:17]]
+[[Psalms 72:19]]
+[[Psalms 102:12]]
+[[Psalms 102:13]]
+[[Psalms 135:13]]
+[[Psalms 145:1]]
+[[Isaiah 9:6]]
+[[Isaiah 63:12]]
+[[Hosea 12:5]]
+[[Hosea 12:6]]
+[[Micah 4:5]]
+[[Malachi 3:6]]
+[[Matthew 22:32]]
+[[Acts 7:32]]
+[[Hebrews 13:8]]
+---
+
+"And God said moreover unto Moses, Thus shalt thou say unto the children of Israel, The LORD God of your fathers, the God of Abraham, the God of Isaac, and the God of Jacob, hath sent me unto you: this is my name for ever, and this is my memorial unto all generations."

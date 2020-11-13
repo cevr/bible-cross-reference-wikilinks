@@ -1,0 +1,16 @@
+---
+Links:
+[[Exodus 24:18]]
+[[Exodus 29:38]]
+[[Exodus 31:18]]
+[[Leviticus 6:9]]
+[[Leviticus 27:34]]
+[[2 Chronicles 2:4]]
+[[2 Chronicles 31:3]]
+[[Ezra 3:4]]
+[[Psalms 50:8]]
+[[Ezekiel 46:14]]
+[[Amos 5:25]]
+---
+
+"It is a continual burnt offering, which was ordained in mount Sinai for a sweet savour, a sacrifice made by fire unto the LORD."

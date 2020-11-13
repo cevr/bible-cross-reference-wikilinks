@@ -1,0 +1,22 @@
+---
+Links:
+[[2 Kings 4:1]]
+[[Nehemiah 5:4]]
+[[Nehemiah 5:5]]
+[[Proverbs 14:31]]
+[[Proverbs 18:23]]
+[[Proverbs 22:16]]
+[[Proverbs 22:22]]
+[[Isaiah 24:2]]
+[[Amos 2:6]]
+[[Amos 4:1]]
+[[Amos 5:11]]
+[[Amos 8:4]]
+[[Amos 8:6]]
+[[Matthew 18:25]]
+[[James 2:6]]
+[[James 5:1]]
+[[James 5:4]]
+---
+
+"The rich ruleth over the poor, and the borrower is servant to the lender."

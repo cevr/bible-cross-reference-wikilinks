@@ -1,6 +1,0 @@
-[[Psalms 3:3]]
-[[Psalms 4:8]]
-[[Psalms 109:2]]
-[[Proverbs 1:16]]
-[[Proverbs 4:16]]
-[[Isaiah 59:7]]

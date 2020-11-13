@@ -1,5 +1,0 @@
-[[Numbers 22:2]]
-[[Numbers 22:5]]
-[[Deuteronomy 23:4]]
-[[Judges 11:25]]
-[[Micah 6:5]]

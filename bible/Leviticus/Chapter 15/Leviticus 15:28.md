@@ -1,7 +1,0 @@
-[[Leviticus 15:13]]
-[[Matthew 1:21]]
-[[1 Corinthians 1:30]]
-[[1 Corinthians 6:11]]
-[[Galatians 3:13]]
-[[Galatians 4:4]]
-[[Ephesians 1:6]]

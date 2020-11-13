@@ -1,6 +1,0 @@
-[[Job 13:5]]
-[[Job 32:16]]
-[[Proverbs 15:2]]
-[[Ecclesiastes 5:3]]
-[[Ecclesiastes 10:3]]
-[[Ecclesiastes 10:14]]

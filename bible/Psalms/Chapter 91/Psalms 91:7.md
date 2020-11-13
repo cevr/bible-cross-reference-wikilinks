@@ -1,6 +1,0 @@
-[[Genesis 7:23]]
-[[Exodus 12:12]]
-[[Numbers 14:37]]
-[[Joshua 14:10]]
-[[Psalms 32:6]]
-[[Jeremiah 39:18]]

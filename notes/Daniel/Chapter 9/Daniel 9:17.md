@@ -1,0 +1,24 @@
+---
+Links:
+[[Numbers 6:23]]
+[[Numbers 6:25]]
+[[1 Kings 8:28]]
+[[Psalms 4:6]]
+[[Psalms 67:1]]
+[[Psalms 67:2]]
+[[Psalms 74:3]]
+[[Psalms 80:1]]
+[[Psalms 80:3]]
+[[Psalms 80:4]]
+[[Psalms 80:7]]
+[[Psalms 80:19]]
+[[Psalms 119:135]]
+[[Lamentations 3:56]]
+[[Lamentations 5:18]]
+[[Daniel 9:19]]
+[[John 16:24]]
+[[2 Corinthians 1:20]]
+[[Revelation 21:23]]
+---
+
+"Now therefore, O our God, hear the prayer of thy servant, and his supplications, and cause thy face to shine upon thy sanctuary that is desolate, for the Lord's sake."

@@ -1,0 +1,22 @@
+---
+Links:
+[[Genesis 18:2]]
+[[Genesis 19:1]]
+[[Genesis 37:7]]
+[[Genesis 37:9]]
+[[Genesis 41:40]]
+[[Genesis 41:54]]
+[[Genesis 41:55]]
+[[Genesis 41:56]]
+[[Genesis 41:57]]
+[[Genesis 44:14]]
+[[Genesis 45:8]]
+[[Genesis 45:26]]
+[[Genesis 48:12]]
+[[1 Samuel 20:41]]
+[[Psalms 105:16]]
+[[Acts 7:10]]
+[[Revelation 3:9]]
+---
+
+"And Joseph was the governor over the land, and he it was that sold to all the people of the land: and Joseph's brethren came, and bowed down themselves before him with their faces to the earth."

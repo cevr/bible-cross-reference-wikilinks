@@ -1,8 +1,0 @@
-[[Deuteronomy 33:25]]
-[[Songs of Solomon 7:1]]
-[[Isaiah 52:7]]
-[[Habakkuk 3:19]]
-[[Mark 6:9]]
-[[Luke 15:22]]
-[[Romans 10:15]]
-[[2 Corinthians 5:18]]

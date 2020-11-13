@@ -1,5 +1,0 @@
-[[Leviticus 25:39]]
-[[1 Samuel 8:11]]
-[[1 Kings 4:1]]
-[[2 Chronicles 8:9]]
-[[Songs of Solomon 3:7]]

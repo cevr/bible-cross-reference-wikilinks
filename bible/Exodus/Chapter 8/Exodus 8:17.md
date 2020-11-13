@@ -1,6 +1,0 @@
-[[Exodus 4:23]]
-[[Exodus 5:1]]
-[[Psalms 78:45]]
-[[Psalms 105:31]]
-[[Isaiah 23:9]]
-[[Acts 12:23]]

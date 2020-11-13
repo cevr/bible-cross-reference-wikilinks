@@ -1,6 +1,0 @@
-[[Proverbs 13:20]]
-[[Matthew 13:10]]
-[[Matthew 13:36]]
-[[Mark 4:34]]
-[[Mark 7:17]]
-[[Luke 8:9]]

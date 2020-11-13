@@ -1,6 +1,0 @@
-[[2 Samuel 11:2]]
-[[2 Samuel 13:1]]
-[[2 Samuel 18:18]]
-[[Job 18:16]]
-[[Isaiah 14:22]]
-[[Jeremiah 22:30]]

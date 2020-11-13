@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 19:18]]
+[[Judges 5:5]]
+[[2 Samuel 22:8]]
+[[Job 9:5]]
+[[Job 26:11]]
+[[Psalms 18:8]]
+[[Psalms 29:5]]
+[[Psalms 46:6]]
+[[Psalms 68:8]]
+[[Psalms 97:4]]
+[[Psalms 98:7]]
+[[Psalms 104:32]]
+[[Psalms 114:4]]
+[[Psalms 114:6]]
+[[Isaiah 2:12]]
+[[Isaiah 64:1]]
+[[Jeremiah 4:24]]
+[[Jeremiah 10:10]]
+[[Ezekiel 38:20]]
+[[Amos 9:5]]
+[[Micah 1:4]]
+[[Habakkuk 3:10]]
+[[Matthew 27:51]]
+[[Matthew 28:2]]
+[[2 Peter 3:7]]
+[[Revelation 20:11]]
+---
+
+"The mountains quake at him, and the hills melt, and the earth is burned at his presence, yea, the world, and all that dwell therein."

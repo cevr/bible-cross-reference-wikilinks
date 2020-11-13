@@ -1,0 +1,15 @@
+---
+Links:
+[[Exodus 22:21]]
+[[Exodus 23:2]]
+[[Exodus 23:8]]
+[[Deuteronomy 10:18]]
+[[Deuteronomy 24:17]]
+[[Psalms 82:2]]
+[[Proverbs 17:23]]
+[[Proverbs 31:5]]
+[[Micah 3:9]]
+[[Malachi 3:5]]
+---
+
+"Cursed be he that perverteth the judgment of the stranger, fatherless, and widow. And all the people shall say, Amen."

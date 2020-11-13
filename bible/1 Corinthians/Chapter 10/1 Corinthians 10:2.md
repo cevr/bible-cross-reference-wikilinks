@@ -1,6 +1,0 @@
-[[Exodus 14:31]]
-[[John 9:28]]
-[[Romans 6:3]]
-[[1 Corinthians 1:13]]
-[[Galatians 3:27]]
-[[Hebrews 3:2]]

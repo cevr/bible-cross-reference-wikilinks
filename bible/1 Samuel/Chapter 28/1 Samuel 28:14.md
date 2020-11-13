@@ -1,5 +1,0 @@
-[[1 Samuel 15:27]]
-[[1 Samuel 24:8]]
-[[2 Kings 1:7]]
-[[2 Kings 2:8]]
-[[2 Kings 2:13]]

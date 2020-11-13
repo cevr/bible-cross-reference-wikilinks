@@ -1,0 +1,17 @@
+---
+Links:
+[[Deuteronomy 27:15]]
+[[Deuteronomy 28:15]]
+[[2 Kings 22:13]]
+[[Ezra 7:26]]
+[[Psalms 119:21]]
+[[Jeremiah 11:3]]
+[[Ezekiel 18:24]]
+[[Matthew 25:41]]
+[[Romans 3:19]]
+[[Romans 10:5]]
+[[1 Corinthians 16:22]]
+[[Galatians 3:10]]
+---
+
+"Cursed be he that confirmeth not all the words of this law to do them. And all the people shall say, Amen."

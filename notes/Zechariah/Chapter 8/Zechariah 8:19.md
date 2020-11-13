@@ -1,0 +1,30 @@
+---
+Links:
+[[2 Kings 25:1]]
+[[2 Kings 25:3]]
+[[2 Kings 25:25]]
+[[Esther 8:17]]
+[[Esther 9:22]]
+[[Psalms 30:11]]
+[[Psalms 34:15]]
+[[Isaiah 12:1]]
+[[Isaiah 35:10]]
+[[Isaiah 51:11]]
+[[Jeremiah 31:12]]
+[[Jeremiah 31:13]]
+[[Jeremiah 39:2]]
+[[Jeremiah 41:1]]
+[[Jeremiah 52:4]]
+[[Jeremiah 52:6]]
+[[Jeremiah 52:12]]
+[[Ezekiel 18:8]]
+[[Ezekiel 24:1]]
+[[Zechariah 7:3]]
+[[Zechariah 7:5]]
+[[Zechariah 8:16]]
+[[Luke 1:74]]
+[[Titus 2:11]]
+[[Revelation 22:15]]
+---
+
+"Thus saith the LORD of hosts; The fast of the fourth month, and the fast of the fifth, and the fast of the seventh, and the fast of the tenth, shall be to the house of Judah joy and gladness, and cheerful feasts; therefore love the truth and peace."

@@ -1,7 +1,0 @@
-[[Daniel 12:1]]
-[[Matthew 24:21]]
-[[Revelation 4:5]]
-[[Revelation 6:12]]
-[[Revelation 8:5]]
-[[Revelation 11:13]]
-[[Revelation 11:19]]

@@ -1,5 +1,0 @@
-[[Joshua 6:5]]
-[[2 Chronicles 13:15]]
-[[Zephaniah 1:16]]
-[[2 Corinthians 10:4]]
-[[Hebrews 11:30]]

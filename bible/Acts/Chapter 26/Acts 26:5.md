@@ -1,6 +1,0 @@
-[[Acts 22:3]]
-[[Acts 22:5]]
-[[Acts 23:6]]
-[[Acts 24:5]]
-[[Acts 24:14]]
-[[Philippians 3:5]]

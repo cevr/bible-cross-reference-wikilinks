@@ -1,0 +1,26 @@
+---
+Links:
+[[Exodus 33:17]]
+[[Job 4:15]]
+[[Isaiah 45:4]]
+[[Daniel 9:20]]
+[[Matthew 27:46]]
+[[Luke 1:11]]
+[[Luke 2:10]]
+[[Luke 2:13]]
+[[Luke 23:44]]
+[[Acts 3:1]]
+[[Acts 5:19]]
+[[Acts 9:4]]
+[[Acts 9:10]]
+[[Acts 10:17]]
+[[Acts 10:19]]
+[[Acts 10:30]]
+[[Acts 11:13]]
+[[Acts 12:7]]
+[[Acts 27:23]]
+[[Hebrews 1:4]]
+[[Hebrews 1:14]]
+---
+
+"He saw in a vision evidently about the ninth hour of the day an angel of God coming in to him, and saying unto him, Cornelius."

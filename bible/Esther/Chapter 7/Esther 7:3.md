@@ -1,8 +1,0 @@
-[[1 Kings 20:31]]
-[[2 Kings 1:13]]
-[[Esther 4:8]]
-[[Esther 5:8]]
-[[Esther 7:7]]
-[[Job 2:4]]
-[[Psalms 122:6]]
-[[Jeremiah 38:26]]

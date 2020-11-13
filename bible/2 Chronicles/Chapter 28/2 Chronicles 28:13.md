@@ -1,7 +1,0 @@
-[[Numbers 32:14]]
-[[Joshua 22:15]]
-[[Joshua 22:17]]
-[[2 Chronicles 24:18]]
-[[Matthew 23:32]]
-[[Matthew 23:35]]
-[[Romans 2:5]]

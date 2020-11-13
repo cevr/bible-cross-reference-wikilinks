@@ -1,0 +1,14 @@
+---
+Links:
+[[Psalms 25:14]]
+[[Matthew 13:11]]
+[[Matthew 20:7]]
+[[Mark 4:11]]
+[[Luke 8:10]]
+[[Romans 16:25]]
+[[1 Corinthians 2:7]]
+[[Ephesians 3:3]]
+[[2 Timothy 1:10]]
+---
+
+"Even the mystery which hath been hid from ages and from generations, but now is made manifest to his saints:"

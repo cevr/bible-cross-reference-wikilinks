@@ -1,0 +1,16 @@
+---
+Links:
+[[Joshua 15:38]]
+[[Joshua 18:26]]
+[[Judges 20:1]]
+[[1 Samuel 7:12]]
+[[1 Samuel 7:16]]
+[[1 Samuel 10:17]]
+[[1 Samuel 12:23]]
+[[2 Kings 25:23]]
+[[Nehemiah 9:1]]
+[[Hosea 5:1]]
+[[Joel 2:16]]
+---
+
+"And Samuel said, Gather all Israel to Mizpeh, and I will pray for you unto the LORD."

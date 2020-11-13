@@ -1,5 +1,0 @@
-[[Exodus 36:4]]
-[[1 Chronicles 22:5]]
-[[Nehemiah 4:7]]
-[[Haggai 2:3]]
-[[Mark 13:1]]

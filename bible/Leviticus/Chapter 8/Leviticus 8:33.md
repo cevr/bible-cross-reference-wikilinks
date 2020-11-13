@@ -1,6 +1,0 @@
-[[Exodus 29:30]]
-[[Exodus 29:35]]
-[[Leviticus 14:8]]
-[[Numbers 19:12]]
-[[Ezekiel 43:25]]
-[[Ezekiel 43:26]]

@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 3:8]]
+[[1 Samuel 31:13]]
+[[2 Samuel 11:27]]
+[[2 Samuel 21:12]]
+[[Job 3:24]]
+[[Job 30:17]]
+[[Job 30:30]]
+[[Psalms 6:2]]
+[[Psalms 22:1]]
+[[Psalms 31:9]]
+[[Psalms 38:3]]
+[[Psalms 38:8]]
+[[Psalms 51:8]]
+[[Psalms 102:3]]
+[[Proverbs 17:22]]
+[[Proverbs 28:13]]
+[[Isaiah 51:20]]
+[[Isaiah 57:17]]
+[[Isaiah 59:11]]
+[[Jeremiah 31:18]]
+[[Lamentations 1:3]]
+[[Lamentations 3:4]]
+[[Lamentations 3:8]]
+[[Hosea 7:14]]
+[[Luke 15:15]]
+---
+
+"When I kept silence, my bones waxed old through my roaring all the day long."

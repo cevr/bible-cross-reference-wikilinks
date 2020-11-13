@@ -1,7 +1,0 @@
-[[Leviticus 13:46]]
-[[Numbers 5:2]]
-[[Numbers 5:4]]
-[[Numbers 12:15]]
-[[2 Kings 7:3]]
-[[2 Kings 15:5]]
-[[2 Chronicles 27:1]]

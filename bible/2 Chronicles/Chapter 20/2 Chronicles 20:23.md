@@ -1,7 +1,0 @@
-[[Genesis 14:6]]
-[[Genesis 36:8]]
-[[Deuteronomy 2:5]]
-[[Joshua 24:4]]
-[[Judges 7:22]]
-[[1 Samuel 14:20]]
-[[Ezekiel 35:2]]

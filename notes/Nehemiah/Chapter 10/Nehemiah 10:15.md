@@ -1,0 +1,11 @@
+---
+Links:
+[[Ezra 2:2]]
+[[Ezra 2:3]]
+[[Ezra 2:11]]
+[[Ezra 8:11]]
+[[Ezra 10:28]]
+[[Nehemiah 7:16]]
+---
+
+"Bunni, Azgad, Bebai,"

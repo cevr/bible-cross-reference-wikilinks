@@ -1,0 +1,32 @@
+---
+Links:
+[[Genesis 25:23]]
+[[Genesis 25:25]]
+[[Genesis 25:26]]
+[[Genesis 27:27]]
+[[Genesis 27:33]]
+[[Genesis 28:3]]
+[[Genesis 28:13]]
+[[Genesis 32:28]]
+[[Genesis 48:4]]
+[[Deuteronomy 4:37]]
+[[Deuteronomy 7:6]]
+[[Deuteronomy 10:15]]
+[[Deuteronomy 32:8]]
+[[1 Kings 10:9]]
+[[2 Kings 3:8]]
+[[Isaiah 41:8]]
+[[Isaiah 43:4]]
+[[Jeremiah 2:5]]
+[[Jeremiah 2:31]]
+[[Jeremiah 31:3]]
+[[Malachi 1:6]]
+[[Malachi 2:17]]
+[[Malachi 3:7]]
+[[Malachi 3:13]]
+[[Luke 10:29]]
+[[Romans 9:10]]
+[[Romans 11:28]]
+---
+
+"I have loved you, saith the LORD. Yet ye say, Wherein hast thou loved us? Was not Esau Jacob's brother? saith the LORD: yet I loved Jacob,"

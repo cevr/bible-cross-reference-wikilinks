@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 18:11]]
+[[Job 5:21]]
+[[Psalms 2:12]]
+[[Psalms 10:2]]
+[[Psalms 27:5]]
+[[Psalms 32:7]]
+[[Psalms 36:6]]
+[[Psalms 36:8]]
+[[Psalms 36:11]]
+[[Psalms 40:4]]
+[[Psalms 57:11]]
+[[Psalms 64:2]]
+[[Psalms 86:14]]
+[[Psalms 91:1]]
+[[Psalms 103:8]]
+[[Psalms 103:11]]
+[[Psalms 119:124]]
+[[Psalms 124:5]]
+[[Psalms 140:3]]
+[[Psalms 140:5]]
+[[Romans 13:13]]
+[[2 Corinthians 12:20]]
+[[Galatians 5:20]]
+[[1 Timothy 6:4]]
+[[James 3:5]]
+[[James 3:14]]
+[[James 4:6]]
+---
+
+"Thou shalt hide them in the secret of thy presence from the pride of man: thou shalt keep them secretly in a pavilion from the strife of tongues."

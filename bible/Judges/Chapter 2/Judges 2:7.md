@@ -1,5 +1,0 @@
-[[Joshua 24:31]]
-[[2 Kings 12:2]]
-[[2 Chronicles 24:2]]
-[[2 Chronicles 24:14]]
-[[Philippians 2:12]]

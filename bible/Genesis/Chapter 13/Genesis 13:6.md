@@ -1,5 +1,0 @@
-[[Genesis 36:6]]
-[[Genesis 36:7]]
-[[Ecclesiastes 5:10]]
-[[Luke 12:17]]
-[[1 Timothy 6:9]]

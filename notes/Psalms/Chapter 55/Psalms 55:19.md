@@ -1,0 +1,20 @@
+---
+Links:
+[[Deuteronomy 33:27]]
+[[Psalms 65:5]]
+[[Psalms 73:5]]
+[[Psalms 78:59]]
+[[Psalms 90:1]]
+[[Psalms 143:12]]
+[[Proverbs 1:32]]
+[[Ecclesiastes 8:11]]
+[[Isaiah 36:20]]
+[[Jeremiah 48:11]]
+[[Micah 5:2]]
+[[Zephaniah 1:12]]
+[[Colossians 1:17]]
+[[1 Thessalonians 2:15]]
+[[Revelation 6:10]]
+---
+
+"God shall hear, and afflict them, even he that abideth of old. Selah. Because they have no changes, therefore they fear not God."

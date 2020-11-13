@@ -1,0 +1,31 @@
+---
+Links:
+[[Exodus 34:6]]
+[[1 Samuel 13:6]]
+[[2 Kings 6:15]]
+[[2 Kings 13:3]]
+[[1 Chronicles 21:13]]
+[[2 Chronicles 28:5]]
+[[Psalms 51:1]]
+[[Psalms 86:5]]
+[[Psalms 86:15]]
+[[Psalms 103:8]]
+[[Psalms 106:41]]
+[[Psalms 119:156]]
+[[Psalms 130:4]]
+[[Psalms 145:9]]
+[[Proverbs 12:10]]
+[[Isaiah 47:6]]
+[[Isaiah 55:7]]
+[[Jeremiah 39:17]]
+[[Lamentations 3:22]]
+[[Daniel 9:9]]
+[[Jonah 4:2]]
+[[Micah 7:18]]
+[[Micah 7:19]]
+[[Zechariah 1:15]]
+[[John 12:27]]
+[[Philippians 1:23]]
+---
+
+"And David said unto Gad, I am in a great strait: let us fall now into the hand of the LORD; for his mercies are great: and let me not fall into the hand of man."

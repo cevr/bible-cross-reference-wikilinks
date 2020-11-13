@@ -1,6 +1,0 @@
-[[Exodus 27:1]]
-[[Exodus 39:1]]
-[[Exodus 39:41]]
-[[Leviticus 6:12]]
-[[Numbers 4:6]]
-[[Numbers 4:11]]

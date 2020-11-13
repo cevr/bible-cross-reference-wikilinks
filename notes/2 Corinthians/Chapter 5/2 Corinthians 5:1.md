@@ -1,0 +1,28 @@
+---
+Links:
+[[Genesis 3:19]]
+[[Job 4:19]]
+[[Job 19:25]]
+[[Job 30:22]]
+[[Psalms 56:9]]
+[[Mark 14:58]]
+[[John 14:2]]
+[[1 Corinthians 3:9]]
+[[1 Corinthians 15:46]]
+[[2 Corinthians 4:7]]
+[[2 Corinthians 5:4]]
+[[Colossians 2:11]]
+[[2 Timothy 1:12]]
+[[Hebrews 9:11]]
+[[Hebrews 9:24]]
+[[Hebrews 11:10]]
+[[1 Peter 1:4]]
+[[2 Peter 1:13]]
+[[2 Peter 3:11]]
+[[1 John 3:2]]
+[[1 John 3:14]]
+[[1 John 3:19]]
+[[1 John 5:19]]
+---
+
+"For we know that if our earthly house of this tabernacle were dissolved, we have a building of God, an house not made with hands, eternal in the heavens."

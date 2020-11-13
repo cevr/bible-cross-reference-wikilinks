@@ -1,0 +1,23 @@
+---
+Links:
+[[Leviticus 26:7]]
+[[Deuteronomy 28:25]]
+[[Deuteronomy 32:30]]
+[[Joshua 8:22]]
+[[Joshua 10:10]]
+[[Joshua 10:42]]
+[[1 Samuel 7:3]]
+[[1 Samuel 7:10]]
+[[2 Samuel 22:38]]
+[[2 Kings 7:5]]
+[[2 Chronicles 14:2]]
+[[2 Chronicles 14:9]]
+[[2 Chronicles 19:4]]
+[[2 Chronicles 20:22]]
+[[2 Chronicles 31:20]]
+[[2 Chronicles 32:21]]
+[[Psalms 18:38]]
+[[Psalms 89:23]]
+---
+
+"The LORD shall cause thine enemies that rise up against thee to be smitten before thy face: they shall come out against thee one way, and flee before thee seven ways."

@@ -1,0 +1,32 @@
+---
+Links:
+[[Genesis 39:20]]
+[[2 Chronicles 16:10]]
+[[2 Chronicles 18:26]]
+[[Jeremiah 20:1]]
+[[Jeremiah 20:2]]
+[[Jeremiah 26:16]]
+[[Jeremiah 32:2]]
+[[Jeremiah 37:4]]
+[[Jeremiah 37:20]]
+[[Jeremiah 38:6]]
+[[Jeremiah 38:26]]
+[[Jeremiah 39:15]]
+[[Matthew 21:35]]
+[[Matthew 23:34]]
+[[Matthew 26:67]]
+[[Luke 20:10]]
+[[Luke 22:64]]
+[[John 18:22]]
+[[Acts 5:18]]
+[[Acts 5:28]]
+[[Acts 5:40]]
+[[Acts 12:4]]
+[[Acts 16:22]]
+[[Acts 23:2]]
+[[2 Corinthians 11:23]]
+[[Hebrews 11:36]]
+[[Revelation 2:10]]
+---
+
+"Wherefore the princes were wroth with Jeremiah, and smote him, and put him in prison in the house of Jonathan the scribe: for they had made that the prison."

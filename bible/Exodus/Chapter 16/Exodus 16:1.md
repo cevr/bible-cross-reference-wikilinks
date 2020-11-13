@@ -1,5 +1,0 @@
-[[Exodus 15:27]]
-[[Exodus 17:1]]
-[[Numbers 33:10]]
-[[Numbers 33:11]]
-[[Ezekiel 30:15]]

@@ -1,0 +1,18 @@
+---
+Links:
+[[Exodus 17:9]]
+[[Numbers 13:2]]
+[[Numbers 13:8]]
+[[Numbers 14:6]]
+[[Numbers 14:30]]
+[[Numbers 27:18]]
+[[Deuteronomy 32:44]]
+[[1 Chronicles 7:27]]
+[[Hosea 1:1]]
+[[Matthew 1:21]]
+[[Acts 7:45]]
+[[Romans 9:25]]
+[[Hebrews 4:8]]
+---
+
+"These are the names of the men which Moses sent to spy out the land. And Moses called Oshea the son of Nun Jehoshua."

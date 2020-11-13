@@ -1,0 +1,28 @@
+---
+Links:
+[[Deuteronomy 15:7]]
+[[Nehemiah 4:13]]
+[[Job 31:16]]
+[[Psalms 37:21]]
+[[Psalms 37:25]]
+[[Psalms 37:26]]
+[[Proverbs 2:20]]
+[[Proverbs 12:2]]
+[[Proverbs 17:18]]
+[[Proverbs 18:9]]
+[[Proverbs 22:26]]
+[[Proverbs 24:27]]
+[[Proverbs 24:30]]
+[[Proverbs 27:23]]
+[[Luke 6:35]]
+[[Luke 23:50]]
+[[John 6:12]]
+[[Acts 11:24]]
+[[Romans 5:7]]
+[[Romans 12:11]]
+[[Ephesians 5:15]]
+[[Philippians 1:9]]
+[[Colossians 4:5]]
+---
+
+"A good man sheweth favour, and lendeth: he will guide his affairs with discretion."

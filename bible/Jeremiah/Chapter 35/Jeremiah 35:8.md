@@ -1,6 +1,0 @@
-[[Proverbs 1:8]]
-[[Proverbs 4:1]]
-[[Proverbs 4:10]]
-[[Proverbs 6:20]]
-[[Proverbs 13:1]]
-[[Colossians 3:20]]

@@ -1,0 +1,18 @@
+---
+Links:
+[[Genesis 29:32]]
+[[Genesis 30:5]]
+[[Genesis 32:28]]
+[[Genesis 35:18]]
+[[Genesis 35:22]]
+[[Genesis 46:8]]
+[[Genesis 49:2]]
+[[Genesis 49:4]]
+[[Exodus 1:2]]
+[[Numbers 1:5]]
+[[Numbers 13:4]]
+[[Numbers 26:5]]
+[[Revelation 7:5]]
+---
+
+"These are the sons of Israel; Reuben, Simeon, Levi, and Judah, Issachar, and Zebulun,"

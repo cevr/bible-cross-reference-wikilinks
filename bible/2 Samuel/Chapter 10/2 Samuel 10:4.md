@@ -1,8 +1,0 @@
-[[Leviticus 19:27]]
-[[1 Chronicles 19:3]]
-[[1 Chronicles 19:4]]
-[[Psalms 109:4]]
-[[Isaiah 15:2]]
-[[Isaiah 20:4]]
-[[Isaiah 47:2]]
-[[Jeremiah 41:5]]

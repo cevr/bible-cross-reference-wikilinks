@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 43:30]]
+[[Leviticus 26:44]]
+[[Deuteronomy 32:36]]
+[[Judges 10:16]]
+[[1 Kings 3:26]]
+[[Psalms 103:13]]
+[[Proverbs 3:12]]
+[[Songs of Solomon 5:4]]
+[[Isaiah 16:11]]
+[[Isaiah 30:18]]
+[[Isaiah 55:7]]
+[[Isaiah 57:16]]
+[[Isaiah 63:15]]
+[[Jeremiah 3:19]]
+[[Jeremiah 31:9]]
+[[Jeremiah 33:26]]
+[[Jeremiah 48:36]]
+[[Lamentations 3:22]]
+[[Lamentations 3:31]]
+[[Lamentations 3:32]]
+[[Hosea 11:8]]
+[[Hosea 14:4]]
+[[Micah 7:18]]
+[[Luke 15:24]]
+[[Luke 15:32]]
+[[Philippians 1:8]]
+---
+
+"Is Ephraim my dear son? is he a pleasant child? for since I spake against him, I do earnestly remember him still: therefore my bowels are troubled for him; I will surely have mercy upon him, saith the LORD."

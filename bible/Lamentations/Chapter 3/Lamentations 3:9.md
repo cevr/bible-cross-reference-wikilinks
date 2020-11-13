@@ -1,5 +1,0 @@
-[[Job 19:8]]
-[[Isaiah 30:28]]
-[[Isaiah 63:17]]
-[[Lamentations 3:11]]
-[[Hosea 2:6]]

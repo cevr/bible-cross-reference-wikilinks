@@ -1,8 +1,0 @@
-[[Exodus 21:14]]
-[[Exodus 27:2]]
-[[Deuteronomy 32:35]]
-[[2 Samuel 17:25]]
-[[2 Samuel 18:2]]
-[[2 Samuel 18:14]]
-[[1 Kings 1:7]]
-[[1 Kings 1:50]]

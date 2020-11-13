@@ -1,0 +1,17 @@
+---
+Links:
+[[Genesis 6:9]]
+[[Genesis 19:32]]
+[[Proverbs 20:1]]
+[[Proverbs 23:31]]
+[[Ecclesiastes 7:20]]
+[[Habakkuk 2:15]]
+[[Luke 22:3]]
+[[Romans 13:13]]
+[[1 Corinthians 10:12]]
+[[Galatians 5:21]]
+[[Titus 2:2]]
+[[Revelation 3:18]]
+---
+
+"And he drank of the wine, and was drunken; and he was uncovered within his tent."

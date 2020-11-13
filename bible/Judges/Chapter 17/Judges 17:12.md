@@ -1,6 +1,0 @@
-[[Numbers 16:5]]
-[[Numbers 16:8]]
-[[Judges 18:4]]
-[[Judges 18:30]]
-[[1 Kings 12:31]]
-[[1 Kings 13:33]]

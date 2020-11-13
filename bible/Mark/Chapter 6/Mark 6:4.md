@@ -1,5 +1,0 @@
-[[Jeremiah 11:21]]
-[[Jeremiah 12:6]]
-[[Matthew 13:57]]
-[[Luke 4:24]]
-[[John 4:44]]

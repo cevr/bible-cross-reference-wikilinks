@@ -1,0 +1,12 @@
+---
+Links:
+[[Exodus 10:21]]
+[[Psalms 18:11]]
+[[Psalms 18:12]]
+[[Isaiah 8:22]]
+[[Isaiah 13:10]]
+[[Matthew 27:45]]
+[[Revelation 6:12]]
+---
+
+"I clothe the heavens with blackness, and I make sackcloth their covering."

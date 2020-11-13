@@ -1,5 +1,0 @@
-[[Matthew 8:29]]
-[[Matthew 26:53]]
-[[Mark 5:9]]
-[[Mark 16:9]]
-[[Luke 8:2]]

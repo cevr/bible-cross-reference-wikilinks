@@ -1,5 +1,0 @@
-[[Numbers 20:24]]
-[[Numbers 20:28]]
-[[Deuteronomy 1:3]]
-[[Deuteronomy 10:6]]
-[[Deuteronomy 32:50]]

@@ -1,0 +1,18 @@
+---
+Links:
+[[Exodus 9:29]]
+[[Exodus 9:33]]
+[[Exodus 33:10]]
+[[1 Kings 8:54]]
+[[2 Kings 11:14]]
+[[2 Kings 23:3]]
+[[2 Chronicles 6:12]]
+[[Ezra 9:5]]
+[[Job 11:13]]
+[[Psalms 28:2]]
+[[Psalms 63:4]]
+[[Isaiah 1:15]]
+[[1 Timothy 2:8]]
+---
+
+"And Solomon stood before the altar of the LORD in the presence of all the congregation of Israel, and spread forth his hands toward heaven:"

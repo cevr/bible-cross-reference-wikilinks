@@ -1,0 +1,16 @@
+---
+Links:
+[[Genesis 26:12]]
+[[Genesis 41:47]]
+[[Exodus 16:5]]
+[[Exodus 16:29]]
+[[Leviticus 25:4]]
+[[Leviticus 25:8]]
+[[Deuteronomy 28:3]]
+[[Deuteronomy 28:8]]
+[[Psalms 133:3]]
+[[Proverbs 10:22]]
+[[2 Corinthians 9:10]]
+---
+
+"Then I will command my blessing upon you in the sixth year, and it shall bring forth fruit for three years."

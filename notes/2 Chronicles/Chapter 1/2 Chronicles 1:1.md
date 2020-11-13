@@ -1,0 +1,21 @@
+---
+Links:
+[[Genesis 21:22]]
+[[Genesis 39:2]]
+[[Genesis 39:3]]
+[[Genesis 39:21]]
+[[Exodus 3:12]]
+[[Joshua 3:7]]
+[[1 Kings 2:12]]
+[[1 Kings 2:46]]
+[[1 Chronicles 17:8]]
+[[1 Chronicles 22:11]]
+[[1 Chronicles 22:16]]
+[[1 Chronicles 29:23]]
+[[1 Chronicles 29:25]]
+[[2 Chronicles 32:23]]
+[[Matthew 28:20]]
+[[Philippians 2:9]]
+---
+
+"And Solomon the son of David was strengthened in his kingdom, and the LORD his God was with him, and magnified him exceedingly."

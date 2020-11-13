@@ -1,8 +1,0 @@
-[[Psalms 16:9]]
-[[Psalms 66:16]]
-[[Psalms 71:17]]
-[[Malachi 3:16]]
-[[Luke 2:38]]
-[[Luke 8:39]]
-[[John 1:41]]
-[[John 4:28]]

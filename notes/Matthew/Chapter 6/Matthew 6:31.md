@@ -1,0 +1,14 @@
+---
+Links:
+[[Leviticus 25:20]]
+[[2 Chronicles 25:9]]
+[[Psalms 37:3]]
+[[Psalms 55:22]]
+[[Psalms 78:18]]
+[[Matthew 4:4]]
+[[Matthew 15:33]]
+[[Luke 12:29]]
+[[1 Peter 5:7]]
+---
+
+"Therefore take no thought, saying, What shall we eat? or, What shall we drink? or, Wherewithal shall we be clothed?"

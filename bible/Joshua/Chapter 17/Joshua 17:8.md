@@ -1,5 +1,0 @@
-[[Joshua 12:17]]
-[[Joshua 15:34]]
-[[Joshua 15:53]]
-[[Joshua 16:8]]
-[[Ezekiel 48:5]]

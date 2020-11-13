@@ -1,0 +1,25 @@
+---
+Links:
+[[Psalms 45:13]]
+[[Psalms 87:3]]
+[[Songs of Solomon 4:7]]
+[[Isaiah 60:15]]
+[[Isaiah 62:3]]
+[[Jeremiah 33:9]]
+[[2 Corinthians 4:14]]
+[[2 Corinthians 11:2]]
+[[Ephesians 1:4]]
+[[Colossians 1:22]]
+[[Colossians 1:28]]
+[[1 Thessalonians 5:23]]
+[[Hebrews 9:14]]
+[[Hebrews 12:22]]
+[[1 Peter 1:19]]
+[[2 Peter 3:14]]
+[[Jude 1:21]]
+[[Jude 1:24]]
+[[Revelation 7:9]]
+[[Revelation 21:10]]
+---
+
+"That he might present it to himself a glorious church, not having spot, or wrinkle, or any such thing; but that it should be holy and without blemish."

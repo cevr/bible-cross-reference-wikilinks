@@ -1,0 +1,29 @@
+---
+Links:
+[[1 Samuel 19:11]]
+[[Esther 5:14]]
+[[Esther 6:4]]
+[[Job 15:16]]
+[[Psalms 38:12]]
+[[Psalms 52:3]]
+[[Psalms 97:10]]
+[[Proverbs 4:16]]
+[[Proverbs 24:2]]
+[[Proverbs 24:23]]
+[[Isaiah 65:2]]
+[[Jeremiah 4:22]]
+[[Jeremiah 6:16]]
+[[Jeremiah 8:6]]
+[[Jeremiah 9:2]]
+[[Hosea 7:6]]
+[[Amos 5:15]]
+[[Micah 2:1]]
+[[Micah 6:8]]
+[[Matthew 27:1]]
+[[Acts 23:12]]
+[[Romans 1:32]]
+[[Romans 12:9]]
+[[Revelation 2:2]]
+---
+
+"He deviseth mischief upon his bed; he setteth himself in a way that is not good; he abhorreth not evil."

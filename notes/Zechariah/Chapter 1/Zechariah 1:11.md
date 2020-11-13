@@ -1,0 +1,21 @@
+---
+Links:
+[[Job 1:7]]
+[[Psalms 68:17]]
+[[Psalms 103:20]]
+[[Isaiah 14:7]]
+[[Daniel 10:20]]
+[[Zechariah 1:8]]
+[[Zechariah 1:10]]
+[[Zechariah 1:15]]
+[[Zechariah 6:7]]
+[[Matthew 13:41]]
+[[Matthew 13:49]]
+[[Matthew 24:30]]
+[[Matthew 25:31]]
+[[1 Thessalonians 5:3]]
+[[2 Thessalonians 1:7]]
+[[Revelation 1:1]]
+---
+
+"And they answered the angel of the LORD that stood among the myrtle trees, and said, We have walked to and fro through the earth, and, behold, all the earth sitteth still, and is at rest."

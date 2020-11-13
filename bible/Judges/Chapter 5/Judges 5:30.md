@@ -1,7 +1,0 @@
-[[Genesis 37:3]]
-[[Exodus 15:9]]
-[[Exodus 27:16]]
-[[2 Samuel 13:18]]
-[[Job 20:5]]
-[[Psalms 45:14]]
-[[Isaiah 9:2]]

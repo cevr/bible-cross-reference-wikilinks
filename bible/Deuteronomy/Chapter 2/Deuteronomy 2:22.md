@@ -1,5 +1,0 @@
-[[Genesis 14:6]]
-[[Genesis 36:8]]
-[[Genesis 36:20]]
-[[Deuteronomy 2:12]]
-[[1 Chronicles 1:38]]

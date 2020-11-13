@@ -1,7 +1,0 @@
-[[Exodus 7:17]]
-[[1 Samuel 4:8]]
-[[1 Kings 17:1]]
-[[Psalms 105:26]]
-[[Ezekiel 7:1]]
-[[Luke 4:25]]
-[[James 5:16]]

@@ -1,5 +1,0 @@
-[[Joshua 7:19]]
-[[Job 31:33]]
-[[Proverbs 23:5]]
-[[Proverbs 28:13]]
-[[1 John 1:9]]

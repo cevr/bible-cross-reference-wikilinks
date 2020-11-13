@@ -1,5 +1,0 @@
-[[Proverbs 24:21]]
-[[Proverbs 24:22]]
-[[Proverbs 28:1]]
-[[Isaiah 21:4]]
-[[Daniel 5:4]]

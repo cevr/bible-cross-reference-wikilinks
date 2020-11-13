@@ -1,0 +1,19 @@
+---
+Links:
+[[Job 10:8]]
+[[Job 11:11]]
+[[Job 34:21]]
+[[Psalms 44:21]]
+[[Proverbs 22:2]]
+[[Proverbs 24:12]]
+[[Proverbs 27:19]]
+[[Ecclesiastes 7:29]]
+[[Isaiah 64:8]]
+[[Jeremiah 16:17]]
+[[Jeremiah 32:19]]
+[[Hosea 7:2]]
+[[Acts 17:26]]
+[[1 Corinthians 4:5]]
+---
+
+"He fashioneth their hearts alike; he considereth all their works."

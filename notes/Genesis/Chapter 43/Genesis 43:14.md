@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 17:1]]
+[[Genesis 22:14]]
+[[Genesis 28:3]]
+[[Genesis 32:11]]
+[[Genesis 35:11]]
+[[Genesis 39:21]]
+[[Genesis 42:24]]
+[[Genesis 42:36]]
+[[Genesis 44:12]]
+[[Ezra 7:27]]
+[[Nehemiah 1:11]]
+[[Esther 4:16]]
+[[Psalms 37:5]]
+[[Psalms 85:7]]
+[[Psalms 100:5]]
+[[Psalms 119:41]]
+[[Proverbs 1:1]]
+[[Proverbs 16:7]]
+[[Proverbs 21:1]]
+[[Isaiah 49:13]]
+[[Luke 1:50]]
+[[John 19:22]]
+[[Acts 7:10]]
+[[Acts 21:14]]
+[[1 Timothy 1:2]]
+[[1 Timothy 1:16]]
+[[Titus 1:4]]
+[[2 John 1:3]]
+---
+
+"And God Almighty give you mercy before the man, that he may send away your other brother, and Benjamin. If I be bereaved of my children, I am bereaved."

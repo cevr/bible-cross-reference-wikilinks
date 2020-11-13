@@ -1,7 +1,0 @@
-[[Psalms 10:11]]
-[[Psalms 35:22]]
-[[Psalms 74:10]]
-[[Psalms 74:18]]
-[[Jeremiah 18:17]]
-[[Ezekiel 24:21]]
-[[Ezekiel 39:23]]

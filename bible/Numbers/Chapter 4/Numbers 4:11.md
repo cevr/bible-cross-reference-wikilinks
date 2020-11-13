@@ -1,5 +1,0 @@
-[[Exodus 30:1]]
-[[Exodus 37:25]]
-[[Exodus 39:38]]
-[[Exodus 40:5]]
-[[Exodus 40:26]]

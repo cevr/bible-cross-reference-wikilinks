@@ -1,8 +1,0 @@
-[[Joshua 9:17]]
-[[Joshua 15:29]]
-[[Joshua 15:60]]
-[[Joshua 18:15]]
-[[Judges 18:12]]
-[[1 Samuel 6:21]]
-[[2 Samuel 6:2]]
-[[1 Chronicles 13:6]]

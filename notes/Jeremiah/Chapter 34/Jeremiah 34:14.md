@@ -1,0 +1,33 @@
+---
+Links:
+[[Exodus 21:1]]
+[[Exodus 21:2]]
+[[Exodus 23:10]]
+[[Leviticus 25:10]]
+[[Deuteronomy 15:1]]
+[[Deuteronomy 15:9]]
+[[Deuteronomy 15:12]]
+[[1 Samuel 8:7]]
+[[1 Kings 9:22]]
+[[1 Kings 21:25]]
+[[2 Kings 17:13]]
+[[2 Chronicles 28:10]]
+[[2 Chronicles 36:16]]
+[[Nehemiah 9:30]]
+[[Isaiah 50:1]]
+[[Isaiah 58:6]]
+[[Jeremiah 7:25]]
+[[Jeremiah 11:7]]
+[[Jeremiah 11:8]]
+[[Jeremiah 32:30]]
+[[Jeremiah 34:8]]
+[[Ezekiel 20:4]]
+[[Ezekiel 20:8]]
+[[Amos 2:6]]
+[[Amos 8:6]]
+[[Zechariah 7:11]]
+[[Romans 7:14]]
+[[Romans 7:24]]
+---
+
+"At the end of seven years let ye go every man his brother an Hebrew, which hath been sold unto thee; and when he hath served thee six years, thou shalt let him go free from thee: but your fathers hearkened not unto me, neither inclined their ear."

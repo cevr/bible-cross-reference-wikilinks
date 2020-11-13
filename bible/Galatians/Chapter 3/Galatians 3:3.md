@@ -1,6 +1,0 @@
-[[Galatians 4:7]]
-[[Galatians 5:4]]
-[[Galatians 6:12]]
-[[Hebrews 7:16]]
-[[Hebrews 9:2]]
-[[Hebrews 9:9]]

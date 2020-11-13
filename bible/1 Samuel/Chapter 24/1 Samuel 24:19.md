@@ -1,5 +1,0 @@
-[[Judges 17:2]]
-[[1 Samuel 23:21]]
-[[1 Samuel 26:25]]
-[[Psalms 18:20]]
-[[Proverbs 25:21]]

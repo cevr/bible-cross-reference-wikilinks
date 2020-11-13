@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 49:18]]
+[[Psalms 27:14]]
+[[Psalms 37:7]]
+[[Psalms 62:1]]
+[[Psalms 62:5]]
+[[Psalms 130:5]]
+[[Isaiah 25:9]]
+[[Isaiah 26:8]]
+[[Lamentations 3:25]]
+[[Luke 8:15]]
+[[Luke 21:19]]
+[[Romans 2:7]]
+[[Romans 8:23]]
+[[Romans 12:12]]
+[[Colossians 1:11]]
+[[1 Thessalonians 1:3]]
+[[2 Thessalonians 3:5]]
+[[Hebrews 6:12]]
+[[Hebrews 6:15]]
+[[Hebrews 10:36]]
+[[Hebrews 12:1]]
+[[James 1:3]]
+[[James 5:7]]
+[[Revelation 1:9]]
+[[Revelation 13:10]]
+[[Revelation 14:12]]
+---
+
+"But if we hope for that we see not, then do we with patience wait for it."

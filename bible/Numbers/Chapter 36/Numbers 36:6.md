@@ -1,5 +1,0 @@
-[[Genesis 24:3]]
-[[Genesis 24:57]]
-[[Numbers 36:12]]
-[[1 Chronicles 23:22]]
-[[2 Corinthians 6:14]]

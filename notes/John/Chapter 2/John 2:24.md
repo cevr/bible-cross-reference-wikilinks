@@ -1,0 +1,23 @@
+---
+Links:
+[[1 Samuel 16:7]]
+[[1 Chronicles 28:9]]
+[[1 Chronicles 29:17]]
+[[Jeremiah 17:9]]
+[[Matthew 9:4]]
+[[Matthew 10:16]]
+[[Mark 2:8]]
+[[John 1:42]]
+[[John 1:46]]
+[[John 4:16]]
+[[John 5:42]]
+[[John 6:15]]
+[[John 6:64]]
+[[John 16:30]]
+[[John 21:17]]
+[[Acts 1:24]]
+[[Hebrews 4:13]]
+[[Revelation 2:23]]
+---
+
+"But Jesus did not commit himself unto them, because he knew all men,"

@@ -1,5 +1,0 @@
-[[Job 13:4]]
-[[Psalms 108:12]]
-[[Jeremiah 8:22]]
-[[Jeremiah 30:12]]
-[[Jeremiah 51:8]]

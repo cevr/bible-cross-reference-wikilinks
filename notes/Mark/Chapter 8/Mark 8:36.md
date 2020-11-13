@@ -1,0 +1,20 @@
+---
+Links:
+[[Job 2:4]]
+[[Job 22:2]]
+[[Psalms 49:17]]
+[[Psalms 73:18]]
+[[Malachi 3:14]]
+[[Matthew 4:8]]
+[[Matthew 16:26]]
+[[Luke 9:25]]
+[[Luke 12:19]]
+[[Luke 16:19]]
+[[Romans 6:21]]
+[[Philippians 3:7]]
+[[Hebrews 11:24]]
+[[James 1:9]]
+[[Revelation 18:7]]
+---
+
+"For what shall it profit a man, if he shall gain the whole world, and lose his own soul?"

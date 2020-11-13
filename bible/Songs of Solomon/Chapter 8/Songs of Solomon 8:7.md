@@ -1,7 +1,0 @@
-[[Genesis 39:19]]
-[[Proverbs 6:31]]
-[[Proverbs 6:35]]
-[[Isaiah 43:2]]
-[[Matthew 7:24]]
-[[Romans 8:28]]
-[[Romans 13:8]]

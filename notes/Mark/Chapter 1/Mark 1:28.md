@@ -1,0 +1,12 @@
+---
+Links:
+[[Micah 5:4]]
+[[Matthew 4:24]]
+[[Matthew 9:31]]
+[[Mark 1:45]]
+[[Luke 4:17]]
+[[Luke 4:37]]
+[[Luke 7:17]]
+---
+
+"And immediately his fame spread abroad throughout all the region round about Galilee."

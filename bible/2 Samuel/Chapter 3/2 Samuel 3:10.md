@@ -1,7 +1,0 @@
-[[Judges 20:1]]
-[[1 Samuel 3:20]]
-[[1 Samuel 15:28]]
-[[1 Samuel 28:17]]
-[[2 Samuel 17:11]]
-[[2 Samuel 24:2]]
-[[1 Kings 4:25]]

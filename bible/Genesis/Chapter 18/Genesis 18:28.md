@@ -1,5 +1,0 @@
-[[Genesis 18:26]]
-[[Genesis 18:29]]
-[[Numbers 14:17]]
-[[1 Kings 20:32]]
-[[Job 23:3]]

@@ -1,0 +1,24 @@
+---
+Links:
+[[Judges 9:24]]
+[[Judges 9:57]]
+[[2 Samuel 3:29]]
+[[1 Kings 2:32]]
+[[Esther 9:25]]
+[[Psalms 9:2]]
+[[Psalms 35:28]]
+[[Psalms 51:14]]
+[[Psalms 71:15]]
+[[Psalms 92:1]]
+[[Psalms 92:8]]
+[[Psalms 98:2]]
+[[Psalms 111:3]]
+[[Psalms 140:10]]
+[[Psalms 145:7]]
+[[Daniel 4:17]]
+[[Daniel 4:25]]
+[[Daniel 4:34]]
+[[Acts 7:48]]
+---
+
+"I will praise the LORD according to his righteousness: and will sing praise to the name of the LORD most high."

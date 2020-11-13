@@ -1,0 +1,17 @@
+---
+Links:
+[[Leviticus 27:30]]
+[[Numbers 18:8]]
+[[Numbers 18:26]]
+[[Deuteronomy 18:8]]
+[[2 Chronicles 31:16]]
+[[Nehemiah 13:10]]
+[[Nehemiah 13:12]]
+[[Malachi 2:7]]
+[[Malachi 3:8]]
+[[Malachi 3:10]]
+[[1 Corinthians 9:9]]
+[[Galatians 6:6]]
+---
+
+"Moreover he commanded the people that dwelt in Jerusalem to give the portion of the priests and the Levites, that they might be encouraged in the law of the LORD."

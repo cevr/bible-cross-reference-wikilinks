@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 16:13]]
+[[Genesis 28:19]]
+[[Genesis 35:9]]
+[[Exodus 24:10]]
+[[Exodus 33:14]]
+[[Exodus 33:19]]
+[[Numbers 12:8]]
+[[Deuteronomy 5:24]]
+[[Deuteronomy 34:10]]
+[[Judges 6:22]]
+[[Judges 8:8]]
+[[Judges 8:17]]
+[[Judges 13:17]]
+[[Judges 13:18]]
+[[Judges 13:21]]
+[[1 Kings 12:25]]
+[[Isaiah 6:5]]
+[[Isaiah 9:5]]
+[[John 1:18]]
+[[2 Corinthians 3:18]]
+[[2 Corinthians 4:6]]
+[[Galatians 1:6]]
+[[Ephesians 1:17]]
+[[Colossians 1:15]]
+[[2 Timothy 1:10]]
+[[Hebrews 11:27]]
+---
+
+"And Jacob called the name of the place Peniel: for I have seen God face to face, and my life is preserved."

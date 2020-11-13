@@ -1,0 +1,21 @@
+---
+Links:
+[[Exodus 19:5]]
+[[Exodus 33:16]]
+[[Numbers 23:9]]
+[[Deuteronomy 4:34]]
+[[Deuteronomy 7:6]]
+[[Deuteronomy 9:26]]
+[[Deuteronomy 14:2]]
+[[Deuteronomy 32:9]]
+[[Deuteronomy 33:1]]
+[[Deuteronomy 33:26]]
+[[2 Samuel 20:19]]
+[[Jeremiah 10:16]]
+[[2 Corinthians 6:14]]
+[[Ephesians 1:18]]
+[[Titus 2:14]]
+[[1 Peter 2:9]]
+---
+
+"For thou didst separate them from among all the people of the earth, to be thine inheritance, as thou spakest by the hand of Moses thy servant, when thou broughtest our fathers out of Egypt, O Lord GOD."

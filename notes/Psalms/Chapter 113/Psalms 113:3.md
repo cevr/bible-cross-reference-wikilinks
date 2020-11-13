@@ -1,0 +1,19 @@
+---
+Links:
+[[Psalms 18:3]]
+[[Psalms 48:10]]
+[[Psalms 50:1]]
+[[Psalms 72:11]]
+[[Psalms 72:17]]
+[[Psalms 86:9]]
+[[Isaiah 24:16]]
+[[Isaiah 42:10]]
+[[Isaiah 49:13]]
+[[Isaiah 59:19]]
+[[Habakkuk 2:14]]
+[[Malachi 1:11]]
+[[Romans 15:9]]
+[[Revelation 11:15]]
+---
+
+"From the rising of the sun unto the going down of the same the LORD'S name is to be praised."

@@ -1,5 +1,0 @@
-[[Leviticus 25:15]]
-[[Leviticus 25:16]]
-[[Leviticus 25:27]]
-[[Leviticus 25:51]]
-[[Leviticus 27:23]]

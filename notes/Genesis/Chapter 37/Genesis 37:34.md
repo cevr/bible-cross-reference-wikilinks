@@ -1,0 +1,32 @@
+---
+Links:
+[[Genesis 37:29]]
+[[Genesis 44:13]]
+[[Joshua 7:6]]
+[[Judges 11:35]]
+[[2 Samuel 1:11]]
+[[2 Samuel 3:31]]
+[[1 Kings 20:31]]
+[[1 Kings 21:27]]
+[[2 Kings 19:1]]
+[[1 Chronicles 7:22]]
+[[1 Chronicles 21:16]]
+[[Ezra 9:3]]
+[[Nehemiah 9:1]]
+[[Esther 4:1]]
+[[Job 1:20]]
+[[Job 2:12]]
+[[Psalms 69:11]]
+[[Isaiah 22:12]]
+[[Isaiah 32:11]]
+[[Isaiah 36:22]]
+[[Jeremiah 36:24]]
+[[Joel 2:13]]
+[[Jonah 3:5]]
+[[Matthew 11:21]]
+[[Matthew 26:65]]
+[[Acts 14:14]]
+[[Revelation 11:3]]
+---
+
+"And Jacob rent his clothes, and put sackcloth upon his loins, and mourned for his son many days."

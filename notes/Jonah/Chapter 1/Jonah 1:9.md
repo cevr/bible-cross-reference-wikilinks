@@ -1,0 +1,32 @@
+---
+Links:
+[[Genesis 1:10]]
+[[Genesis 14:13]]
+[[Genesis 24:7]]
+[[Genesis 39:14]]
+[[2 Kings 17:25]]
+[[2 Kings 17:28]]
+[[2 Kings 17:32]]
+[[Ezra 1:2]]
+[[Ezra 5:11]]
+[[Ezra 7:12]]
+[[Nehemiah 1:4]]
+[[Nehemiah 2:4]]
+[[Nehemiah 9:6]]
+[[Job 1:9]]
+[[Psalms 95:5]]
+[[Psalms 136:26]]
+[[Psalms 146:5]]
+[[Daniel 2:18]]
+[[Daniel 2:44]]
+[[Hosea 3:5]]
+[[Acts 14:15]]
+[[Acts 17:23]]
+[[Acts 27:23]]
+[[Philippians 3:5]]
+[[Revelation 11:13]]
+[[Revelation 15:4]]
+[[Revelation 16:11]]
+---
+
+"And he said unto them, I am an Hebrew; and I fear the LORD, the God of heaven, which hath made the sea and the dry land."

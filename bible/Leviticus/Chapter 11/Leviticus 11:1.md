@@ -1,8 +1,0 @@
-[[Genesis 7:2]]
-[[Genesis 8:20]]
-[[Genesis 9:3]]
-[[Leviticus 15:1]]
-[[Leviticus 20:25]]
-[[Deuteronomy 14:4]]
-[[Acts 10:14]]
-[[Hebrews 13:9]]

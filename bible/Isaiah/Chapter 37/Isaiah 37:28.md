@@ -1,5 +1,0 @@
-[[Psalms 139:1]]
-[[Proverbs 5:21]]
-[[Proverbs 15:3]]
-[[Jeremiah 23:23]]
-[[Revelation 2:13]]

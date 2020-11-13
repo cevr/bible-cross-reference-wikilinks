@@ -1,5 +1,0 @@
-[[Numbers 16:9]]
-[[Numbers 16:13]]
-[[Isaiah 7:13]]
-[[Ezekiel 16:47]]
-[[1 Corinthians 4:3]]

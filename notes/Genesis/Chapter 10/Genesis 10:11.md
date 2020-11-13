@@ -1,0 +1,21 @@
+---
+Links:
+[[Numbers 24:22]]
+[[Numbers 24:24]]
+[[2 Kings 19:36]]
+[[Ezra 4:2]]
+[[Psalms 83:8]]
+[[Isaiah 37:37]]
+[[Ezekiel 27:23]]
+[[Ezekiel 32:22]]
+[[Hosea 14:3]]
+[[Jonah 1:2]]
+[[Jonah 3:1]]
+[[Micah 5:6]]
+[[Nahum 1:1]]
+[[Nahum 2:8]]
+[[Nahum 3:7]]
+[[Zephaniah 2:13]]
+---
+
+"Out of that land went forth Asshur, and builded Nineveh, and the city Rehoboth, and Calah,"

@@ -1,6 +1,0 @@
-[[Genesis 13:9]]
-[[Genesis 20:15]]
-[[Genesis 44:21]]
-[[Esther 3:11]]
-[[Jeremiah 39:11]]
-[[Jeremiah 39:12]]

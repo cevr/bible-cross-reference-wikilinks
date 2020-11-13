@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 5:12]]
+[[Exodus 9:16]]
+[[Deuteronomy 33:26]]
+[[Job 9:4]]
+[[Psalms 59:13]]
+[[Psalms 68:33]]
+[[Psalms 78:49]]
+[[Psalms 83:13]]
+[[Psalms 148:13]]
+[[Isaiah 5:16]]
+[[Isaiah 5:24]]
+[[Isaiah 37:17]]
+[[Isaiah 37:23]]
+[[Isaiah 37:29]]
+[[Isaiah 37:36]]
+[[Isaiah 37:38]]
+[[Isaiah 47:14]]
+[[Jeremiah 10:6]]
+[[Micah 4:11]]
+[[Nahum 1:9]]
+[[Nahum 1:10]]
+[[Zechariah 2:8]]
+[[Zechariah 14:3]]
+[[Zechariah 14:8]]
+[[Malachi 4:1]]
+[[Matthew 3:12]]
+[[Acts 9:4]]
+---
+
+"And in the greatness of thine excellency thou hast overthrown them that rose up against thee: thou sentest forth thy wrath, which consumed them as stubble."

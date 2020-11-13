@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 7:21]]
+[[Joshua 22:22]]
+[[1 Chronicles 16:25]]
+[[2 Chronicles 19:7]]
+[[Nehemiah 1:5]]
+[[Nehemiah 4:14]]
+[[Nehemiah 9:32]]
+[[Job 34:19]]
+[[Job 37:22]]
+[[Psalms 99:3]]
+[[Psalms 136:2]]
+[[Psalms 136:3]]
+[[Jeremiah 20:11]]
+[[Jeremiah 32:18]]
+[[Daniel 2:47]]
+[[Daniel 11:36]]
+[[Mark 12:14]]
+[[Acts 10:34]]
+[[Romans 2:11]]
+[[Galatians 2:6]]
+[[Ephesians 6:9]]
+[[Colossians 3:25]]
+[[1 Peter 1:17]]
+[[Revelation 17:14]]
+[[Revelation 19:16]]
+---
+
+"For the LORD your God is God of gods, and Lord of lords, a great God, a mighty, and a terrible, which regardeth not persons, nor taketh reward:"

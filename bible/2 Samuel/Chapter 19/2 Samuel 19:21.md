@@ -1,7 +1,0 @@
-[[Exodus 22:28]]
-[[1 Samuel 24:6]]
-[[1 Samuel 26:9]]
-[[2 Samuel 16:5]]
-[[2 Samuel 16:7]]
-[[2 Samuel 16:13]]
-[[1 Kings 21:10]]

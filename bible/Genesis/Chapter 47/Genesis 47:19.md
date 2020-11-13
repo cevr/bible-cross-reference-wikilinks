@@ -1,8 +1,0 @@
-[[Genesis 41:36]]
-[[Nehemiah 5:2]]
-[[Job 2:4]]
-[[Lamentations 1:11]]
-[[Lamentations 5:6]]
-[[Lamentations 5:9]]
-[[Matthew 16:26]]
-[[Philippians 3:8]]

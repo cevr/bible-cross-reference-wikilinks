@@ -1,8 +1,0 @@
-[[Ruth 2:10]]
-[[Ruth 2:20]]
-[[Ruth 3:12]]
-[[Ruth 4:4]]
-[[Ruth 4:6]]
-[[1 Samuel 25:41]]
-[[Ezekiel 16:8]]
-[[Luke 14:11]]

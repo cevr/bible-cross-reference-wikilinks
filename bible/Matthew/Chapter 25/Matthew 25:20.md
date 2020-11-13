@@ -1,6 +1,0 @@
-[[Luke 19:16]]
-[[Acts 20:24]]
-[[1 Corinthians 15:10]]
-[[Colossians 1:29]]
-[[2 Timothy 4:1]]
-[[James 2:18]]

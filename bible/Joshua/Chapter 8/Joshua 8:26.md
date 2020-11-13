@@ -1,6 +1,0 @@
-[[Exodus 17:11]]
-[[Exodus 17:12]]
-[[Exodus 17:13]]
-[[Deuteronomy 2:34]]
-[[Joshua 8:18]]
-[[Joshua 9:3]]

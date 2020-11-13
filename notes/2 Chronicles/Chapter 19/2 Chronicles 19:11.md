@@ -1,0 +1,33 @@
+---
+Links:
+[[Joshua 1:6]]
+[[Joshua 1:9]]
+[[1 Chronicles 6:11]]
+[[1 Chronicles 22:11]]
+[[1 Chronicles 22:16]]
+[[1 Chronicles 22:19]]
+[[1 Chronicles 26:30]]
+[[1 Chronicles 26:32]]
+[[1 Chronicles 28:20]]
+[[2 Chronicles 15:2]]
+[[2 Chronicles 15:7]]
+[[2 Chronicles 19:6]]
+[[2 Chronicles 19:8]]
+[[Ezra 7:5]]
+[[Psalms 18:25]]
+[[Psalms 37:23]]
+[[Psalms 112:5]]
+[[Proverbs 2:20]]
+[[Ecclesiastes 2:26]]
+[[Jeremiah 6:16]]
+[[Malachi 2:7]]
+[[Luke 23:50]]
+[[John 14:23]]
+[[Acts 11:24]]
+[[Romans 2:4]]
+[[1 Corinthians 16:13]]
+[[Philippians 4:8]]
+[[2 Timothy 2:1]]
+---
+
+"And, behold, Amariah the chief priest is over you in all matters of the LORD; and Zebadiah the son of Ishmael, the ruler of the house of Judah, for all the king's matters: also the Levites shall be officers before you. Deal courageously, and the LORD shall be with the good."

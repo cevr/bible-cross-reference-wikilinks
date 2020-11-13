@@ -1,5 +1,0 @@
-[[Leviticus 11:24]]
-[[Leviticus 11:25]]
-[[Leviticus 11:39]]
-[[Leviticus 22:5]]
-[[Numbers 19:22]]

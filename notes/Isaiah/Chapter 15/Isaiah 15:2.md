@@ -1,0 +1,32 @@
+---
+Links:
+[[Leviticus 13:40]]
+[[Leviticus 19:27]]
+[[Leviticus 21:5]]
+[[Numbers 21:30]]
+[[Numbers 32:3]]
+[[Numbers 32:38]]
+[[Deuteronomy 14:1]]
+[[Deuteronomy 34:1]]
+[[Joshua 13:16]]
+[[1 Chronicles 19:4]]
+[[Job 1:20]]
+[[Isaiah 3:24]]
+[[Isaiah 14:31]]
+[[Isaiah 15:3]]
+[[Isaiah 16:7]]
+[[Isaiah 16:12]]
+[[Isaiah 22:12]]
+[[Jeremiah 7:29]]
+[[Jeremiah 47:5]]
+[[Jeremiah 48:1]]
+[[Jeremiah 48:18]]
+[[Jeremiah 48:22]]
+[[Jeremiah 48:31]]
+[[Jeremiah 48:37]]
+[[Jeremiah 49:3]]
+[[Ezekiel 7:18]]
+[[Amos 8:10]]
+---
+
+"He is gone up to Bajith, and to Dibon, the high places, to weep: Moab shall howl over Nebo, and over Medeba: on all their heads shall be baldness, and every beard cut off."

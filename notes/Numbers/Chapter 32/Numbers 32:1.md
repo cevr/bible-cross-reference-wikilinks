@@ -1,0 +1,32 @@
+---
+Links:
+[[Genesis 13:2]]
+[[Genesis 13:5]]
+[[Genesis 13:10]]
+[[Genesis 29:32]]
+[[Genesis 30:10]]
+[[Genesis 47:4]]
+[[Exodus 12:38]]
+[[Numbers 2:10]]
+[[Numbers 21:32]]
+[[Numbers 26:5]]
+[[Numbers 26:15]]
+[[Numbers 32:3]]
+[[Numbers 32:26]]
+[[Numbers 32:35]]
+[[Deuteronomy 33:21]]
+[[Joshua 13:25]]
+[[Joshua 22:13]]
+[[Judges 5:16]]
+[[2 Samuel 24:5]]
+[[2 Samuel 24:6]]
+[[1 Chronicles 4:41]]
+[[Isaiah 16:8]]
+[[Jeremiah 8:22]]
+[[Jeremiah 48:32]]
+[[Jeremiah 50:19]]
+[[Micah 7:14]]
+[[1 John 2:16]]
+---
+
+"Now the children of Reuben and the children of Gad had a very great multitude of cattle: and when they saw the land of Jazer, and the land of Gilead, that, behold, the place was a place for cattle;"

@@ -1,7 +1,0 @@
-[[Lamentations 1:12]]
-[[Lamentations 2:13]]
-[[Ezekiel 26:4]]
-[[Ezekiel 26:17]]
-[[Ezekiel 27:2]]
-[[Ezekiel 27:26]]
-[[Revelation 18:18]]

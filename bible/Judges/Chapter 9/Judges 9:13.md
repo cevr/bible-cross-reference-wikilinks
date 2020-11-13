@@ -1,6 +1,0 @@
-[[Numbers 15:5]]
-[[Numbers 15:7]]
-[[Numbers 15:10]]
-[[Psalms 104:15]]
-[[Proverbs 31:6]]
-[[Ecclesiastes 10:19]]

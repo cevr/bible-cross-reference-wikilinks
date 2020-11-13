@@ -1,7 +1,0 @@
-[[Genesis 3:13]]
-[[Joshua 7:25]]
-[[2 Samuel 24:3]]
-[[Job 27:22]]
-[[Daniel 5:6]]
-[[Jonah 1:3]]
-[[John 19:8]]

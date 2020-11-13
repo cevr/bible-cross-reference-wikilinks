@@ -1,5 +1,0 @@
-[[Numbers 31:6]]
-[[Joshua 6:4]]
-[[1 Chronicles 15:24]]
-[[1 Chronicles 16:6]]
-[[2 Chronicles 13:12]]

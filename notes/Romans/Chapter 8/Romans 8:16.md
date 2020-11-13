@@ -1,0 +1,15 @@
+---
+Links:
+[[Romans 8:23]]
+[[Romans 8:26]]
+[[2 Corinthians 1:12]]
+[[2 Corinthians 1:22]]
+[[2 Corinthians 5:5]]
+[[Ephesians 1:13]]
+[[Ephesians 4:30]]
+[[1 John 3:19]]
+[[1 John 4:13]]
+[[1 John 5:10]]
+---
+
+"The Spirit itself beareth witness with our spirit, that we are the children of God:"

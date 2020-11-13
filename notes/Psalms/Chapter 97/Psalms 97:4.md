@@ -1,0 +1,19 @@
+---
+Links:
+[[Exodus 19:16]]
+[[Job 9:6]]
+[[Job 37:3]]
+[[Psalms 77:18]]
+[[Psalms 77:19]]
+[[Psalms 96:9]]
+[[Psalms 104:32]]
+[[Psalms 114:7]]
+[[Psalms 144:5]]
+[[Jeremiah 10:10]]
+[[Matthew 27:50]]
+[[Matthew 28:2]]
+[[Revelation 11:19]]
+[[Revelation 19:11]]
+---
+
+"His lightnings enlightened the world: the earth saw, and trembled."

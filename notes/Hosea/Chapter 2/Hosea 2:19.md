@@ -1,0 +1,30 @@
+---
+Links:
+[[Psalms 85:10]]
+[[Isaiah 1:27]]
+[[Isaiah 45:23]]
+[[Isaiah 54:5]]
+[[Isaiah 54:8]]
+[[Isaiah 54:14]]
+[[Isaiah 62:3]]
+[[Jeremiah 3:14]]
+[[Jeremiah 4:2]]
+[[Jeremiah 31:31]]
+[[Jeremiah 32:38]]
+[[Ezekiel 37:25]]
+[[Ezekiel 39:29]]
+[[Hosea 14:4]]
+[[Joel 3:20]]
+[[Zechariah 13:2]]
+[[John 3:29]]
+[[Romans 3:25]]
+[[Romans 7:4]]
+[[2 Corinthians 11:2]]
+[[Ephesians 1:7]]
+[[Ephesians 5:23]]
+[[Revelation 19:7]]
+[[Revelation 21:2]]
+[[Revelation 21:9]]
+---
+
+"And I will betroth thee unto me for ever; yea, I will betroth thee unto me in righteousness, and in judgment, and in lovingkindness, and in mercies."

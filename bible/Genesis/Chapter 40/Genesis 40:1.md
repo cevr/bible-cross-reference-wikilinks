@@ -1,6 +1,0 @@
-[[Genesis 39:20]]
-[[Genesis 40:13]]
-[[Genesis 40:16]]
-[[Genesis 41:9]]
-[[Nehemiah 1:11]]
-[[Esther 6:1]]

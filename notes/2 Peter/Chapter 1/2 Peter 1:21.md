@@ -1,0 +1,31 @@
+---
+Links:
+[[Numbers 16:28]]
+[[Deuteronomy 33:1]]
+[[Joshua 14:6]]
+[[2 Samuel 23:2]]
+[[1 Kings 13:1]]
+[[1 Kings 17:18]]
+[[1 Kings 17:24]]
+[[2 Kings 4:7]]
+[[2 Kings 4:9]]
+[[2 Kings 4:22]]
+[[2 Kings 6:10]]
+[[2 Kings 6:15]]
+[[1 Chronicles 23:14]]
+[[2 Chronicles 8:14]]
+[[Micah 3:7]]
+[[Mark 12:36]]
+[[Luke 1:70]]
+[[Acts 1:16]]
+[[Acts 3:18]]
+[[Acts 28:25]]
+[[2 Timothy 3:15]]
+[[Hebrews 3:7]]
+[[Hebrews 9:8]]
+[[Hebrews 10:15]]
+[[1 Peter 1:11]]
+[[Revelation 19:10]]
+---
+
+"For the prophecy came not in old time by the will of man: but holy men of God spake as they were moved by the Holy Ghost."

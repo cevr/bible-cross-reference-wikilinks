@@ -1,6 +1,0 @@
-[[2 Kings 24:5]]
-[[1 Chronicles 3:16]]
-[[2 Chronicles 25:26]]
-[[Jeremiah 22:24]]
-[[Jeremiah 22:28]]
-[[Matthew 1:11]]

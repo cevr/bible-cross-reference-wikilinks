@@ -1,5 +1,0 @@
-[[Joshua 11:23]]
-[[Joshua 14:8]]
-[[1 Chronicles 6:41]]
-[[2 Chronicles 15:7]]
-[[1 Corinthians 15:58]]

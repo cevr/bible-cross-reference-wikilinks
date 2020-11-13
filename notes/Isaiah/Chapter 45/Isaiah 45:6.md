@@ -1,0 +1,16 @@
+---
+Links:
+[[1 Samuel 17:46]]
+[[Psalms 46:10]]
+[[Psalms 83:18]]
+[[Psalms 102:15]]
+[[Isaiah 37:20]]
+[[Isaiah 45:5]]
+[[Isaiah 59:19]]
+[[Ezekiel 38:23]]
+[[Ezekiel 39:21]]
+[[Joel 2:27]]
+[[Malachi 1:11]]
+---
+
+"That they may know from the rising of the sun, and from the west, that there is none beside me. I am the LORD, and there is none else."

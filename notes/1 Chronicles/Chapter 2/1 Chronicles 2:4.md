@@ -1,0 +1,20 @@
+---
+Links:
+[[Genesis 38:11]]
+[[Genesis 38:13]]
+[[Genesis 38:29]]
+[[Genesis 38:30]]
+[[Numbers 26:13]]
+[[Numbers 26:20]]
+[[Ruth 4:12]]
+[[Ruth 4:18]]
+[[1 Chronicles 4:1]]
+[[1 Chronicles 9:4]]
+[[1 Chronicles 9:6]]
+[[Nehemiah 11:4]]
+[[Nehemiah 11:24]]
+[[Matthew 1:3]]
+[[Luke 3:33]]
+---
+
+"And Tamar his daughter in law bare him Pharez and Zerah. All the sons of Judah were five."

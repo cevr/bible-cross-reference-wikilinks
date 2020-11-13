@@ -1,5 +1,0 @@
-[[Genesis 49:7]]
-[[Exodus 16:18]]
-[[Numbers 26:54]]
-[[Ezekiel 48:7]]
-[[2 Corinthians 8:14]]

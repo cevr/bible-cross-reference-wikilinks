@@ -1,0 +1,16 @@
+---
+Links:
+[[1 Corinthians 1:17]]
+[[1 Corinthians 1:21]]
+[[1 Corinthians 2:1]]
+[[1 Corinthians 2:13]]
+[[2 Corinthians 4:2]]
+[[2 Corinthians 5:11]]
+[[2 Corinthians 7:2]]
+[[2 Corinthians 10:10]]
+[[2 Corinthians 12:12]]
+[[Ephesians 3:4]]
+[[2 Peter 3:15]]
+---
+
+"But though I be rude in speech, yet not in knowledge; but we have been throughly made manifest among you in all things."

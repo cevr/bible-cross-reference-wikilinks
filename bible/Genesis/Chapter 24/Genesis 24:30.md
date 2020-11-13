@@ -1,5 +1,0 @@
-[[Genesis 24:22]]
-[[Judges 17:2]]
-[[Isaiah 3:19]]
-[[Jeremiah 2:32]]
-[[Ezekiel 23:42]]

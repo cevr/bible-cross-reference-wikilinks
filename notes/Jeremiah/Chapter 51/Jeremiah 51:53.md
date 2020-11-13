@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 11:4]]
+[[Psalms 139:8]]
+[[Isaiah 10:6]]
+[[Isaiah 13:2]]
+[[Isaiah 13:17]]
+[[Isaiah 14:12]]
+[[Isaiah 41:25]]
+[[Isaiah 45:1]]
+[[Isaiah 47:5]]
+[[Isaiah 47:7]]
+[[Jeremiah 49:16]]
+[[Jeremiah 50:9]]
+[[Jeremiah 50:21]]
+[[Jeremiah 50:25]]
+[[Jeremiah 50:31]]
+[[Jeremiah 50:45]]
+[[Jeremiah 51:1]]
+[[Jeremiah 51:3]]
+[[Jeremiah 51:4]]
+[[Jeremiah 51:11]]
+[[Jeremiah 51:25]]
+[[Jeremiah 51:48]]
+[[Jeremiah 51:58]]
+[[Ezekiel 31:9]]
+[[Daniel 4:30]]
+[[Amos 9:4]]
+[[Obadiah 1:3]]
+[[Habakkuk 2:9]]
+---
+
+"Though Babylon should mount up to heaven, and though she should fortify the height of her strength, yet from me shall spoilers come unto her, saith the LORD."

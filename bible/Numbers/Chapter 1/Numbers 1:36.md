@@ -1,7 +1,0 @@
-[[Genesis 35:16]]
-[[Genesis 44:20]]
-[[Genesis 46:21]]
-[[Genesis 49:27]]
-[[Numbers 26:38]]
-[[2 Chronicles 17:17]]
-[[Revelation 7:8]]

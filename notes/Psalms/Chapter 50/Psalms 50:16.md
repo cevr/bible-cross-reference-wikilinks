@@ -1,0 +1,25 @@
+---
+Links:
+[[Psalms 25:14]]
+[[Psalms 78:36]]
+[[Proverbs 26:7]]
+[[Isaiah 1:11]]
+[[Isaiah 29:13]]
+[[Isaiah 48:1]]
+[[Isaiah 48:22]]
+[[Isaiah 55:6]]
+[[Isaiah 58:1]]
+[[Jeremiah 7:4]]
+[[Ezekiel 18:27]]
+[[Ezekiel 20:37]]
+[[Matthew 7:3]]
+[[Matthew 7:22]]
+[[John 4:24]]
+[[Acts 19:13]]
+[[Romans 2:17]]
+[[1 Corinthians 9:27]]
+[[Hebrews 8:9]]
+[[2 Peter 2:15]]
+---
+
+"But unto the wicked God saith, What hast thou to do to declare my statutes, or that thou shouldest take my covenant in thy mouth?"

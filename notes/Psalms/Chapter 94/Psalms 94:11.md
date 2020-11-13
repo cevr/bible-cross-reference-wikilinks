@@ -1,0 +1,14 @@
+---
+Links:
+[[Job 11:11]]
+[[Psalms 44:22]]
+[[Psalms 49:10]]
+[[Isaiah 66:18]]
+[[Romans 1:21]]
+[[1 Corinthians 1:19]]
+[[1 Corinthians 1:21]]
+[[1 Corinthians 1:25]]
+[[1 Corinthians 3:20]]
+---
+
+"The LORD knoweth the thoughts of man, that they are vanity."

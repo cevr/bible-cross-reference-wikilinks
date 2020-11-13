@@ -1,7 +1,0 @@
-[[Numbers 10:33]]
-[[Numbers 14:15]]
-[[Joshua 3:3]]
-[[Joshua 6:6]]
-[[Micah 2:13]]
-[[John 14:2]]
-[[Hebrews 6:20]]

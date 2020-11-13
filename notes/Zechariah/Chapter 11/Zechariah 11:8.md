@@ -1,0 +1,27 @@
+---
+Links:
+[[Leviticus 26:11]]
+[[Leviticus 26:30]]
+[[Leviticus 26:44]]
+[[Deuteronomy 32:19]]
+[[1 Kings 11:25]]
+[[Psalms 5:5]]
+[[Psalms 78:9]]
+[[Psalms 106:40]]
+[[Isaiah 49:7]]
+[[Jeremiah 12:8]]
+[[Jeremiah 14:21]]
+[[Ezekiel 14:5]]
+[[Hosea 5:7]]
+[[Hosea 9:15]]
+[[Matthew 23:34]]
+[[Matthew 24:50]]
+[[Luke 12:50]]
+[[Luke 19:14]]
+[[John 7:7]]
+[[John 15:18]]
+[[John 15:23]]
+[[Hebrews 10:38]]
+---
+
+"Three shepherds also I cut off in one month; and my soul lothed them, and their soul also abhorred me."

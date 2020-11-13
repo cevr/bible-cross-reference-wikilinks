@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 22:3]]
+[[Exodus 8:20]]
+[[1 Kings 22:3]]
+[[2 Kings 17:13]]
+[[2 Chronicles 24:19]]
+[[2 Chronicles 34:3]]
+[[2 Chronicles 34:8]]
+[[Psalms 81:13]]
+[[Isaiah 55:2]]
+[[Jeremiah 1:2]]
+[[Jeremiah 7:13]]
+[[Jeremiah 11:7]]
+[[Jeremiah 19:15]]
+[[Jeremiah 22:21]]
+[[Jeremiah 25:4]]
+[[Jeremiah 26:5]]
+[[Jeremiah 29:19]]
+[[Jeremiah 35:15]]
+[[Jeremiah 44:4]]
+[[Ezekiel 33:4]]
+[[Zechariah 1:4]]
+[[Mark 1:35]]
+[[John 8:2]]
+[[John 8:47]]
+[[2 Timothy 4:2]]
+---
+
+"From the thirteenth year of Josiah the son of Amon king of Judah, even unto this day, that is the three and twentieth year, the word of the LORD hath come unto me, and I have spoken unto you, rising early and speaking; but ye have not hearkened."

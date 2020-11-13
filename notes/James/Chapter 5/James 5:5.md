@@ -1,0 +1,32 @@
+---
+Links:
+[[1 Samuel 25:6]]
+[[1 Samuel 25:36]]
+[[Job 21:11]]
+[[Psalms 17:14]]
+[[Psalms 73:7]]
+[[Proverbs 7:14]]
+[[Proverbs 17:1]]
+[[Ecclesiastes 11:9]]
+[[Isaiah 3:16]]
+[[Isaiah 5:11]]
+[[Isaiah 22:13]]
+[[Isaiah 47:8]]
+[[Isaiah 56:12]]
+[[Jeremiah 12:3]]
+[[Jeremiah 25:34]]
+[[Ezekiel 39:17]]
+[[Amos 6:1]]
+[[Amos 6:4]]
+[[Luke 16:19]]
+[[Luke 16:25]]
+[[Romans 13:13]]
+[[1 Timothy 5:6]]
+[[2 Timothy 3:4]]
+[[2 Peter 2:13]]
+[[Jude 1:12]]
+[[Revelation 18:7]]
+[[Revelation 19:17]]
+---
+
+"Ye have lived in pleasure on the earth, and been wanton; ye have nourished your hearts, as in a day of slaughter."

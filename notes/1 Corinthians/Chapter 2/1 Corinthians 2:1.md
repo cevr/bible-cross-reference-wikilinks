@@ -1,0 +1,26 @@
+---
+Links:
+[[Exodus 4:10]]
+[[Isaiah 8:20]]
+[[Jeremiah 1:6]]
+[[Acts 18:1]]
+[[Acts 20:21]]
+[[Acts 22:18]]
+[[Romans 16:18]]
+[[1 Corinthians 1:6]]
+[[1 Corinthians 1:17]]
+[[1 Corinthians 2:4]]
+[[1 Corinthians 2:13]]
+[[2 Corinthians 10:10]]
+[[2 Corinthians 11:6]]
+[[2 Thessalonians 1:10]]
+[[1 Timothy 1:11]]
+[[2 Timothy 1:8]]
+[[1 John 4:14]]
+[[1 John 5:11]]
+[[Revelation 1:2]]
+[[Revelation 1:9]]
+[[Revelation 19:10]]
+---
+
+"And I, brethren, when I came to you, came not with excellency of speech or of wisdom, declaring unto you the testimony of God."

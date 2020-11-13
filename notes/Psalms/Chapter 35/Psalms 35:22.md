@@ -1,0 +1,19 @@
+---
+Links:
+[[Exodus 3:7]]
+[[Psalms 10:1]]
+[[Psalms 10:14]]
+[[Psalms 22:11]]
+[[Psalms 22:12]]
+[[Psalms 22:19]]
+[[Psalms 28:1]]
+[[Psalms 38:21]]
+[[Psalms 39:12]]
+[[Psalms 50:21]]
+[[Psalms 71:12]]
+[[Psalms 83:1]]
+[[Isaiah 65:6]]
+[[Acts 7:34]]
+---
+
+"This thou hast seen, O LORD: keep not silence: O Lord, be not far from me."

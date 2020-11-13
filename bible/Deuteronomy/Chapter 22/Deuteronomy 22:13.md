@@ -1,6 +1,0 @@
-[[Genesis 29:21]]
-[[Genesis 29:23]]
-[[Genesis 29:31]]
-[[Deuteronomy 24:1]]
-[[Judges 15:1]]
-[[Ephesians 5:28]]

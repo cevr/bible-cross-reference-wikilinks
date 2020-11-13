@@ -1,6 +1,0 @@
-[[Exodus 6:14]]
-[[Numbers 1:1]]
-[[Ezra 2:59]]
-[[Nehemiah 7:61]]
-[[Hebrews 7:3]]
-[[Hebrews 7:6]]

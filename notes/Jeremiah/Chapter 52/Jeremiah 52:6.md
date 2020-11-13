@@ -1,0 +1,25 @@
+---
+Links:
+[[Leviticus 26:26]]
+[[Deuteronomy 28:52]]
+[[Deuteronomy 32:24]]
+[[2 Kings 25:3]]
+[[Isaiah 3:1]]
+[[Jeremiah 15:2]]
+[[Jeremiah 19:9]]
+[[Jeremiah 21:9]]
+[[Jeremiah 25:10]]
+[[Jeremiah 37:21]]
+[[Jeremiah 38:9]]
+[[Jeremiah 39:2]]
+[[Lamentations 1:11]]
+[[Lamentations 4:4]]
+[[Lamentations 5:10]]
+[[Ezekiel 4:9]]
+[[Ezekiel 5:10]]
+[[Ezekiel 7:15]]
+[[Ezekiel 14:21]]
+[[Zechariah 8:19]]
+---
+
+"And in the fourth month, in the ninth day of the month, the famine was sore in the city, so that there was no bread for the people of the land."

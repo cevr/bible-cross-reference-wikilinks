@@ -1,0 +1,20 @@
+---
+Links:
+[[Psalms 79:10]]
+[[Psalms 141:7]]
+[[Jeremiah 8:1]]
+[[Jeremiah 14:16]]
+[[Jeremiah 15:3]]
+[[Jeremiah 16:4]]
+[[Jeremiah 25:33]]
+[[Jeremiah 34:20]]
+[[Zephaniah 1:17]]
+[[Matthew 23:35]]
+[[Romans 8:36]]
+[[Revelation 11:9]]
+[[Revelation 16:6]]
+[[Revelation 17:6]]
+[[Revelation 18:24]]
+---
+
+"Their blood have they shed like water round about Jerusalem; and there was none to bury them."

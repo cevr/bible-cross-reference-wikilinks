@@ -1,7 +1,0 @@
-[[Genesis 22:6]]
-[[Genesis 22:8]]
-[[Joshua 3:15]]
-[[Ruth 1:16]]
-[[1 Samuel 1:26]]
-[[2 Kings 2:2]]
-[[2 Kings 4:30]]

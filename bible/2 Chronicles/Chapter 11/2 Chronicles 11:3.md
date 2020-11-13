@@ -1,6 +1,0 @@
-[[Genesis 49:28]]
-[[Exodus 24:4]]
-[[2 Kings 17:34]]
-[[2 Chronicles 10:17]]
-[[Philippians 3:5]]
-[[Revelation 7:4]]

@@ -1,0 +1,30 @@
+---
+Links:
+[[Numbers 16:9]]
+[[Numbers 17:5]]
+[[1 Chronicles 28:4]]
+[[Jeremiah 1:5]]
+[[Jeremiah 17:16]]
+[[Amos 7:15]]
+[[Matthew 21:25]]
+[[Matthew 25:15]]
+[[Mark 11:30]]
+[[Mark 13:34]]
+[[Romans 1:5]]
+[[Romans 12:6]]
+[[1 Corinthians 1:1]]
+[[1 Corinthians 2:12]]
+[[1 Corinthians 3:5]]
+[[1 Corinthians 4:7]]
+[[1 Corinthians 12:11]]
+[[1 Corinthians 15:10]]
+[[Galatians 1:1]]
+[[Ephesians 1:1]]
+[[Ephesians 3:7]]
+[[1 Timothy 2:7]]
+[[Hebrews 5:4]]
+[[James 1:17]]
+[[1 Peter 4:10]]
+---
+
+"John answered and said, A man can receive nothing, except it be given him from heaven."

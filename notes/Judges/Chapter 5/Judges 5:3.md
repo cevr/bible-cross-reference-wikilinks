@@ -1,0 +1,22 @@
+---
+Links:
+[[Genesis 6:17]]
+[[Genesis 9:9]]
+[[Exodus 31:6]]
+[[Leviticus 26:28]]
+[[Deuteronomy 32:1]]
+[[Deuteronomy 32:3]]
+[[Judges 5:7]]
+[[1 Kings 18:22]]
+[[1 Kings 19:10]]
+[[1 Kings 19:14]]
+[[Ezra 7:21]]
+[[Psalms 2:10]]
+[[Psalms 27:6]]
+[[Psalms 49:1]]
+[[Psalms 119:46]]
+[[Psalms 138:4]]
+[[Psalms 146:2]]
+---
+
+"Hear, O ye kings; give ear, O ye princes; I, even I, will sing unto the LORD; I will sing praise to the LORD God of Israel."

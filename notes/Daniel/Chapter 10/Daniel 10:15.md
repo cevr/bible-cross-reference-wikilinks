@@ -1,0 +1,10 @@
+---
+Links:
+[[Ezekiel 24:27]]
+[[Ezekiel 33:22]]
+[[Daniel 8:18]]
+[[Daniel 10:9]]
+[[Luke 1:20]]
+---
+
+"And when he had spoken such words unto me, I set my face toward the ground, and I became dumb."

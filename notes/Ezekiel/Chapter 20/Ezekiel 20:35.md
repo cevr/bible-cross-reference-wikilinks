@@ -1,0 +1,21 @@
+---
+Links:
+[[Jeremiah 2:9]]
+[[Jeremiah 2:35]]
+[[Jeremiah 25:31]]
+[[Jeremiah 31:2]]
+[[Ezekiel 17:20]]
+[[Ezekiel 19:13]]
+[[Ezekiel 20:36]]
+[[Ezekiel 38:8]]
+[[Ezekiel 38:22]]
+[[Hosea 2:14]]
+[[Hosea 2:16]]
+[[Hosea 4:1]]
+[[Micah 4:10]]
+[[Micah 6:1]]
+[[Micah 7:13]]
+[[Revelation 12:14]]
+---
+
+"And I will bring you into the wilderness of the people, and there will I plead with you face to face."

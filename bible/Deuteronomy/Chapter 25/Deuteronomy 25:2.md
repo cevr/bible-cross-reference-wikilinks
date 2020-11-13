@@ -1,7 +1,0 @@
-[[Matthew 10:17]]
-[[Matthew 27:26]]
-[[Luke 12:47]]
-[[Acts 5:40]]
-[[Acts 16:22]]
-[[1 Peter 2:20]]
-[[1 Peter 2:24]]

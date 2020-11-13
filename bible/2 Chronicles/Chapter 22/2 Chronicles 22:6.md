@@ -1,6 +1,0 @@
-[[2 Kings 8:29]]
-[[2 Kings 9:15]]
-[[2 Kings 10:13]]
-[[2 Chronicles 21:17]]
-[[2 Chronicles 22:1]]
-[[2 Chronicles 22:7]]

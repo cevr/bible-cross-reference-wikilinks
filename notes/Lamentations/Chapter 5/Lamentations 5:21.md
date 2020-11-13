@@ -1,0 +1,23 @@
+---
+Links:
+[[1 Kings 18:37]]
+[[Psalms 80:3]]
+[[Psalms 80:7]]
+[[Psalms 80:19]]
+[[Psalms 85:4]]
+[[Jeremiah 30:20]]
+[[Jeremiah 31:4]]
+[[Jeremiah 31:18]]
+[[Jeremiah 31:23]]
+[[Jeremiah 32:39]]
+[[Jeremiah 33:10]]
+[[Jeremiah 33:13]]
+[[Ezekiel 11:19]]
+[[Ezekiel 36:25]]
+[[Ezekiel 36:37]]
+[[Habakkuk 3:2]]
+[[Zechariah 8:3]]
+[[Malachi 3:4]]
+---
+
+"Turn thou us unto thee, O LORD, and we shall be turned; renew our days as of old."

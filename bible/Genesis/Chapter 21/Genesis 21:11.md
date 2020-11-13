@@ -1,5 +1,0 @@
-[[Genesis 17:18]]
-[[Genesis 22:1]]
-[[2 Samuel 18:33]]
-[[Matthew 10:37]]
-[[Hebrews 12:11]]

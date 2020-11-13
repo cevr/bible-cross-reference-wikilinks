@@ -1,7 +1,0 @@
-[[Exodus 30:12]]
-[[Exodus 30:15]]
-[[Leviticus 17:11]]
-[[Psalms 107:15]]
-[[Psalms 107:21]]
-[[Psalms 116:12]]
-[[Psalms 116:17]]

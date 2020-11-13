@@ -1,0 +1,19 @@
+---
+Links:
+[[Exodus 34:6]]
+[[Deuteronomy 4:31]]
+[[2 Kings 13:23]]
+[[2 Chronicles 30:9]]
+[[Nehemiah 9:17]]
+[[Nehemiah 9:19]]
+[[Psalms 103:8]]
+[[Psalms 145:8]]
+[[Jeremiah 4:27]]
+[[Jeremiah 5:10]]
+[[Jeremiah 5:18]]
+[[Lamentations 3:22]]
+[[Ezekiel 14:22]]
+[[Daniel 9:9]]
+---
+
+"Nevertheless for thy great mercies' sake thou didst not utterly consume them, nor forsake them; for thou art a gracious and merciful God."

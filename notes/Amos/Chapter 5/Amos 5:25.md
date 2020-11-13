@@ -1,0 +1,17 @@
+---
+Links:
+[[Leviticus 17:7]]
+[[Deuteronomy 32:17]]
+[[Joshua 24:14]]
+[[Nehemiah 9:18]]
+[[Nehemiah 9:21]]
+[[Isaiah 43:23]]
+[[Ezekiel 20:8]]
+[[Ezekiel 20:16]]
+[[Ezekiel 20:24]]
+[[Hosea 9:9]]
+[[Zechariah 7:5]]
+[[Acts 7:42]]
+---
+
+"Have ye offered unto me sacrifices and offerings in the wilderness forty years, O house of Israel?"

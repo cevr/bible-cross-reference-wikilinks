@@ -1,0 +1,32 @@
+---
+Links:
+[[Leviticus 26:28]]
+[[2 Kings 22:17]]
+[[Isaiah 42:25]]
+[[Isaiah 66:24]]
+[[Jeremiah 4:23]]
+[[Jeremiah 9:10]]
+[[Jeremiah 12:4]]
+[[Jeremiah 14:16]]
+[[Jeremiah 17:4]]
+[[Jeremiah 17:27]]
+[[Jeremiah 42:18]]
+[[Jeremiah 44:6]]
+[[Lamentations 2:3]]
+[[Lamentations 2:4]]
+[[Lamentations 4:11]]
+[[Ezekiel 7:12]]
+[[Ezekiel 7:14]]
+[[Ezekiel 20:47]]
+[[Ezekiel 22:22]]
+[[Daniel 9:11]]
+[[Nahum 1:6]]
+[[Zephaniah 1:3]]
+[[Zechariah 7:12]]
+[[Malachi 4:1]]
+[[Mark 9:43]]
+[[Revelation 14:10]]
+[[Revelation 16:1]]
+---
+
+"Therefore thus saith the Lord GOD; Behold, mine anger and my fury shall be poured out upon this place, upon man, and upon beast, and upon the trees of the field, and upon the fruit of the ground; and it shall burn, and shall not be quenched."

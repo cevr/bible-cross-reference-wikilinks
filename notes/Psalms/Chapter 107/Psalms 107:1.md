@@ -1,0 +1,20 @@
+---
+Links:
+[[1 Chronicles 16:34]]
+[[1 Chronicles 16:41]]
+[[2 Chronicles 5:13]]
+[[2 Chronicles 7:3]]
+[[2 Chronicles 7:6]]
+[[2 Chronicles 20:21]]
+[[Psalms 100:5]]
+[[Psalms 103:17]]
+[[Psalms 105:1]]
+[[Psalms 106:1]]
+[[Psalms 118:1]]
+[[Psalms 119:68]]
+[[Psalms 136:1]]
+[[Matthew 19:17]]
+[[Luke 1:50]]
+---
+
+"O give thanks unto the LORD, for he is good: for his mercy endureth for ever."

@@ -1,0 +1,16 @@
+---
+Links:
+[[Psalms 16:3]]
+[[Acts 9:39]]
+[[Romans 12:13]]
+[[Romans 15:25]]
+[[1 Corinthians 16:1]]
+[[Galatians 5:6]]
+[[Ephesians 1:15]]
+[[Colossians 1:4]]
+[[Philemon 1:7]]
+[[1 John 3:23]]
+[[1 John 5:1]]
+---
+
+"Hearing of thy love and faith, which thou hast toward the Lord Jesus, and toward all saints;"

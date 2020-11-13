@@ -1,8 +1,0 @@
-[[Ezekiel 1:3]]
-[[Ezekiel 1:5]]
-[[Ezekiel 1:13]]
-[[Ezekiel 8:6]]
-[[Ezekiel 10:18]]
-[[Ezekiel 11:22]]
-[[Ezekiel 43:3]]
-[[Hosea 9:12]]

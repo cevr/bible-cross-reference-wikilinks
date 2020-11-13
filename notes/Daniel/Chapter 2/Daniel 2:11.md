@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 41:8]]
+[[Genesis 41:39]]
+[[Exodus 8:19]]
+[[Exodus 29:45]]
+[[Numbers 35:34]]
+[[1 Kings 8:27]]
+[[2 Chronicles 6:18]]
+[[Psalms 68:18]]
+[[Psalms 113:5]]
+[[Psalms 132:14]]
+[[Isaiah 8:18]]
+[[Isaiah 47:12]]
+[[Isaiah 57:15]]
+[[Isaiah 66:1]]
+[[Daniel 2:27]]
+[[Daniel 4:4]]
+[[Daniel 5:11]]
+[[Joel 3:21]]
+[[Matthew 19:26]]
+[[John 1:1]]
+[[John 1:14]]
+[[John 14:17]]
+[[John 14:23]]
+[[2 Corinthians 6:16]]
+[[Revelation 21:3]]
+---
+
+"And it is a rare thing that the king requireth, and there is none other that can shew it before the king, except the gods, whose dwelling is not with flesh."

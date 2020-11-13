@@ -1,0 +1,31 @@
+---
+Links:
+[[Deuteronomy 32:35]]
+[[2 Kings 24:1]]
+[[Ezra 1:1]]
+[[Isaiah 13:1]]
+[[Isaiah 13:19]]
+[[Isaiah 14:23]]
+[[Isaiah 15:6]]
+[[Isaiah 20:1]]
+[[Isaiah 46:1]]
+[[Jeremiah 23:2]]
+[[Jeremiah 25:14]]
+[[Jeremiah 27:7]]
+[[Jeremiah 29:10]]
+[[Jeremiah 50:1]]
+[[Jeremiah 50:13]]
+[[Jeremiah 51:24]]
+[[Jeremiah 51:25]]
+[[Jeremiah 51:26]]
+[[Jeremiah 51:62]]
+[[Ezekiel 35:9]]
+[[Daniel 5:1]]
+[[Daniel 5:26]]
+[[Daniel 9:2]]
+[[Habakkuk 1:17]]
+[[Habakkuk 2:1]]
+[[Revelation 18:1]]
+---
+
+"And it shall come to pass, when seventy years are accomplished, that I will punish the king of Babylon, and that nation, saith the LORD, for their iniquity, and the land of the Chaldeans, and will make it perpetual desolations."

@@ -1,5 +1,0 @@
-[[Deuteronomy 23:18]]
-[[2 Samuel 13:11]]
-[[Ezekiel 16:33]]
-[[Matthew 26:15]]
-[[1 Timothy 6:10]]

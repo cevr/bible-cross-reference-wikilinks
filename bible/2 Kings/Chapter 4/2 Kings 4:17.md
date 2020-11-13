@@ -1,6 +1,0 @@
-[[Genesis 21:1]]
-[[1 Samuel 1:19]]
-[[Psalms 113:9]]
-[[Luke 1:24]]
-[[Luke 1:36]]
-[[Hebrews 11:11]]

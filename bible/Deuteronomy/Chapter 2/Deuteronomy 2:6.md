@@ -1,5 +1,0 @@
-[[Numbers 20:19]]
-[[Deuteronomy 2:28]]
-[[Matthew 7:12]]
-[[Romans 12:17]]
-[[2 Thessalonians 3:7]]

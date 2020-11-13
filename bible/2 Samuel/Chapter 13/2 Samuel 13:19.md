@@ -1,8 +1,0 @@
-[[Joshua 7:6]]
-[[1 Samuel 4:12]]
-[[2 Samuel 1:2]]
-[[2 Samuel 1:11]]
-[[Esther 4:1]]
-[[Job 2:12]]
-[[Job 42:6]]
-[[Jeremiah 2:37]]

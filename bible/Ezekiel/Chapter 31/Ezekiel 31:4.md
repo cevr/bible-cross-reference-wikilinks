@@ -1,6 +1,0 @@
-[[Proverbs 14:28]]
-[[Jeremiah 51:36]]
-[[Ezekiel 17:5]]
-[[Ezekiel 17:8]]
-[[Revelation 17:1]]
-[[Revelation 17:15]]

@@ -1,0 +1,17 @@
+---
+Links:
+[[Joshua 19:29]]
+[[2 Samuel 5:11]]
+[[1 Kings 9:20]]
+[[1 Chronicles 14:1]]
+[[2 Chronicles 2:1]]
+[[2 Chronicles 2:2]]
+[[2 Chronicles 2:17]]
+[[2 Chronicles 8:7]]
+[[Ezra 2:58]]
+[[Nehemiah 7:57]]
+[[Nehemiah 7:60]]
+[[Psalms 45:13]]
+---
+
+"And Solomon had threescore and ten thousand that bare burdens, and fourscore thousand hewers in the mountains;"

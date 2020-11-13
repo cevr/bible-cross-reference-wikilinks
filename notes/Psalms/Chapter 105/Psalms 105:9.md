@@ -1,0 +1,18 @@
+---
+Links:
+[[Genesis 12:7]]
+[[Genesis 17:2]]
+[[Genesis 22:16]]
+[[Genesis 26:3]]
+[[Genesis 28:13]]
+[[Genesis 35:11]]
+[[Exodus 2:24]]
+[[2 Kings 13:23]]
+[[Nehemiah 9:8]]
+[[Jeremiah 11:5]]
+[[Acts 7:8]]
+[[Galatians 3:17]]
+[[Hebrews 6:17]]
+---
+
+"Which covenant he made with Abraham, and his oath unto Isaac;"

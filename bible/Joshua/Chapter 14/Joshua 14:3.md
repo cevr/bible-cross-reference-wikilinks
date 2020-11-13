@@ -1,8 +1,0 @@
-[[Numbers 32:29]]
-[[Deuteronomy 3:12]]
-[[Joshua 12:6]]
-[[Joshua 13:8]]
-[[Joshua 13:14]]
-[[Joshua 13:16]]
-[[Joshua 13:17]]
-[[Joshua 13:32]]

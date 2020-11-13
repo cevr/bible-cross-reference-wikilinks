@@ -1,6 +1,0 @@
-[[Genesis 29:14]]
-[[Judges 9:2]]
-[[2 Samuel 5:1]]
-[[2 Samuel 19:13]]
-[[1 Corinthians 11:8]]
-[[Ephesians 5:28]]

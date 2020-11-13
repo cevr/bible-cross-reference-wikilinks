@@ -1,6 +1,0 @@
-[[Judges 6:5]]
-[[Judges 7:12]]
-[[Isaiah 10:18]]
-[[Ezekiel 20:46]]
-[[Joel 2:25]]
-[[Revelation 9:2]]

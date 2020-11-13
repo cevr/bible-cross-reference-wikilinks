@@ -1,7 +1,0 @@
-[[Psalms 16:11]]
-[[Ezekiel 34:26]]
-[[Romans 1:10]]
-[[Ephesians 1:3]]
-[[Ephesians 3:8]]
-[[Ephesians 3:19]]
-[[Ephesians 4:13]]

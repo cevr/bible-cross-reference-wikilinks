@@ -1,0 +1,21 @@
+---
+Links:
+[[Leviticus 15:15]]
+[[Psalms 2:7]]
+[[Isaiah 42:1]]
+[[Isaiah 42:21]]
+[[Matthew 12:18]]
+[[Matthew 17:5]]
+[[Mark 1:11]]
+[[Mark 9:7]]
+[[Luke 3:22]]
+[[Luke 9:35]]
+[[John 5:37]]
+[[John 12:28]]
+[[Ephesians 1:6]]
+[[Colossians 1:13]]
+[[2 Peter 1:17]]
+[[Revelation 14:2]]
+---
+
+"And lo a voice from heaven, saying, This is my beloved Son, in whom I am well pleased."

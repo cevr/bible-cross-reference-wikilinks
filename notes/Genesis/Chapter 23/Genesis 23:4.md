@@ -1,0 +1,23 @@
+---
+Links:
+[[Genesis 3:19]]
+[[Genesis 17:8]]
+[[Genesis 47:9]]
+[[Genesis 49:30]]
+[[Genesis 50:13]]
+[[Leviticus 25:23]]
+[[1 Chronicles 29:15]]
+[[Job 30:23]]
+[[Psalms 39:12]]
+[[Psalms 105:12]]
+[[Psalms 119:19]]
+[[Ecclesiastes 6:3]]
+[[Ecclesiastes 12:5]]
+[[Ecclesiastes 12:7]]
+[[Acts 7:5]]
+[[Hebrews 11:9]]
+[[Hebrews 11:13]]
+[[1 Peter 2:11]]
+---
+
+"I am a stranger and a sojourner with you: give me a possession of a buryingplace with you, that I may bury my dead out of my sight."

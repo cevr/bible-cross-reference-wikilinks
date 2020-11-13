@@ -1,6 +1,0 @@
-[[2 Kings 5:16]]
-[[2 Kings 5:20]]
-[[Acts 16:40]]
-[[2 Corinthians 11:8]]
-[[2 Corinthians 12:11]]
-[[Philippians 1:5]]

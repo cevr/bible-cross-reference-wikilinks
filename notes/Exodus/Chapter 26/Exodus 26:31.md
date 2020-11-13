@@ -1,0 +1,32 @@
+---
+Links:
+[[Exodus 25:4]]
+[[Exodus 25:18]]
+[[Exodus 26:1]]
+[[Exodus 27:16]]
+[[Exodus 28:15]]
+[[Exodus 35:6]]
+[[Exodus 35:12]]
+[[Exodus 35:25]]
+[[Exodus 35:35]]
+[[Exodus 36:8]]
+[[Exodus 36:35]]
+[[Exodus 38:23]]
+[[Exodus 40:3]]
+[[Exodus 40:21]]
+[[Leviticus 16:2]]
+[[Leviticus 16:15]]
+[[Numbers 4:5]]
+[[2 Chronicles 2:7]]
+[[2 Chronicles 3:14]]
+[[Psalms 137:5]]
+[[Songs of Solomon 7:1]]
+[[Matthew 27:51]]
+[[Mark 15:38]]
+[[Luke 23:45]]
+[[Ephesians 2:14]]
+[[Hebrews 9:3]]
+[[Hebrews 10:20]]
+---
+
+"And thou shalt make a vail of blue, and purple, and scarlet, and fine twined linen of cunning work: with cherubims shall it be made:"

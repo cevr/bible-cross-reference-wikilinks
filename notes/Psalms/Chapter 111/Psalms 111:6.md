@@ -1,0 +1,18 @@
+---
+Links:
+[[Deuteronomy 4:32]]
+[[Joshua 3:14]]
+[[Joshua 6:20]]
+[[Joshua 10:13]]
+[[Psalms 2:8]]
+[[Psalms 44:2]]
+[[Psalms 44:3]]
+[[Psalms 44:4]]
+[[Psalms 78:12]]
+[[Psalms 80:8]]
+[[Psalms 103:7]]
+[[Psalms 105:27]]
+[[Psalms 145:12]]
+---
+
+"He hath shewed his people the power of his works, that he may give them the heritage of the heathen."

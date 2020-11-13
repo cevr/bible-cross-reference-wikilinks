@@ -1,0 +1,23 @@
+---
+Links:
+[[Isaiah 58:7]]
+[[Daniel 4:27]]
+[[Matthew 25:40]]
+[[Mark 14:5]]
+[[Luke 11:41]]
+[[Luke 18:22]]
+[[Luke 19:8]]
+[[John 13:29]]
+[[Acts 10:2]]
+[[Acts 10:4]]
+[[Acts 10:31]]
+[[2 Corinthians 8:3]]
+[[1 Timothy 6:18]]
+[[Hebrews 6:10]]
+[[James 1:27]]
+[[James 2:15]]
+[[1 John 3:17]]
+[[1 John 4:20]]
+---
+
+"He answereth and saith unto them, He that hath two coats, let him impart to him that hath none; and he that hath meat, let him do likewise."

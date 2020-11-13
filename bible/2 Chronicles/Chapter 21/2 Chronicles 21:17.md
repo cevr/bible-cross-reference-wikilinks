@@ -1,6 +1,0 @@
-[[2 Chronicles 22:1]]
-[[2 Chronicles 22:6]]
-[[2 Chronicles 24:7]]
-[[2 Chronicles 25:23]]
-[[Job 5:3]]
-[[Amos 1:6]]

@@ -1,0 +1,32 @@
+---
+Links:
+[[Psalms 106:3]]
+[[Psalms 112:1]]
+[[Psalms 119:1]]
+[[Isaiah 56:1]]
+[[Daniel 12:12]]
+[[Matthew 7:21]]
+[[Luke 12:37]]
+[[John 4:12]]
+[[John 10:7]]
+[[John 10:9]]
+[[John 14:6]]
+[[John 14:15]]
+[[John 14:21]]
+[[John 15:10]]
+[[1 Corinthians 7:19]]
+[[1 Corinthians 8:9]]
+[[1 Corinthians 9:5]]
+[[Galatians 5:6]]
+[[1 John 3:3]]
+[[1 John 3:23]]
+[[1 John 5:3]]
+[[Revelation 2:7]]
+[[Revelation 7:14]]
+[[Revelation 21:12]]
+[[Revelation 21:27]]
+[[Revelation 22:2]]
+[[Revelation 22:7]]
+---
+
+"Blessed are they that do his commandments, that they may have right to the tree of life, and may enter in through the gates into the city."

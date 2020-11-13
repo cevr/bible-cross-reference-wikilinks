@@ -1,0 +1,18 @@
+---
+Links:
+[[Joshua 18:1]]
+[[1 Samuel 2:27]]
+[[1 Samuel 2:30]]
+[[1 Samuel 2:31]]
+[[1 Samuel 3:12]]
+[[1 Kings 4:4]]
+[[Psalms 78:60]]
+[[Jeremiah 7:12]]
+[[Matthew 26:56]]
+[[John 12:38]]
+[[John 19:24]]
+[[John 19:28]]
+[[John 19:36]]
+---
+
+"So Solomon thrust out Abiathar from being priest unto the LORD; that he might fulfil the word of the LORD, which he spake concerning the house of Eli in Shiloh."

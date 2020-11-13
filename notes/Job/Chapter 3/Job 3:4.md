@@ -1,0 +1,12 @@
+---
+Links:
+[[Exodus 10:22]]
+[[Deuteronomy 11:12]]
+[[Joel 2:2]]
+[[Amos 5:18]]
+[[Matthew 27:45]]
+[[Acts 27:20]]
+[[Revelation 16:10]]
+---
+
+"Let that day be darkness; let not God regard it from above, neither let the light shine upon it."

@@ -1,0 +1,25 @@
+---
+Links:
+[[1 Kings 6:8]]
+[[1 Chronicles 9:18]]
+[[1 Chronicles 9:24]]
+[[Nehemiah 3:29]]
+[[Psalms 84:10]]
+[[Jeremiah 19:2]]
+[[Ezekiel 8:16]]
+[[Ezekiel 10:18]]
+[[Ezekiel 11:1]]
+[[Ezekiel 40:5]]
+[[Ezekiel 40:7]]
+[[Ezekiel 40:20]]
+[[Ezekiel 40:26]]
+[[Ezekiel 42:15]]
+[[Ezekiel 43:1]]
+[[Ezekiel 43:8]]
+[[Ezekiel 44:1]]
+[[Ezekiel 46:1]]
+[[Ezekiel 46:12]]
+[[Ezekiel 47:1]]
+---
+
+"Then came he unto the gate which looketh toward the east, and went up the stairs thereof, and measured the threshold of the gate, which was one reed broad; and the other threshold of the gate, which was one reed broad."

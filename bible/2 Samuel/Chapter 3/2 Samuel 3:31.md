@@ -1,8 +1,0 @@
-[[Genesis 37:29]]
-[[Genesis 37:34]]
-[[Joshua 7:6]]
-[[Judges 11:35]]
-[[2 Samuel 1:2]]
-[[2 Samuel 1:11]]
-[[2 Kings 19:1]]
-[[Luke 7:14]]

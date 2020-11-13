@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 10:10]]
+[[Genesis 11:2]]
+[[1 Chronicles 29:12]]
+[[2 Chronicles 2:5]]
+[[Esther 1:4]]
+[[Psalms 49:20]]
+[[Psalms 73:8]]
+[[Psalms 104:1]]
+[[Psalms 145:5]]
+[[Proverbs 11:2]]
+[[Proverbs 16:18]]
+[[Isaiah 10:8]]
+[[Isaiah 37:24]]
+[[Ezekiel 28:2]]
+[[Ezekiel 29:3]]
+[[Daniel 5:18]]
+[[Habakkuk 1:15]]
+[[Habakkuk 2:4]]
+[[Luke 12:19]]
+[[Luke 14:9]]
+[[Luke 14:11]]
+[[1 Corinthians 10:31]]
+[[1 Peter 5:5]]
+[[Revelation 16:19]]
+[[Revelation 17:5]]
+[[Revelation 18:10]]
+[[Revelation 18:21]]
+[[Revelation 21:24]]
+---
+
+"The king spake, and said, Is not this great Babylon, that I have built for the house of the kingdom by the might of my power, and for the honour of my majesty?"

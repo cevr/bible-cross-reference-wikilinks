@@ -1,5 +1,0 @@
-[[2 Samuel 18:22]]
-[[2 Kings 8:11]]
-[[Luke 11:8]]
-[[Romans 10:2]]
-[[Hebrews 11:5]]

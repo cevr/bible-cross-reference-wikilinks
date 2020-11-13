@@ -1,8 +1,0 @@
-[[Judges 1:1]]
-[[Judges 11:4]]
-[[Judges 11:5]]
-[[Judges 11:11]]
-[[Judges 12:7]]
-[[1 Samuel 17:25]]
-[[Isaiah 3:1]]
-[[Isaiah 34:12]]

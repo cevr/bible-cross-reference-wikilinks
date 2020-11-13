@@ -1,7 +1,0 @@
-[[Isaiah 23:5]]
-[[Isaiah 23:10]]
-[[Isaiah 41:5]]
-[[Ezekiel 26:15]]
-[[Ezekiel 27:28]]
-[[Ezekiel 27:35]]
-[[Ezekiel 31:15]]

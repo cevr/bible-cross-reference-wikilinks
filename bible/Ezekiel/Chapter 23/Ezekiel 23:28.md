@@ -1,6 +1,0 @@
-[[Jeremiah 21:7]]
-[[Jeremiah 24:8]]
-[[Jeremiah 34:20]]
-[[Ezekiel 16:37]]
-[[Ezekiel 23:17]]
-[[Ezekiel 23:22]]

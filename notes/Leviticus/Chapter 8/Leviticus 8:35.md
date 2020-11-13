@@ -1,0 +1,27 @@
+---
+Links:
+[[Exodus 29:35]]
+[[Leviticus 8:30]]
+[[Leviticus 10:1]]
+[[Leviticus 14:8]]
+[[Numbers 3:7]]
+[[Numbers 9:19]]
+[[Numbers 19:12]]
+[[Deuteronomy 11:1]]
+[[1 Kings 2:3]]
+[[Ezekiel 43:25]]
+[[Ezekiel 48:11]]
+[[2 Corinthians 7:1]]
+[[Colossians 2:9]]
+[[1 Timothy 1:3]]
+[[1 Timothy 1:18]]
+[[1 Timothy 5:21]]
+[[1 Timothy 6:13]]
+[[1 Timothy 6:17]]
+[[1 Timothy 6:20]]
+[[2 Timothy 4:1]]
+[[Hebrews 7:28]]
+[[Hebrews 9:23]]
+---
+
+"Therefore shall ye abide at the door of the tabernacle of the congregation day and night seven days, and keep the charge of the LORD, that ye die not: for so I am commanded."

@@ -1,6 +1,0 @@
-[[Genesis 4:8]]
-[[1 Samuel 18:17]]
-[[1 Samuel 18:21]]
-[[2 Samuel 3:27]]
-[[2 Samuel 13:22]]
-[[Psalms 55:21]]

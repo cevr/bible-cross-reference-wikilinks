@@ -1,8 +1,0 @@
-[[Isaiah 6:9]]
-[[Ezekiel 12:2]]
-[[Mark 4:12]]
-[[Luke 8:10]]
-[[John 12:39]]
-[[Acts 28:25]]
-[[Romans 11:8]]
-[[2 Corinthians 3:14]]

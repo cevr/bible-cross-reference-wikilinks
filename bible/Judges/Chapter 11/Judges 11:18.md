@@ -1,7 +1,0 @@
-[[Numbers 20:22]]
-[[Numbers 21:4]]
-[[Numbers 21:13]]
-[[Numbers 22:36]]
-[[Numbers 33:37]]
-[[Deuteronomy 2:1]]
-[[Deuteronomy 2:8]]

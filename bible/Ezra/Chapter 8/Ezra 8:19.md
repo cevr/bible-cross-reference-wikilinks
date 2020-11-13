@@ -1,5 +1,0 @@
-[[1 Chronicles 6:1]]
-[[1 Chronicles 6:16]]
-[[1 Chronicles 6:19]]
-[[Nehemiah 3:17]]
-[[Nehemiah 10:11]]

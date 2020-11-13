@@ -1,0 +1,28 @@
+---
+Links:
+[[Exodus 20:17]]
+[[Exodus 22:21]]
+[[1 Samuel 12:3]]
+[[1 Kings 21:2]]
+[[1 Kings 21:7]]
+[[2 Kings 9:26]]
+[[Nehemiah 5:1]]
+[[Job 24:2]]
+[[Job 31:38]]
+[[Isaiah 3:14]]
+[[Isaiah 5:8]]
+[[Jeremiah 22:17]]
+[[Ezekiel 18:12]]
+[[Ezekiel 22:12]]
+[[Ezekiel 45:9]]
+[[Amos 4:1]]
+[[Amos 8:4]]
+[[Micah 3:9]]
+[[Micah 6:12]]
+[[Habakkuk 2:5]]
+[[Malachi 3:5]]
+[[Matthew 23:13]]
+[[1 Timothy 6:10]]
+---
+
+"And they covet fields, and take them by violence; and houses, and take them away: so they oppress a man and his house, even a man and his heritage."

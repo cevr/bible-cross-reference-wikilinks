@@ -1,0 +1,17 @@
+---
+Links:
+[[Exodus 14:21]]
+[[Exodus 14:22]]
+[[Exodus 14:29]]
+[[Joshua 3:14]]
+[[1 Samuel 28:14]]
+[[1 Kings 19:13]]
+[[1 Kings 19:19]]
+[[2 Kings 2:14]]
+[[Psalms 114:5]]
+[[Isaiah 11:15]]
+[[Hebrews 11:29]]
+[[Revelation 16:12]]
+---
+
+"And Elijah took his mantle, and wrapped it together, and smote the waters, and they were divided hither and thither, so that they two went over on dry ground."

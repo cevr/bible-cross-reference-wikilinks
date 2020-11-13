@@ -1,0 +1,21 @@
+---
+Links:
+[[2 Kings 18:9]]
+[[2 Kings 18:13]]
+[[2 Chronicles 32:1]]
+[[Isaiah 1:5]]
+[[Isaiah 3:26]]
+[[Isaiah 8:7]]
+[[Isaiah 10:28]]
+[[Isaiah 10:32]]
+[[Isaiah 36:1]]
+[[Isaiah 36:2]]
+[[Isaiah 37:22]]
+[[Jeremiah 15:18]]
+[[Jeremiah 30:11]]
+[[Jeremiah 30:12]]
+[[Jeremiah 30:15]]
+[[Micah 1:12]]
+---
+
+"For her wound is incurable; for it is come unto Judah; he is come unto the gate of my people, even to Jerusalem."

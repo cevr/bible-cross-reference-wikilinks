@@ -1,5 +1,0 @@
-[[Isaiah 23:6]]
-[[Ezekiel 26:15]]
-[[Ezekiel 28:17]]
-[[Ezekiel 32:10]]
-[[Revelation 18:9]]

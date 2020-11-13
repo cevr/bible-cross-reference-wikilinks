@@ -1,8 +1,0 @@
-[[Leviticus 6:1]]
-[[Leviticus 6:5]]
-[[Numbers 5:7]]
-[[2 Samuel 12:6]]
-[[Proverbs 6:31]]
-[[Proverbs 14:4]]
-[[Jeremiah 2:34]]
-[[Luke 19:8]]

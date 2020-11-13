@@ -1,0 +1,33 @@
+---
+Links:
+[[Deuteronomy 16:11]]
+[[Deuteronomy 16:14]]
+[[Ruth 1:21]]
+[[1 Samuel 1:15]]
+[[2 Kings 18:30]]
+[[2 Kings 18:32]]
+[[1 Chronicles 15:15]]
+[[1 Chronicles 16:1]]
+[[2 Chronicles 7:10]]
+[[2 Chronicles 30:23]]
+[[Job 29:2]]
+[[Psalms 55:14]]
+[[Psalms 62:8]]
+[[Psalms 79:10]]
+[[Psalms 80:6]]
+[[Psalms 81:1]]
+[[Psalms 100:4]]
+[[Psalms 102:10]]
+[[Psalms 115:2]]
+[[Psalms 122:1]]
+[[Psalms 122:8]]
+[[Isaiah 30:29]]
+[[Lamentations 2:19]]
+[[Lamentations 4:1]]
+[[Ezekiel 46:10]]
+[[Joel 2:17]]
+[[Nahum 1:15]]
+[[Luke 16:25]]
+---
+
+"When I remember these things, I pour out my soul in me: for I had gone with the multitude, I went with them to the house of God, with the voice of joy and praise, with a multitude that kept holyday."

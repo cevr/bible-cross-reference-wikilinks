@@ -1,0 +1,24 @@
+---
+Links:
+[[Genesis 2:23]]
+[[Job 42:8]]
+[[Proverbs 5:15]]
+[[Malachi 2:14]]
+[[Matthew 5:23]]
+[[Matthew 18:19]]
+[[Matthew 19:3]]
+[[Romans 8:26]]
+[[1 Corinthians 7:3]]
+[[1 Corinthians 12:22]]
+[[Ephesians 3:6]]
+[[Ephesians 4:30]]
+[[Ephesians 5:25]]
+[[Ephesians 5:33]]
+[[Ephesians 6:18]]
+[[Colossians 3:19]]
+[[1 Thessalonians 4:4]]
+[[Titus 3:7]]
+[[Hebrews 1:14]]
+---
+
+"Likewise, ye husbands, dwell with them according to knowledge, giving honour unto the wife, as unto the weaker vessel, and as being heirs together of the grace of life; that your prayers be not hindered."

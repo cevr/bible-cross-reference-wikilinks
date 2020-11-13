@@ -1,6 +1,0 @@
-[[Leviticus 8:36]]
-[[2 Samuel 12:25]]
-[[1 Kings 21:23]]
-[[2 Kings 1:17]]
-[[2 Kings 14:25]]
-[[2 Kings 15:12]]

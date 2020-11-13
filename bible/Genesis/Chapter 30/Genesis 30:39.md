@@ -1,6 +1,0 @@
-[[Genesis 31:9]]
-[[Genesis 31:10]]
-[[Genesis 31:38]]
-[[Genesis 31:40]]
-[[Genesis 31:42]]
-[[Exodus 12:35]]

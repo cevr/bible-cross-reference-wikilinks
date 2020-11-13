@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 3:16]]
+[[Esther 1:16]]
+[[Proverbs 11:30]]
+[[Proverbs 18:19]]
+[[Matthew 18:15]]
+[[Romans 6:17]]
+[[Romans 7:2]]
+[[Romans 10:16]]
+[[1 Corinthians 7:16]]
+[[1 Corinthians 9:19]]
+[[1 Corinthians 11:3]]
+[[1 Corinthians 14:34]]
+[[Ephesians 5:22]]
+[[Ephesians 5:33]]
+[[Colossians 3:18]]
+[[Colossians 4:5]]
+[[2 Thessalonians 1:8]]
+[[1 Timothy 2:11]]
+[[Titus 2:3]]
+[[Hebrews 5:9]]
+[[Hebrews 11:8]]
+[[James 5:19]]
+[[1 Peter 1:22]]
+[[1 Peter 3:7]]
+[[1 Peter 4:17]]
+---
+
+"Likewise, ye wives, be in subjection to your own husbands; that, if any obey not the word, they also may without the word be won by the conversation of the wives;"

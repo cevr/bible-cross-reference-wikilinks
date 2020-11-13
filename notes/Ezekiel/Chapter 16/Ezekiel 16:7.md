@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 22:17]]
+[[Exodus 1:7]]
+[[Exodus 3:22]]
+[[Exodus 12:37]]
+[[Deuteronomy 1:10]]
+[[Deuteronomy 1:11]]
+[[Deuteronomy 4:8]]
+[[Deuteronomy 32:10]]
+[[Deuteronomy 33:26]]
+[[Nehemiah 9:18]]
+[[Job 1:21]]
+[[Psalms 135:4]]
+[[Psalms 147:20]]
+[[Psalms 148:14]]
+[[Psalms 149:2]]
+[[Songs of Solomon 4:5]]
+[[Isaiah 61:10]]
+[[Isaiah 62:3]]
+[[Ezekiel 16:10]]
+[[Ezekiel 16:16]]
+[[Ezekiel 16:22]]
+[[Hosea 2:3]]
+[[Hosea 2:9]]
+[[Acts 7:17]]
+[[Revelation 3:17]]
+---
+
+"I have caused thee to multiply as the bud of the field, and thou hast increased and waxen great, and thou art come to excellent ornaments: thy breasts are fashioned, and thine hair is grown, whereas thou wast naked and bare."

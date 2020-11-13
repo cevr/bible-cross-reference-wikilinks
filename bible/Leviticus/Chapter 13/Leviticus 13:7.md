@@ -1,7 +1,0 @@
-[[Leviticus 13:27]]
-[[Leviticus 13:35]]
-[[Leviticus 14:39]]
-[[Psalms 38:3]]
-[[Isaiah 1:5]]
-[[Romans 6:12]]
-[[2 Timothy 2:16]]

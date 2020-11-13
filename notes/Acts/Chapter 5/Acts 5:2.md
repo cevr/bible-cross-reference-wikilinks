@@ -1,0 +1,18 @@
+---
+Links:
+[[Joshua 7:11]]
+[[2 Kings 5:21]]
+[[Malachi 1:14]]
+[[Malachi 3:8]]
+[[Matthew 6:2]]
+[[Matthew 23:5]]
+[[John 12:6]]
+[[Acts 4:34]]
+[[Acts 4:37]]
+[[Acts 5:3]]
+[[Philippians 2:3]]
+[[1 Timothy 6:10]]
+[[2 Peter 2:14]]
+---
+
+"And kept back part of the price, his wife also being privy to it, and brought a certain part, and laid it at the apostles' feet."

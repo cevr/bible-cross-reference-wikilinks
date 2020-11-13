@@ -1,6 +1,0 @@
-[[Proverbs 19:21]]
-[[Lamentations 3:37]]
-[[Romans 15:24]]
-[[Philippians 4:17]]
-[[Colossians 1:6]]
-[[James 4:13]]

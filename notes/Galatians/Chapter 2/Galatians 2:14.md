@@ -1,0 +1,30 @@
+---
+Links:
+[[Leviticus 19:17]]
+[[Psalms 15:2]]
+[[Psalms 58:1]]
+[[Psalms 84:11]]
+[[Psalms 141:5]]
+[[Proverbs 2:7]]
+[[Proverbs 10:9]]
+[[Proverbs 27:5]]
+[[Acts 10:28]]
+[[Acts 11:3]]
+[[Acts 15:10]]
+[[Acts 15:19]]
+[[Acts 15:24]]
+[[Acts 15:28]]
+[[Romans 14:14]]
+[[Galatians 2:3]]
+[[Galatians 2:5]]
+[[Galatians 2:7]]
+[[Galatians 2:9]]
+[[Galatians 2:11]]
+[[Galatians 6:12]]
+[[1 Timothy 4:3]]
+[[1 Timothy 5:20]]
+[[Hebrews 9:10]]
+[[Hebrews 12:13]]
+---
+
+"But when I saw that they walked not uprightly according to the truth of the gospel, I said unto Peter before them all, If thou, being a Jew, livest after the manner of Gentiles, and not as do the Jews, why compellest thou the Gentiles to live as do the Jews?"

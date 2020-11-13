@@ -1,6 +1,0 @@
-[[Genesis 38:8]]
-[[Deuteronomy 25:5]]
-[[Ruth 3:12]]
-[[Ruth 3:13]]
-[[Matthew 22:24]]
-[[Luke 20:28]]

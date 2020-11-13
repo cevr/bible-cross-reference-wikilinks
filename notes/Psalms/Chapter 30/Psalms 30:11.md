@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 37:35]]
+[[Genesis 45:28]]
+[[2 Samuel 6:14]]
+[[2 Chronicles 20:3]]
+[[2 Chronicles 20:9]]
+[[2 Chronicles 20:12]]
+[[2 Chronicles 20:27]]
+[[Nehemiah 8:10]]
+[[Esther 9:22]]
+[[Psalms 4:7]]
+[[Psalms 27:7]]
+[[Psalms 30:5]]
+[[Psalms 126:1]]
+[[Psalms 149:3]]
+[[Psalms 150:4]]
+[[Ecclesiastes 3:4]]
+[[Isaiah 25:3]]
+[[Isaiah 25:8]]
+[[Isaiah 61:3]]
+[[Isaiah 61:10]]
+[[Isaiah 66:10]]
+[[Jeremiah 31:4]]
+[[Jeremiah 31:13]]
+[[Jeremiah 52:33]]
+[[Luke 15:22]]
+[[John 16:20]]
+[[Revelation 7:14]]
+[[Revelation 21:4]]
+---
+
+"Thou hast turned for me my mourning into dancing: thou hast put off my sackcloth, and girded me with gladness;"

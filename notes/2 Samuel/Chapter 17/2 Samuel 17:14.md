@@ -1,0 +1,27 @@
+---
+Links:
+[[Genesis 32:28]]
+[[Exodus 9:16]]
+[[Deuteronomy 2:30]]
+[[Joshua 11:20]]
+[[2 Samuel 15:31]]
+[[2 Samuel 15:34]]
+[[2 Samuel 16:23]]
+[[2 Chronicles 10:15]]
+[[2 Chronicles 25:16]]
+[[2 Chronicles 25:20]]
+[[Job 5:12]]
+[[Job 12:17]]
+[[Psalms 9:16]]
+[[Psalms 33:9]]
+[[Proverbs 19:21]]
+[[Proverbs 21:30]]
+[[Isaiah 8:10]]
+[[Lamentations 3:37]]
+[[Amos 9:3]]
+[[Luke 16:8]]
+[[1 Corinthians 1:19]]
+[[1 Corinthians 3:19]]
+---
+
+"And Absalom and all the men of Israel said, The counsel of Hushai the Archite is better than the counsel of Ahithophel. For the LORD had appointed to defeat the good counsel of Ahithophel, to the intent that the LORD might bring evil upon Absalom."

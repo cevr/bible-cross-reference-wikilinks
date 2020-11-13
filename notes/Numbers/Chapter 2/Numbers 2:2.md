@@ -1,0 +1,26 @@
+---
+Links:
+[[Numbers 1:50]]
+[[Numbers 1:52]]
+[[Numbers 2:3]]
+[[Numbers 2:10]]
+[[Numbers 10:14]]
+[[Numbers 10:18]]
+[[Numbers 10:22]]
+[[Numbers 10:25]]
+[[Numbers 24:2]]
+[[Joshua 3:4]]
+[[Psalms 76:11]]
+[[Isaiah 11:10]]
+[[Isaiah 12:6]]
+[[Isaiah 18:3]]
+[[Ezekiel 43:7]]
+[[Zechariah 9:16]]
+[[1 Corinthians 14:33]]
+[[1 Corinthians 14:40]]
+[[Philippians 1:27]]
+[[Colossians 2:19]]
+[[Revelation 4:2]]
+---
+
+"Every man of the children of Israel shall pitch by his own standard, with the ensign of their father's house: far off about the tabernacle of the congregation shall they pitch."

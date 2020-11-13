@@ -1,8 +1,0 @@
-[[Ezra 4:20]]
-[[Ezra 7:24]]
-[[Nehemiah 5:4]]
-[[Psalms 52:2]]
-[[Psalms 119:69]]
-[[Matthew 9:9]]
-[[Matthew 17:25]]
-[[Romans 13:6]]

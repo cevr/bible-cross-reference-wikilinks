@@ -1,6 +1,0 @@
-[[Judges 5:8]]
-[[1 Samuel 17:47]]
-[[1 Samuel 17:50]]
-[[Zechariah 4:6]]
-[[1 Corinthians 1:27]]
-[[2 Corinthians 4:7]]

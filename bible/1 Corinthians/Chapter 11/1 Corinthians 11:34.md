@@ -1,6 +1,0 @@
-[[1 Corinthians 4:19]]
-[[1 Corinthians 7:17]]
-[[1 Corinthians 11:21]]
-[[1 Corinthians 16:2]]
-[[1 Corinthians 16:5]]
-[[Titus 1:5]]

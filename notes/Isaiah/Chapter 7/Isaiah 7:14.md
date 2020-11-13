@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 3:15]]
+[[Genesis 4:1]]
+[[Genesis 4:25]]
+[[Genesis 16:11]]
+[[Genesis 29:32]]
+[[Genesis 30:6]]
+[[Genesis 30:8]]
+[[Judges 6:36]]
+[[1 Samuel 1:20]]
+[[1 Samuel 4:21]]
+[[1 Kings 13:3]]
+[[Psalms 46:8]]
+[[Isaiah 8:8]]
+[[Isaiah 8:10]]
+[[Isaiah 9:6]]
+[[Isaiah 38:7]]
+[[Jeremiah 31:22]]
+[[Micah 5:2]]
+[[Matthew 1:23]]
+[[Luke 1:31]]
+[[Luke 1:35]]
+[[Luke 20:44]]
+[[John 1:1]]
+[[John 1:14]]
+[[Romans 9:5]]
+[[1 Timothy 3:16]]
+---
+
+"Therefore the Lord himself shall give you a sign; Behold, a virgin shall conceive, and bear a son, and shall call his name Immanuel."

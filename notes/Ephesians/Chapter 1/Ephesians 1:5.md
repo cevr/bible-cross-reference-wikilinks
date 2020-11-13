@@ -1,0 +1,33 @@
+---
+Links:
+[[Jeremiah 3:4]]
+[[Jeremiah 3:19]]
+[[Daniel 4:35]]
+[[Hosea 1:10]]
+[[Matthew 1:25]]
+[[Matthew 11:26]]
+[[Luke 10:21]]
+[[Luke 11:32]]
+[[John 1:12]]
+[[John 11:52]]
+[[John 20:17]]
+[[Romans 8:14]]
+[[Romans 8:23]]
+[[Romans 8:29]]
+[[Romans 9:11]]
+[[1 Corinthians 1:1]]
+[[1 Corinthians 1:21]]
+[[2 Corinthians 6:18]]
+[[Galatians 3:26]]
+[[Galatians 4:5]]
+[[Ephesians 1:9]]
+[[Ephesians 1:11]]
+[[Philippians 2:13]]
+[[2 Thessalonians 1:11]]
+[[Hebrews 2:10]]
+[[Hebrews 12:5]]
+[[1 John 3:1]]
+[[Revelation 21:7]]
+---
+
+"Having predestinated us unto the adoption of children by Jesus Christ to himself, according to the good pleasure of his will,"

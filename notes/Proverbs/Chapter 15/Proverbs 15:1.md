@@ -1,0 +1,23 @@
+---
+Links:
+[[Judges 8:1]]
+[[Judges 8:3]]
+[[Judges 12:3]]
+[[1 Samuel 25:10]]
+[[1 Samuel 25:21]]
+[[2 Samuel 19:43]]
+[[1 Kings 12:7]]
+[[1 Kings 12:13]]
+[[1 Kings 12:16]]
+[[2 Chronicles 10:7]]
+[[Job 41:3]]
+[[Proverbs 10:12]]
+[[Proverbs 15:18]]
+[[Proverbs 25:15]]
+[[Proverbs 28:25]]
+[[Proverbs 29:8]]
+[[Proverbs 29:22]]
+[[Acts 19:41]]
+---
+
+"A soft answer turneth away wrath: but grievous words stir up anger."

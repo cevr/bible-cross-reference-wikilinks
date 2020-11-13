@@ -1,6 +1,0 @@
-[[Genesis 15:2]]
-[[Genesis 42:20]]
-[[Genesis 43:16]]
-[[Genesis 44:1]]
-[[Matthew 20:8]]
-[[Luke 16:1]]

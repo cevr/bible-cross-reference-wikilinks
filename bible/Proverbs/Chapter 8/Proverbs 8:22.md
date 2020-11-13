@@ -1,6 +1,0 @@
-[[Job 28:26]]
-[[Job 28:27]]
-[[Psalms 104:24]]
-[[Proverbs 3:19]]
-[[John 1:1]]
-[[Colossians 1:17]]

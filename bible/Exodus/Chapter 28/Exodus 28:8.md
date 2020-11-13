@@ -1,7 +1,0 @@
-[[Exodus 28:27]]
-[[Exodus 29:5]]
-[[Exodus 39:20]]
-[[Leviticus 8:7]]
-[[Isaiah 11:5]]
-[[1 Peter 1:13]]
-[[Revelation 1:13]]

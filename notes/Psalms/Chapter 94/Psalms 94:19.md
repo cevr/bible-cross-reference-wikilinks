@@ -1,0 +1,17 @@
+---
+Links:
+[[Psalms 43:2]]
+[[Psalms 61:2]]
+[[Psalms 63:5]]
+[[Psalms 73:12]]
+[[Psalms 77:2]]
+[[Jeremiah 20:7]]
+[[Lamentations 3:20]]
+[[Lamentations 3:24]]
+[[Habakkuk 3:16]]
+[[Romans 5:2]]
+[[2 Corinthians 1:4]]
+[[1 Peter 1:7]]
+---
+
+"In the multitude of my thoughts within me thy comforts delight my soul."

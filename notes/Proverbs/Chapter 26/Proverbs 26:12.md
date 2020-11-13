@@ -1,0 +1,21 @@
+---
+Links:
+[[Proverbs 3:7]]
+[[Proverbs 12:15]]
+[[Proverbs 22:29]]
+[[Proverbs 26:5]]
+[[Proverbs 26:16]]
+[[Proverbs 28:11]]
+[[Proverbs 28:26]]
+[[Proverbs 29:20]]
+[[Isaiah 5:21]]
+[[Matthew 21:31]]
+[[Luke 7:44]]
+[[Luke 18:11]]
+[[Romans 12:16]]
+[[1 Corinthians 3:18]]
+[[2 Corinthians 8:1]]
+[[Revelation 3:17]]
+---
+
+"Seest thou a man wise in his own conceit? there is more hope of a fool than of him."

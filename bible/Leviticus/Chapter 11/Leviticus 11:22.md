@@ -1,8 +1,0 @@
-[[Exodus 10:4]]
-[[Isaiah 35:3]]
-[[Matthew 3:4]]
-[[Mark 1:6]]
-[[Romans 14:1]]
-[[Romans 15:1]]
-[[Hebrews 5:11]]
-[[Hebrews 12:12]]

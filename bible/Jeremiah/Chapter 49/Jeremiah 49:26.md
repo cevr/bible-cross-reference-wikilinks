@@ -1,7 +1,0 @@
-[[Jeremiah 9:21]]
-[[Jeremiah 11:22]]
-[[Jeremiah 50:30]]
-[[Jeremiah 51:3]]
-[[Lamentations 2:21]]
-[[Ezekiel 27:27]]
-[[Amos 4:10]]

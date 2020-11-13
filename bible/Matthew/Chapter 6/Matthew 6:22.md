@@ -1,5 +1,0 @@
-[[Luke 11:34]]
-[[Acts 2:46]]
-[[2 Corinthians 11:3]]
-[[Ephesians 6:5]]
-[[Colossians 3:22]]

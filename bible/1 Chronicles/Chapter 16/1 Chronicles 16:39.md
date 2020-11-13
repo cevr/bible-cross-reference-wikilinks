@@ -1,6 +1,0 @@
-[[1 Kings 3:4]]
-[[1 Chronicles 12:28]]
-[[1 Chronicles 15:11]]
-[[1 Chronicles 21:29]]
-[[2 Chronicles 1:3]]
-[[2 Chronicles 1:13]]

@@ -1,7 +1,0 @@
-[[Judges 16:23]]
-[[1 Samuel 31:9]]
-[[2 Samuel 1:20]]
-[[1 Chronicles 10:4]]
-[[Daniel 5:2]]
-[[Daniel 5:23]]
-[[Matthew 14:11]]

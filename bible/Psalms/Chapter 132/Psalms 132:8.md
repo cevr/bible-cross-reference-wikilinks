@@ -1,5 +1,0 @@
-[[Numbers 10:35]]
-[[Numbers 10:36]]
-[[2 Chronicles 6:41]]
-[[Psalms 68:1]]
-[[Psalms 78:61]]

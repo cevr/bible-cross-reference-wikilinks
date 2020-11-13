@@ -1,0 +1,18 @@
+---
+Links:
+[[Songs of Solomon 8:14]]
+[[Isaiah 25:9]]
+[[John 21:25]]
+[[1 Corinthians 16:22]]
+[[2 Timothy 4:8]]
+[[Hebrews 9:28]]
+[[2 Peter 3:12]]
+[[Revelation 1:2]]
+[[Revelation 1:18]]
+[[Revelation 22:7]]
+[[Revelation 22:10]]
+[[Revelation 22:12]]
+[[Revelation 22:18]]
+---
+
+"He which testifieth these things saith, Surely I come quickly. Amen. Even so, come, Lord Jesus."

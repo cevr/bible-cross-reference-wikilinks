@@ -1,0 +1,31 @@
+---
+Links:
+[[1 Kings 18:12]]
+[[2 Kings 2:16]]
+[[Psalms 119:14]]
+[[Psalms 119:111]]
+[[Isaiah 35:1]]
+[[Isaiah 55:12]]
+[[Isaiah 61:10]]
+[[Isaiah 66:13]]
+[[Ezekiel 3:12]]
+[[Ezekiel 8:3]]
+[[Ezekiel 11:1]]
+[[Ezekiel 11:24]]
+[[Ezekiel 43:5]]
+[[Matthew 3:16]]
+[[Matthew 13:44]]
+[[Mark 1:10]]
+[[Acts 8:8]]
+[[Acts 13:52]]
+[[Acts 16:34]]
+[[Romans 5:2]]
+[[Romans 15:10]]
+[[2 Corinthians 12:2]]
+[[Philippians 3:3]]
+[[Philippians 4:4]]
+[[James 1:9]]
+[[James 4:16]]
+---
+
+"And when they were come up out of the water, the Spirit of the Lord caught away Philip, that the eunuch saw him no more: and he went on his way rejoicing."

@@ -1,6 +1,0 @@
-[[Numbers 14:22]]
-[[Numbers 32:8]]
-[[Deuteronomy 2:14]]
-[[Psalms 95:11]]
-[[Ezekiel 20:15]]
-[[Hebrews 3:8]]

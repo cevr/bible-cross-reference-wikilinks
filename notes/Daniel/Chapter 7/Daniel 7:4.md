@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 28:49]]
+[[2 Samuel 1:23]]
+[[Job 25:6]]
+[[Psalms 9:20]]
+[[Isaiah 5:28]]
+[[Isaiah 14:13]]
+[[Jeremiah 4:7]]
+[[Jeremiah 4:13]]
+[[Jeremiah 25:9]]
+[[Jeremiah 25:38]]
+[[Jeremiah 48:40]]
+[[Jeremiah 49:19]]
+[[Jeremiah 50:30]]
+[[Lamentations 4:19]]
+[[Ezekiel 17:3]]
+[[Ezekiel 28:2]]
+[[Ezekiel 28:9]]
+[[Daniel 2:38]]
+[[Daniel 4:30]]
+[[Daniel 4:36]]
+[[Daniel 5:18]]
+[[Daniel 7:12]]
+[[Habakkuk 1:6]]
+[[Habakkuk 2:5]]
+[[Matthew 24:28]]
+---
+
+"The first was like a lion, and had eagle's wings: I beheld till the wings thereof were plucked, and it was lifted up from the earth, and made stand upon the feet as a man, and a man's heart was given to it."

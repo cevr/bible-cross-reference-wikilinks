@@ -1,0 +1,21 @@
+---
+Links:
+[[John 14:3]]
+[[John 21:22]]
+[[Acts 11:28]]
+[[Romans 12:9]]
+[[1 Corinthians 4:5]]
+[[1 Corinthians 11:26]]
+[[1 Thessalonians 5:21]]
+[[Hebrews 3:6]]
+[[Hebrews 4:14]]
+[[Hebrews 10:23]]
+[[2 Peter 3:10]]
+[[Revelation 1:7]]
+[[Revelation 3:3]]
+[[Revelation 3:11]]
+[[Revelation 22:7]]
+[[Revelation 22:20]]
+---
+
+"But that which ye have already hold fast till I come."

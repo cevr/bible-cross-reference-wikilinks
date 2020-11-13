@@ -1,6 +1,0 @@
-[[Genesis 42:7]]
-[[Deuteronomy 8:2]]
-[[Psalms 28:1]]
-[[Lamentations 3:8]]
-[[Matthew 14:15]]
-[[Mark 10:47]]

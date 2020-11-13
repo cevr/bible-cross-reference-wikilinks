@@ -1,0 +1,33 @@
+---
+Links:
+[[Deuteronomy 4:34]]
+[[Deuteronomy 10:21]]
+[[Psalms 22:27]]
+[[Psalms 36:9]]
+[[Psalms 45:4]]
+[[Psalms 47:2]]
+[[Psalms 66:3]]
+[[Psalms 68:19]]
+[[Psalms 76:3]]
+[[Psalms 84:5]]
+[[Psalms 85:4]]
+[[Psalms 107:23]]
+[[Psalms 145:17]]
+[[Isaiah 37:36]]
+[[Isaiah 45:22]]
+[[Isaiah 51:5]]
+[[Isaiah 60:5]]
+[[Isaiah 66:19]]
+[[Zephaniah 2:11]]
+[[Haggai 2:23]]
+[[Zechariah 9:10]]
+[[Matthew 28:19]]
+[[Romans 2:5]]
+[[Romans 15:10]]
+[[Ephesians 2:17]]
+[[Revelation 15:3]]
+[[Revelation 16:5]]
+[[Revelation 19:1]]
+---
+
+"By terrible things in righteousness wilt thou answer us, O God of our salvation; who art the confidence of all the ends of the earth, and of them that are afar off upon the sea:"

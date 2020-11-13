@@ -1,0 +1,28 @@
+---
+Links:
+[[Exodus 18:11]]
+[[1 Samuel 2:7]]
+[[Job 40:11]]
+[[Psalms 51:17]]
+[[Psalms 113:5]]
+[[Psalms 139:2]]
+[[Proverbs 3:34]]
+[[Isaiah 2:11]]
+[[Isaiah 2:17]]
+[[Isaiah 57:15]]
+[[Isaiah 66:2]]
+[[Ezekiel 28:2]]
+[[Daniel 4:37]]
+[[Daniel 5:20]]
+[[Matthew 25:41]]
+[[Luke 1:48]]
+[[Luke 1:51]]
+[[Luke 14:11]]
+[[Luke 18:14]]
+[[Acts 12:22]]
+[[2 Thessalonians 1:9]]
+[[James 4:6]]
+[[1 Peter 5:5]]
+---
+
+"Though the LORD be high, yet hath he respect unto the lowly: but the proud he knoweth afar off."

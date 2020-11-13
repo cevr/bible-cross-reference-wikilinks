@@ -1,0 +1,33 @@
+---
+Links:
+[[Isaiah 44:3]]
+[[Jeremiah 3:4]]
+[[Jeremiah 3:19]]
+[[Matthew 6:6]]
+[[Luke 11:2]]
+[[Luke 11:13]]
+[[John 3:34]]
+[[John 7:39]]
+[[John 14:16]]
+[[John 15:26]]
+[[John 16:7]]
+[[Acts 16:7]]
+[[Romans 5:5]]
+[[Romans 8:9]]
+[[Romans 8:15]]
+[[Romans 8:26]]
+[[1 Corinthians 15:45]]
+[[2 Corinthians 1:22]]
+[[2 Corinthians 3:17]]
+[[Ephesians 1:13]]
+[[Ephesians 2:18]]
+[[Ephesians 4:30]]
+[[Ephesians 6:18]]
+[[Philippians 1:19]]
+[[Hebrews 4:14]]
+[[1 Peter 1:11]]
+[[Jude 1:20]]
+[[Revelation 19:10]]
+---
+
+"And because ye are sons, God hath sent forth the Spirit of his Son into your hearts, crying, Abba, Father."

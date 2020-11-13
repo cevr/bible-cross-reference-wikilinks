@@ -1,7 +1,0 @@
-[[Psalms 65:12]]
-[[Isaiah 35:1]]
-[[Isaiah 35:2]]
-[[Isaiah 42:10]]
-[[Isaiah 44:23]]
-[[Isaiah 49:13]]
-[[Isaiah 55:12]]

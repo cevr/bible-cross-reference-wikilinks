@@ -1,7 +1,0 @@
-[[Proverbs 31:21]]
-[[Isaiah 37:24]]
-[[Isaiah 66:15]]
-[[Jeremiah 4:13]]
-[[Ezekiel 26:10]]
-[[Daniel 11:40]]
-[[Nahum 3:2]]

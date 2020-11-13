@@ -1,0 +1,26 @@
+---
+Links:
+[[Numbers 8:26]]
+[[1 Kings 7:51]]
+[[1 Kings 14:26]]
+[[1 Kings 15:18]]
+[[1 Chronicles 9:26]]
+[[1 Chronicles 9:28]]
+[[1 Chronicles 18:11]]
+[[1 Chronicles 22:3]]
+[[1 Chronicles 22:14]]
+[[1 Chronicles 26:22]]
+[[1 Chronicles 26:24]]
+[[1 Chronicles 26:26]]
+[[1 Chronicles 28:12]]
+[[1 Chronicles 29:2]]
+[[2 Chronicles 8:15]]
+[[2 Chronicles 31:11]]
+[[2 Chronicles 31:12]]
+[[Ezra 2:69]]
+[[Ezra 8:28]]
+[[Nehemiah 12:44]]
+[[Malachi 3:10]]
+---
+
+"And of the Levites, Ahijah was over the treasures of the house of God, and over the treasures of the dedicated things."

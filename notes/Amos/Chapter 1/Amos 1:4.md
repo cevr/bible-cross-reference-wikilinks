@@ -1,0 +1,25 @@
+---
+Links:
+[[Judges 9:19]]
+[[Judges 9:57]]
+[[1 Kings 19:15]]
+[[1 Kings 20:1]]
+[[2 Kings 6:24]]
+[[2 Kings 8:7]]
+[[2 Kings 13:3]]
+[[2 Kings 13:25]]
+[[2 Chronicles 16:2]]
+[[Jeremiah 17:27]]
+[[Jeremiah 49:27]]
+[[Ezekiel 30:8]]
+[[Ezekiel 39:6]]
+[[Hosea 8:14]]
+[[Amos 1:7]]
+[[Amos 1:10]]
+[[Amos 1:12]]
+[[Amos 1:14]]
+[[Amos 2:2]]
+[[Amos 2:5]]
+---
+
+"But I will send a fire into the house of Hazael, which shall devour the palaces of Ben-hadad."

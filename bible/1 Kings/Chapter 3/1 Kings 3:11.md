@@ -1,6 +1,0 @@
-[[1 Kings 3:9]]
-[[Psalms 4:6]]
-[[Proverbs 16:31]]
-[[Matthew 20:21]]
-[[Romans 8:26]]
-[[James 4:2]]

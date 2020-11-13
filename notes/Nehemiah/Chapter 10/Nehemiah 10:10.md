@@ -1,0 +1,12 @@
+---
+Links:
+[[Ezra 8:33]]
+[[Ezra 10:23]]
+[[Nehemiah 3:24]]
+[[Nehemiah 7:43]]
+[[Nehemiah 8:7]]
+[[Nehemiah 9:4]]
+[[Nehemiah 12:8]]
+---
+
+"And their brethren, Shebaniah, Hodijah, Kelita, Pelaiah, Hanan,"

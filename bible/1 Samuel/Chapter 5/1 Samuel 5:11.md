@@ -1,5 +1,0 @@
-[[Exodus 10:7]]
-[[1 Samuel 5:6]]
-[[1 Samuel 5:8]]
-[[Isaiah 13:7]]
-[[Jeremiah 48:42]]

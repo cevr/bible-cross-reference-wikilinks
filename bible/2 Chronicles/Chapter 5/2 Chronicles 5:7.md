@@ -1,7 +1,0 @@
-[[Exodus 37:6]]
-[[1 Kings 6:23]]
-[[1 Kings 8:6]]
-[[2 Chronicles 4:20]]
-[[2 Chronicles 35:3]]
-[[Psalms 132:8]]
-[[Hebrews 9:4]]

@@ -1,7 +1,0 @@
-[[Exodus 24:10]]
-[[Job 37:22]]
-[[Ezekiel 1:26]]
-[[Ezekiel 10:1]]
-[[Revelation 4:3]]
-[[Revelation 4:6]]
-[[Revelation 21:11]]

@@ -1,5 +1,0 @@
-[[Genesis 20:9]]
-[[Leviticus 19:17]]
-[[Judges 14:20]]
-[[2 Samuel 13:3]]
-[[Luke 23:12]]

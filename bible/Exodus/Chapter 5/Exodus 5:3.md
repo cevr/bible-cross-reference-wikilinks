@@ -1,8 +1,0 @@
-[[Exodus 3:18]]
-[[Leviticus 26:25]]
-[[Deuteronomy 28:21]]
-[[2 Kings 17:25]]
-[[2 Chronicles 30:8]]
-[[Ezra 7:23]]
-[[Ezekiel 6:11]]
-[[Zechariah 14:16]]

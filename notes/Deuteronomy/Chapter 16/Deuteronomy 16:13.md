@@ -1,0 +1,17 @@
+---
+Links:
+[[Exodus 23:16]]
+[[Exodus 34:22]]
+[[Leviticus 23:34]]
+[[Numbers 29:12]]
+[[Deuteronomy 31:10]]
+[[2 Chronicles 5:3]]
+[[2 Chronicles 7:8]]
+[[2 Chronicles 8:13]]
+[[Ezra 3:4]]
+[[Nehemiah 8:14]]
+[[Zechariah 14:16]]
+[[John 7:2]]
+---
+
+"Thou shalt observe the feast of tabernacles seven days, after that thou hast gathered in thy corn and thy wine:"

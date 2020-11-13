@@ -1,0 +1,15 @@
+---
+Links:
+[[Jeremiah 44:27]]
+[[Lamentations 4:18]]
+[[Ezekiel 7:3]]
+[[Ezekiel 7:10]]
+[[Ezekiel 12:23]]
+[[Ezekiel 21:25]]
+[[Ezekiel 39:8]]
+[[Amos 8:2]]
+[[Zechariah 13:7]]
+[[2 Peter 2:5]]
+---
+
+"An end is come, the end is come: it watcheth for thee; behold, it is come."

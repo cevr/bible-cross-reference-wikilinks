@@ -1,7 +1,0 @@
-[[Leviticus 7:26]]
-[[Deuteronomy 12:16]]
-[[Deuteronomy 12:24]]
-[[Deuteronomy 15:23]]
-[[1 Samuel 14:32]]
-[[Job 16:18]]
-[[Ezekiel 24:7]]

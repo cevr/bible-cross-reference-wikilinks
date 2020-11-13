@@ -1,0 +1,15 @@
+---
+Links:
+[[Proverbs 1:32]]
+[[Zechariah 7:11]]
+[[Acts 7:57]]
+[[1 Timothy 1:4]]
+[[1 Timothy 4:7]]
+[[1 Timothy 6:20]]
+[[2 Timothy 1:15]]
+[[Titus 1:14]]
+[[Hebrews 13:25]]
+[[2 Peter 1:16]]
+---
+
+"And they shall turn away their ears from the truth, and shall be turned unto fables."

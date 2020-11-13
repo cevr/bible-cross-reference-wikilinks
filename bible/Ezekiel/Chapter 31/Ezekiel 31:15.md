@@ -1,6 +1,0 @@
-[[Ezekiel 26:16]]
-[[Ezekiel 26:18]]
-[[Nahum 2:8]]
-[[Malachi 3:4]]
-[[Revelation 18:9]]
-[[Revelation 18:18]]

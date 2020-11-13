@@ -1,0 +1,13 @@
+---
+Links:
+[[Numbers 32:32]]
+[[Numbers 32:33]]
+[[Deuteronomy 2:36]]
+[[Deuteronomy 4:48]]
+[[Deuteronomy 29:7]]
+[[Joshua 12:2]]
+[[Joshua 13:8]]
+[[2 Kings 10:33]]
+---
+
+"And this land, which we possessed at that time, from Aroer, which is by the river Arnon, and half mount Gilead, and the cities thereof, gave I unto the Reubenites and to the Gadites."

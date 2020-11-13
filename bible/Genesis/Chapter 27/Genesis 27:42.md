@@ -1,7 +1,0 @@
-[[Genesis 37:18]]
-[[Genesis 42:21]]
-[[1 Samuel 30:5]]
-[[Job 20:12]]
-[[Psalms 64:5]]
-[[Proverbs 2:14]]
-[[Proverbs 4:16]]

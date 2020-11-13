@@ -1,0 +1,12 @@
+---
+Links:
+[[Deuteronomy 32:23]]
+[[Joshua 10:10]]
+[[Psalms 7:12]]
+[[Psalms 18:14]]
+[[Psalms 45:5]]
+[[Psalms 144:6]]
+[[Habakkuk 3:11]]
+---
+
+"And he sent out arrows, and scattered them; lightning, and discomfited them."

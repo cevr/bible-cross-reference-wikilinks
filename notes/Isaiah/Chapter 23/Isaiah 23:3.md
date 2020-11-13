@@ -1,0 +1,16 @@
+---
+Links:
+[[Deuteronomy 11:10]]
+[[1 Chronicles 13:5]]
+[[Isaiah 19:7]]
+[[Isaiah 23:8]]
+[[Isaiah 32:20]]
+[[Jeremiah 2:18]]
+[[Ezekiel 27:3]]
+[[Ezekiel 27:33]]
+[[Ezekiel 28:4]]
+[[Joel 3:5]]
+[[Revelation 18:11]]
+---
+
+"And by great waters the seed of Sihor, the harvest of the river, is her revenue; and she is a mart of nations."

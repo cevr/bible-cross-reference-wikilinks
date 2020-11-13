@@ -1,0 +1,20 @@
+---
+Links:
+[[Luke 16:15]]
+[[John 1:47]]
+[[John 2:25]]
+[[John 5:44]]
+[[John 8:42]]
+[[John 8:47]]
+[[John 8:55]]
+[[John 15:23]]
+[[John 21:17]]
+[[Romans 8:7]]
+[[Hebrews 4:12]]
+[[1 John 2:15]]
+[[1 John 3:17]]
+[[1 John 4:20]]
+[[Revelation 2:23]]
+---
+
+"But I know you, that ye have not the love of God in you."

@@ -1,6 +1,0 @@
-[[Leviticus 25:25]]
-[[Leviticus 25:49]]
-[[Numbers 35:29]]
-[[Ruth 4:3]]
-[[1 Samuel 30:25]]
-[[Jeremiah 32:8]]

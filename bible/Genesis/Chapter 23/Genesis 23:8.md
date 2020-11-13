@@ -1,5 +1,0 @@
-[[Genesis 25:9]]
-[[1 Kings 2:17]]
-[[Luke 7:3]]
-[[Hebrews 7:26]]
-[[1 John 2:1]]

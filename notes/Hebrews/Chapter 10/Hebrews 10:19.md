@@ -1,0 +1,21 @@
+---
+Links:
+[[Romans 5:2]]
+[[Romans 8:15]]
+[[Galatians 4:6]]
+[[Ephesians 2:18]]
+[[Ephesians 3:12]]
+[[2 Timothy 1:7]]
+[[Hebrews 4:16]]
+[[Hebrews 7:25]]
+[[Hebrews 9:3]]
+[[Hebrews 9:7]]
+[[Hebrews 9:12]]
+[[Hebrews 9:23]]
+[[Hebrews 12:28]]
+[[1 John 2:1]]
+[[1 John 3:19]]
+[[1 John 4:17]]
+---
+
+"Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus,"

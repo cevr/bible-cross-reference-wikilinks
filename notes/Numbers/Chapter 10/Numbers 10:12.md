@@ -1,0 +1,25 @@
+---
+Links:
+[[Genesis 21:21]]
+[[Exodus 13:20]]
+[[Exodus 19:1]]
+[[Exodus 40:36]]
+[[Numbers 1:1]]
+[[Numbers 2:34]]
+[[Numbers 9:1]]
+[[Numbers 9:5]]
+[[Numbers 12:16]]
+[[Numbers 13:3]]
+[[Numbers 13:26]]
+[[Numbers 33:15]]
+[[Numbers 33:16]]
+[[Deuteronomy 1:1]]
+[[Deuteronomy 1:7]]
+[[Deuteronomy 1:19]]
+[[Deuteronomy 33:2]]
+[[1 Samuel 25:1]]
+[[1 Kings 11:18]]
+[[Habakkuk 3:3]]
+---
+
+"And the children of Israel took their journeys out of the wilderness of Sinai; and the cloud rested in the wilderness of Paran."

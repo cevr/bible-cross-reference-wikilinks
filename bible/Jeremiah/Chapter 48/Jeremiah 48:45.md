@@ -1,8 +1,0 @@
-[[Numbers 21:21]]
-[[Numbers 21:26]]
-[[Numbers 21:28]]
-[[Numbers 21:29]]
-[[Numbers 24:17]]
-[[Amos 2:2]]
-[[Zechariah 10:4]]
-[[Matthew 21:42]]

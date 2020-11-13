@@ -1,0 +1,19 @@
+---
+Links:
+[[Genesis 37:7]]
+[[Genesis 37:9]]
+[[Numbers 23:19]]
+[[Job 33:14]]
+[[Isaiah 14:24]]
+[[Isaiah 30:33]]
+[[Isaiah 46:10]]
+[[Matthew 24:35]]
+[[Matthew 25:34]]
+[[Matthew 25:41]]
+[[Mark 10:40]]
+[[1 Corinthians 2:9]]
+[[2 Corinthians 13:1]]
+[[Revelation 9:15]]
+---
+
+"And for that the dream was doubled unto Pharaoh twice; it is because the thing is established by God, and God will shortly bring it to pass."

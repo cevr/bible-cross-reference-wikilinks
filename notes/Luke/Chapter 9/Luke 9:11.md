@@ -1,0 +1,23 @@
+---
+Links:
+[[Isaiah 61:1]]
+[[Matthew 14:14]]
+[[Matthew 21:31]]
+[[Matthew 21:43]]
+[[Mark 6:33]]
+[[Luke 1:53]]
+[[Luke 5:31]]
+[[Luke 8:1]]
+[[Luke 8:10]]
+[[Luke 9:2]]
+[[John 4:34]]
+[[John 6:37]]
+[[Acts 28:31]]
+[[Romans 10:14]]
+[[Romans 10:17]]
+[[Romans 15:3]]
+[[2 Timothy 4:2]]
+[[Hebrews 4:16]]
+---
+
+"And the people, when they knew it, followed him: and he received them, and spake unto them of the kingdom of God, and healed them that had need of healing."

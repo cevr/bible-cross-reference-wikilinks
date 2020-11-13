@@ -1,0 +1,33 @@
+---
+Links:
+[[Job 21:18]]
+[[Psalms 1:4]]
+[[Psalms 35:5]]
+[[Isaiah 1:31]]
+[[Isaiah 5:24]]
+[[Isaiah 17:13]]
+[[Isaiah 28:28]]
+[[Isaiah 30:24]]
+[[Isaiah 41:16]]
+[[Isaiah 66:24]]
+[[Jeremiah 4:11]]
+[[Jeremiah 7:20]]
+[[Jeremiah 15:7]]
+[[Jeremiah 17:27]]
+[[Jeremiah 51:2]]
+[[Ezekiel 20:47]]
+[[Hosea 13:3]]
+[[Amos 9:9]]
+[[Malachi 3:2]]
+[[Malachi 4:1]]
+[[Matthew 13:30]]
+[[Matthew 13:41]]
+[[Matthew 13:43]]
+[[Matthew 13:49]]
+[[Mark 9:43]]
+[[Mark 9:44]]
+[[Luke 3:17]]
+[[John 15:2]]
+---
+
+"Whose fan is in his hand, and he will throughly purge his floor, and gather his wheat into the garner; but he will burn up the chaff with unquenchable fire."

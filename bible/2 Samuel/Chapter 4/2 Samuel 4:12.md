@@ -1,6 +1,0 @@
-[[Deuteronomy 21:22]]
-[[2 Samuel 1:15]]
-[[2 Samuel 3:32]]
-[[2 Samuel 21:9]]
-[[Psalms 55:23]]
-[[Matthew 7:2]]

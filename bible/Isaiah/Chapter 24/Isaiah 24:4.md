@@ -1,8 +1,0 @@
-[[Isaiah 2:11]]
-[[Isaiah 3:26]]
-[[Isaiah 28:1]]
-[[Isaiah 33:9]]
-[[Isaiah 64:6]]
-[[Jeremiah 4:28]]
-[[Jeremiah 12:4]]
-[[Hosea 4:3]]

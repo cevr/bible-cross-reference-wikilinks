@@ -1,6 +1,0 @@
-[[Judges 9:1]]
-[[Judges 9:29]]
-[[Proverbs 25:6]]
-[[Proverbs 27:2]]
-[[Luke 14:8]]
-[[2 Peter 2:19]]

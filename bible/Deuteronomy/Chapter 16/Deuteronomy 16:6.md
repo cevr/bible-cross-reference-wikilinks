@@ -1,8 +1,0 @@
-[[Exodus 12:6]]
-[[Numbers 9:3]]
-[[Numbers 9:11]]
-[[Deuteronomy 12:5]]
-[[Matthew 26:20]]
-[[Hebrews 1:2]]
-[[Hebrews 9:26]]
-[[1 Peter 1:19]]

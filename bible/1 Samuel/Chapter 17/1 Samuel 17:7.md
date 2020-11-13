@@ -1,5 +1,0 @@
-[[1 Samuel 17:41]]
-[[2 Samuel 21:16]]
-[[2 Samuel 21:19]]
-[[1 Chronicles 11:23]]
-[[1 Chronicles 20:5]]

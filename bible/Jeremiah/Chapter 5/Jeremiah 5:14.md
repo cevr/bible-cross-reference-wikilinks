@@ -1,7 +1,0 @@
-[[2 Kings 1:10]]
-[[Jeremiah 1:9]]
-[[Jeremiah 23:29]]
-[[Jeremiah 28:15]]
-[[Hosea 6:5]]
-[[Zechariah 1:6]]
-[[Revelation 11:5]]

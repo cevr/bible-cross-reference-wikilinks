@@ -1,8 +1,0 @@
-[[Exodus 20:2]]
-[[Leviticus 11:45]]
-[[Deuteronomy 25:13]]
-[[1 Chronicles 23:29]]
-[[Proverbs 11:1]]
-[[Proverbs 16:11]]
-[[Proverbs 20:10]]
-[[Ezekiel 45:10]]

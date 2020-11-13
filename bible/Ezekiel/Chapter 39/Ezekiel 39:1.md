@@ -1,6 +1,0 @@
-[[Isaiah 24:21]]
-[[Ezekiel 35:3]]
-[[Ezekiel 38:1]]
-[[Ezekiel 38:2]]
-[[Nahum 2:13]]
-[[Nahum 3:5]]

@@ -1,0 +1,30 @@
+---
+Links:
+[[Job 13:26]]
+[[Job 20:11]]
+[[Psalms 6:4]]
+[[Psalms 31:16]]
+[[Psalms 51:1]]
+[[Psalms 79:8]]
+[[Psalms 106:3]]
+[[Psalms 106:4]]
+[[Psalms 109:14]]
+[[Psalms 109:16]]
+[[Psalms 109:26]]
+[[Psalms 119:124]]
+[[Proverbs 5:7]]
+[[Isaiah 38:17]]
+[[Isaiah 43:25]]
+[[Isaiah 48:11]]
+[[Isaiah 64:9]]
+[[Jeremiah 3:25]]
+[[Jeremiah 31:34]]
+[[John 5:5]]
+[[John 5:14]]
+[[Ephesians 1:6]]
+[[Ephesians 2:4]]
+[[Hebrews 8:12]]
+[[Hebrews 10:16]]
+---
+
+"Remember not the sins of my youth, nor my transgressions: according to thy mercy remember thou me for thy goodness' sake, O LORD."

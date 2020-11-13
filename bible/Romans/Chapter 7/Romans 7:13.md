@@ -1,5 +1,0 @@
-[[Romans 5:20]]
-[[Romans 7:8]]
-[[Romans 8:3]]
-[[Galatians 3:21]]
-[[James 1:13]]

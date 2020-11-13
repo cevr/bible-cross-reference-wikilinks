@@ -1,6 +1,0 @@
-[[Exodus 14:20]]
-[[Exodus 20:21]]
-[[Job 26:6]]
-[[Job 34:22]]
-[[Daniel 2:22]]
-[[Hebrews 4:13]]

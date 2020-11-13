@@ -1,8 +1,0 @@
-[[Judges 16:1]]
-[[2 Samuel 11:2]]
-[[Proverbs 4:14]]
-[[Proverbs 5:8]]
-[[Proverbs 7:12]]
-[[1 Corinthians 6:18]]
-[[2 Timothy 2:22]]
-[[Jude 1:23]]

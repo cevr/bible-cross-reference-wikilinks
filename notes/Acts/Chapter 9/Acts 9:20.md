@@ -1,0 +1,26 @@
+---
+Links:
+[[Psalms 2:7]]
+[[Psalms 2:12]]
+[[Matthew 4:3]]
+[[Matthew 26:63]]
+[[Matthew 27:43]]
+[[Matthew 27:54]]
+[[John 1:49]]
+[[John 19:7]]
+[[John 20:28]]
+[[John 20:31]]
+[[Acts 8:36]]
+[[Acts 8:37]]
+[[Acts 9:22]]
+[[Acts 9:27]]
+[[Acts 13:5]]
+[[Acts 13:14]]
+[[Romans 1:4]]
+[[Galatians 1:23]]
+[[Galatians 2:20]]
+[[1 John 4:14]]
+[[Revelation 2:18]]
+---
+
+"And straightway he preached Christ in the synagogues, that he is the Son of God."

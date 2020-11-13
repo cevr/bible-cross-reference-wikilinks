@@ -1,0 +1,30 @@
+---
+Links:
+[[Genesis 37:29]]
+[[Genesis 37:34]]
+[[Numbers 14:6]]
+[[Numbers 16:22]]
+[[Numbers 16:45]]
+[[Judges 11:35]]
+[[Judges 20:23]]
+[[Judges 20:26]]
+[[Judges 21:2]]
+[[1 Samuel 4:12]]
+[[2 Samuel 1:2]]
+[[2 Samuel 1:12]]
+[[2 Samuel 12:16]]
+[[2 Samuel 13:19]]
+[[2 Samuel 13:31]]
+[[Ezra 9:3]]
+[[Ezra 10:1]]
+[[Nehemiah 9:1]]
+[[Esther 4:1]]
+[[Esther 4:3]]
+[[Job 1:20]]
+[[Job 2:12]]
+[[Lamentations 2:10]]
+[[Acts 14:14]]
+[[Revelation 18:19]]
+---
+
+"And Joshua rent his clothes, and fell to the earth upon his face before the ark of the LORD until the eventide, he and the elders of Israel, and put dust upon their heads."

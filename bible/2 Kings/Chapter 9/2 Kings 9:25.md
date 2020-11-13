@@ -1,8 +1,0 @@
-[[1 Kings 21:19]]
-[[1 Kings 21:24]]
-[[2 Kings 15:12]]
-[[Isaiah 13:1]]
-[[Jeremiah 23:33]]
-[[Nahum 1:1]]
-[[Malachi 1:1]]
-[[Matthew 11:30]]

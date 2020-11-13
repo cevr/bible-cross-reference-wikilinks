@@ -1,6 +1,0 @@
-[[2 Samuel 2:9]]
-[[2 Samuel 3:10]]
-[[2 Samuel 3:12]]
-[[1 Kings 11:37]]
-[[Psalms 20:4]]
-[[Philippians 2:21]]

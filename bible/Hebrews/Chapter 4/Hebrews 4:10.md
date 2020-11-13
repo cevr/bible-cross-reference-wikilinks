@@ -1,6 +1,0 @@
-[[John 19:30]]
-[[Hebrews 1:3]]
-[[Hebrews 4:3]]
-[[Hebrews 10:12]]
-[[1 Peter 4:1]]
-[[Revelation 14:13]]

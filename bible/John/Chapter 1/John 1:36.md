@@ -1,5 +1,0 @@
-[[Isaiah 45:22]]
-[[Isaiah 65:1]]
-[[John 1:29]]
-[[Hebrews 12:2]]
-[[1 Peter 1:19]]

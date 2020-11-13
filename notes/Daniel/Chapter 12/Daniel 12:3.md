@@ -1,0 +1,30 @@
+---
+Links:
+[[Exodus 34:35]]
+[[Judges 5:31]]
+[[Proverbs 3:35]]
+[[Proverbs 4:18]]
+[[Proverbs 11:30]]
+[[Ecclesiastes 12:9]]
+[[Jeremiah 23:22]]
+[[Daniel 11:33]]
+[[Daniel 11:35]]
+[[Matthew 13:43]]
+[[Matthew 19:28]]
+[[Matthew 24:45]]
+[[Luke 1:16]]
+[[John 4:36]]
+[[John 5:35]]
+[[Acts 13:1]]
+[[1 Corinthians 3:10]]
+[[1 Corinthians 15:40]]
+[[Ephesians 4:11]]
+[[Philippians 2:16]]
+[[1 Thessalonians 2:19]]
+[[Hebrews 5:12]]
+[[James 5:19]]
+[[2 Peter 3:15]]
+[[Revelation 1:20]]
+---
+
+"And they that be wise shall shine as the brightness of the firmament; and they that turn many to righteousness as the stars for ever and ever."

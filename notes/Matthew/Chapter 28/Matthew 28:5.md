@@ -1,0 +1,20 @@
+---
+Links:
+[[Psalms 105:3]]
+[[Isaiah 35:4]]
+[[Isaiah 41:10]]
+[[Isaiah 41:14]]
+[[Daniel 10:12]]
+[[Daniel 10:19]]
+[[Matthew 14:27]]
+[[Matthew 28:10]]
+[[Mark 16:6]]
+[[Luke 1:12]]
+[[Luke 1:30]]
+[[Luke 24:5]]
+[[John 20:13]]
+[[Hebrews 1:14]]
+[[Revelation 1:17]]
+---
+
+"And the angel answered and said unto the women, Fear not ye: for I know that ye seek Jesus, which was crucified."

@@ -1,8 +1,0 @@
-[[2 Kings 23:36]]
-[[Jeremiah 22:13]]
-[[Jeremiah 26:1]]
-[[Jeremiah 26:21]]
-[[Jeremiah 35:1]]
-[[Jeremiah 36:1]]
-[[Jeremiah 36:27]]
-[[Daniel 1:2]]

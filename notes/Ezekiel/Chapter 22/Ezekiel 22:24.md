@@ -1,0 +1,15 @@
+---
+Links:
+[[2 Chronicles 28:22]]
+[[2 Chronicles 36:14]]
+[[Isaiah 1:5]]
+[[Isaiah 9:13]]
+[[Jeremiah 2:30]]
+[[Jeremiah 5:3]]
+[[Jeremiah 6:29]]
+[[Jeremiah 44:16]]
+[[Ezekiel 24:13]]
+[[Zephaniah 3:2]]
+---
+
+"Son of man, say unto her, Thou art the land that is not cleansed, nor rained upon in the day of indignation."

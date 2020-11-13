@@ -1,7 +1,0 @@
-[[Exodus 3:10]]
-[[Joshua 1:5]]
-[[Judges 4:6]]
-[[1 Samuel 12:11]]
-[[1 Chronicles 14:9]]
-[[Hebrews 11:32]]
-[[Hebrews 11:34]]

@@ -1,0 +1,33 @@
+---
+Links:
+[[Genesis 20:12]]
+[[Genesis 41:42]]
+[[Psalms 45:9]]
+[[Proverbs 5:19]]
+[[Proverbs 6:25]]
+[[Songs of Solomon 1:10]]
+[[Songs of Solomon 1:15]]
+[[Songs of Solomon 3:11]]
+[[Songs of Solomon 4:10]]
+[[Songs of Solomon 4:12]]
+[[Songs of Solomon 5:1]]
+[[Songs of Solomon 6:5]]
+[[Songs of Solomon 6:12]]
+[[Songs of Solomon 7:5]]
+[[Songs of Solomon 7:10]]
+[[Isaiah 54:5]]
+[[Isaiah 62:5]]
+[[Ezekiel 16:8]]
+[[Hosea 2:19]]
+[[Zephaniah 3:17]]
+[[Matthew 12:50]]
+[[John 3:29]]
+[[1 Corinthians 9:5]]
+[[2 Corinthians 11:2]]
+[[Hebrews 2:11]]
+[[Revelation 19:7]]
+[[Revelation 21:2]]
+[[Revelation 21:9]]
+---
+
+"undefined"

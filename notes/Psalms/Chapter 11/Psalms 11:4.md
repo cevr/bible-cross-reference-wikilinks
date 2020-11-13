@@ -1,0 +1,33 @@
+---
+Links:
+[[Exodus 40:34]]
+[[1 Chronicles 17:5]]
+[[2 Chronicles 16:9]]
+[[Job 24:23]]
+[[Psalms 2:4]]
+[[Psalms 9:11]]
+[[Psalms 14:2]]
+[[Psalms 18:6]]
+[[Psalms 33:13]]
+[[Psalms 34:15]]
+[[Psalms 44:21]]
+[[Psalms 66:7]]
+[[Psalms 103:19]]
+[[Psalms 113:5]]
+[[Psalms 139:23]]
+[[Proverbs 15:3]]
+[[Isaiah 66:1]]
+[[Jeremiah 17:10]]
+[[Jeremiah 23:24]]
+[[Micah 1:2]]
+[[Habakkuk 2:20]]
+[[Zechariah 2:13]]
+[[Matthew 5:34]]
+[[Matthew 23:21]]
+[[Acts 7:49]]
+[[2 Thessalonians 2:4]]
+[[Hebrews 4:13]]
+[[Revelation 4:2]]
+---
+
+"The LORD is in his holy temple, the LORD'S throne is in heaven: his eyes behold, his eyelids try, the children of men."

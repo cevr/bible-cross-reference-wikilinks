@@ -1,5 +1,0 @@
-[[Ruth 2:20]]
-[[Ruth 4:1]]
-[[Ruth 4:4]]
-[[Matthew 7:12]]
-[[1 Thessalonians 4:6]]

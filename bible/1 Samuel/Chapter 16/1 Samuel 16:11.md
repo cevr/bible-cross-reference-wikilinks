@@ -1,8 +1,0 @@
-[[Exodus 3:1]]
-[[1 Samuel 17:12]]
-[[1 Samuel 17:14]]
-[[1 Samuel 17:28]]
-[[2 Samuel 7:8]]
-[[2 Samuel 13:3]]
-[[1 Chronicles 17:7]]
-[[Psalms 78:70]]

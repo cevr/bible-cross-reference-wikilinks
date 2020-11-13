@@ -1,5 +1,0 @@
-[[Job 14:7]]
-[[Ezekiel 29:14]]
-[[Daniel 4:5]]
-[[Daniel 4:6]]
-[[Daniel 4:25]]

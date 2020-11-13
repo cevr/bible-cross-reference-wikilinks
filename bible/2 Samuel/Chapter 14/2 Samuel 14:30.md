@@ -1,6 +1,0 @@
-[[Judges 15:4]]
-[[Judges 15:5]]
-[[2 Samuel 13:28]]
-[[1 Kings 21:9]]
-[[2 Kings 9:33]]
-[[2 Kings 10:6]]

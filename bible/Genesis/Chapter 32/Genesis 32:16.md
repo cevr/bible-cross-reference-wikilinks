@@ -1,6 +1,0 @@
-[[Genesis 32:20]]
-[[Genesis 33:8]]
-[[Psalms 112:5]]
-[[Proverbs 2:11]]
-[[Isaiah 28:26]]
-[[Matthew 10:16]]

@@ -1,0 +1,24 @@
+---
+Links:
+[[2 Kings 9:37]]
+[[Psalms 79:3]]
+[[Psalms 83:10]]
+[[Isaiah 5:25]]
+[[Isaiah 34:2]]
+[[Isaiah 66:16]]
+[[Jeremiah 8:2]]
+[[Jeremiah 9:21]]
+[[Jeremiah 13:12]]
+[[Jeremiah 16:4]]
+[[Jeremiah 25:18]]
+[[Ezekiel 21:11]]
+[[Ezekiel 29:4]]
+[[Ezekiel 29:5]]
+[[Ezekiel 39:4]]
+[[Zephaniah 2:12]]
+[[Revelation 11:9]]
+[[Revelation 14:19]]
+[[Revelation 19:17]]
+---
+
+"And the slain of the LORD shall be at that day from one end of the earth even unto the other end of the earth: they shall not be lamented, neither gathered, nor buried; they shall be dung upon the ground."

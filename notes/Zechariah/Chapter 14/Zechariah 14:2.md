@@ -1,0 +1,30 @@
+---
+Links:
+[[Deuteronomy 28:9]]
+[[Isaiah 4:3]]
+[[Isaiah 5:26]]
+[[Isaiah 13:16]]
+[[Isaiah 65:6]]
+[[Isaiah 65:18]]
+[[Jeremiah 34:1]]
+[[Lamentations 1:10]]
+[[Lamentations 5:11]]
+[[Daniel 2:40]]
+[[Joel 3:2]]
+[[Amos 7:17]]
+[[Zechariah 12:3]]
+[[Zechariah 13:8]]
+[[Matthew 22:7]]
+[[Matthew 23:37]]
+[[Matthew 24:15]]
+[[Matthew 24:19]]
+[[Mark 13:14]]
+[[Mark 13:19]]
+[[Luke 2:1]]
+[[Luke 19:43]]
+[[Luke 21:20]]
+[[Romans 9:27]]
+[[Galatians 4:26]]
+---
+
+"For I will gather all nations against Jerusalem to battle; and the city shall be taken, and the houses rifled, and the women ravished; and half of the city shall go forth into captivity, and the residue of the people shall not be cut off from the city."

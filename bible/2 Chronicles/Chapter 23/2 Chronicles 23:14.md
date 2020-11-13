@@ -1,5 +1,0 @@
-[[Exodus 21:14]]
-[[2 Kings 10:25]]
-[[2 Kings 11:8]]
-[[2 Kings 11:15]]
-[[Ezekiel 9:7]]

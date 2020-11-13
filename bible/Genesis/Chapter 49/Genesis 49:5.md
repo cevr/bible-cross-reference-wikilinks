@@ -1,7 +1,0 @@
-[[Genesis 29:33]]
-[[Genesis 34:25]]
-[[Genesis 46:10]]
-[[Numbers 34:20]]
-[[Proverbs 18:9]]
-[[Ezekiel 48:24]]
-[[Revelation 7:7]]

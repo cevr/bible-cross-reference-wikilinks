@@ -1,7 +1,0 @@
-[[Numbers 27:17]]
-[[Deuteronomy 31:2]]
-[[2 Samuel 5:2]]
-[[1 Kings 3:7]]
-[[Luke 10:1]]
-[[John 10:1]]
-[[John 15:27]]

@@ -1,0 +1,31 @@
+---
+Links:
+[[Genesis 17:1]]
+[[Psalms 21:13]]
+[[Psalms 57:11]]
+[[Psalms 64:9]]
+[[Psalms 98:1]]
+[[Psalms 102:13]]
+[[Isaiah 51:9]]
+[[Isaiah 52:10]]
+[[Daniel 2:23]]
+[[Daniel 6:10]]
+[[Matthew 11:25]]
+[[Luke 10:21]]
+[[John 11:41]]
+[[2 Corinthians 2:14]]
+[[2 Corinthians 9:15]]
+[[1 Timothy 1:12]]
+[[Revelation 1:4]]
+[[Revelation 1:8]]
+[[Revelation 4:8]]
+[[Revelation 11:15]]
+[[Revelation 15:3]]
+[[Revelation 16:5]]
+[[Revelation 16:7]]
+[[Revelation 16:14]]
+[[Revelation 19:6]]
+[[Revelation 19:11]]
+---
+
+"Saying, We give thee thanks, O Lord God Almighty, which art, and wast, and art to come; because thou hast taken to thee thy great power, and hast reigned."

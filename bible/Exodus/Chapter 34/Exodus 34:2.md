@@ -1,5 +1,0 @@
-[[Exodus 19:11]]
-[[Exodus 19:20]]
-[[Exodus 19:24]]
-[[Exodus 24:12]]
-[[Deuteronomy 9:25]]

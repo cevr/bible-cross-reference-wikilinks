@@ -1,6 +1,0 @@
-[[Isaiah 9:5]]
-[[Jeremiah 48:24]]
-[[Jeremiah 48:34]]
-[[Jeremiah 48:41]]
-[[Amos 1:4]]
-[[Amos 1:14]]

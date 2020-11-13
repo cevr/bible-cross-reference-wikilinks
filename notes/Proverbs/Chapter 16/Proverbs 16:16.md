@@ -1,0 +1,17 @@
+---
+Links:
+[[Job 28:13]]
+[[Psalms 119:127]]
+[[Proverbs 2:4]]
+[[Proverbs 3:13]]
+[[Proverbs 3:14]]
+[[Proverbs 3:15]]
+[[Proverbs 4:7]]
+[[Proverbs 8:10]]
+[[Proverbs 8:19]]
+[[Ecclesiastes 7:12]]
+[[Matthew 16:26]]
+[[Luke 12:21]]
+---
+
+"How much better is it to get wisdom than gold! and to get understanding rather to be chosen than silver!"

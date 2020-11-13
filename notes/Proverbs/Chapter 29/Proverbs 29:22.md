@@ -1,0 +1,15 @@
+---
+Links:
+[[Genesis 49:7]]
+[[Proverbs 10:12]]
+[[Proverbs 14:17]]
+[[Proverbs 15:18]]
+[[Proverbs 17:19]]
+[[Proverbs 22:24]]
+[[Proverbs 26:21]]
+[[Proverbs 27:17]]
+[[Proverbs 30:33]]
+[[James 3:16]]
+---
+
+"An angry man stirreth up strife, and a furious man aboundeth in transgression."

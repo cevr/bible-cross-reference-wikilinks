@@ -1,5 +1,0 @@
-[[Genesis 14:7]]
-[[Numbers 20:1]]
-[[Numbers 32:8]]
-[[Numbers 34:4]]
-[[Judges 1:36]]
