@@ -1,8 +1,7 @@
 let fs = require("fs");
 let path = require("path");
 
-let args = process.argv.slice(2);
-let [userPath] = args;
+let [userPath] = process.argv.slice(2);
 
 // abbreviations -> name
 let books = {
@@ -94,7 +93,7 @@ let references = path.resolve(process.cwd(), "refs");
 let markdownPath = path.resolve(process.cwd(), userPath || "notes");
 
 let main = async () => {
-  let bible = require("./refs/kjv.json");
+  let bible = require("./kjv.json");
   // loop through the json files
   fs.readdirSync(references).forEach((file) => {
     // use require (automatically parses it for us)
@@ -106,7 +105,6 @@ let main = async () => {
       let verse = bible[name];
 
       // here we create folders for a book and chapter
-      // this is so file systems don't crash at 32,102 verses not being nested
       let bookFolder = path.resolve(markdownPath, book);
       if (!fs.existsSync(bookFolder)) fs.mkdirSync(bookFolder);
       let chapterFolder = path.resolve(bookFolder, chapter);
