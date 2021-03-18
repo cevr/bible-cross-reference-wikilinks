@@ -1,6 +1,9 @@
 let fs = require("fs");
 let path = require("path");
 
+let args = process.argv.slice(2);
+let [userPath] = args;
+
 // abbreviations -> name
 let books = {
   GEN: "Genesis",
@@ -88,17 +91,16 @@ let getChapter = (name) => {
 };
 
 let references = path.resolve(process.cwd(), "refs");
-let markdownPath = path.resolve(process.cwd(), "notes");
+let markdownPath = path.resolve(process.cwd(), userPath || "notes");
 
 let main = async () => {
-  let bible = require("./kjv.json");
+  let bible = require("./refs/kjv.json");
   // loop through the json files
   fs.readdirSync(references).forEach((file) => {
     // use require (automatically parses it for us)
     let refJson = require(`./refs/${file}`);
     Object.values(refJson).forEach((ref) => {
       let name = createFileName(ref.v);
-      let fileName = `${name}.md`;
       let book = getBook(ref.v);
       let chapter = getChapter(ref.v);
       let verse = bible[name];
@@ -112,7 +114,7 @@ let main = async () => {
 
       // loop through all the references, creating a wikilink for each reference
       // ex: [[Matthew 2:3]]\n[[Matthew 3:1]]
-      let wikiLinks = Object.values(ref.r ?? {}).reduce(
+      let wikiLinks = Object.values(ref.r || {}).reduce(
         (md, refName) => md.concat(`[[${createFileName(refName)}]]\n`),
         ""
       );
@@ -120,7 +122,10 @@ let main = async () => {
       let md = `---\nLinks:\n${wikiLinks}---\n\n"${verse}"`;
 
       // create a md file for every verse
-      fs.writeFileSync(path.resolve(markdownPath, book, chapter, fileName), md);
+      fs.writeFileSync(
+        path.resolve(markdownPath, book, chapter, `${name}.md`),
+        md
+      );
     });
   });
 };

@@ -1,5 +1,0 @@
----
-Links:
----
-
-"Hallohesh, Pileha, Shobek,"

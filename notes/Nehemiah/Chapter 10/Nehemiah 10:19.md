@@ -1,5 +1,0 @@
----
-Links:
----
-
-"Hariph, Anathoth, Nebai,"

@@ -1,5 +1,0 @@
----
-Links:
----
-
-"Ater, Hizkijah, Azzur,"

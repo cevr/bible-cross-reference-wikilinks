@@ -1,5 +1,0 @@
----
-Links:
----
-
-"Malluch, Harim, Baanah."
