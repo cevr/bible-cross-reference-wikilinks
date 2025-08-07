@@ -74,9 +74,15 @@ let books = {
 };
 
 // this works because references always look like this "Gen 1 2"
-let createFileName = (name) => {
+let createWikilinkName = (name) => {
   let [book, chapter, verse] = name.split(" ");
   return `${books[book]} ${chapter}:${verse}`;
+};
+
+//filenames don't support ":" that's why we put " " instead
+let createFileName = (name) => {
+  let [book, chapter, verse] = name.split(" ");
+  return `${books[book]} ${chapter} ${verse}`;
 };
 
 let getBook = (name) => {
@@ -90,7 +96,7 @@ let getChapter = (name) => {
 };
 
 let references = path.resolve(process.cwd(), "refs");
-let markdownPath = path.resolve(process.cwd(), userPath || "notes");
+let markdownPath = path.resolve(process.cwd(), userPath || "KJV_CrossReferenced");
 
 let main = async () => {
   let bible = require("./kjv.json");
@@ -99,29 +105,33 @@ let main = async () => {
     // use require (automatically parses it for us)
     let refJson = require(`./refs/${file}`);
     Object.values(refJson).forEach((ref) => {
-      let name = createFileName(ref.v);
+      let wikilinkName = createWikilinkName(ref.v);
+      let fileName = createFileName(ref.v);
       let book = getBook(ref.v);
       let chapter = getChapter(ref.v);
-      let verse = bible[name];
+      let verse = bible[wikilinkName];
 
       // here we create folders for a book and chapter
       let bookFolder = path.resolve(markdownPath, book);
-      if (!fs.existsSync(bookFolder)) fs.mkdirSync(bookFolder);
+      // if (!fs.existsSync(bookFolder)) fs.mkdirSync(bookFolder); //changed because it doesn't add parent directory
+      fs.mkdirSync(bookFolder, { recursive: true });
       let chapterFolder = path.resolve(bookFolder, chapter);
-      if (!fs.existsSync(chapterFolder)) fs.mkdirSync(chapterFolder);
+      // if (!fs.existsSync(chapterFolder)) fs.mkdirSync(chapterFolder); //changed because it doesn't add parent directory
+      fs.mkdirSync(chapterFolder, { recursive: true });
+
 
       // loop through all the references, creating a wikilink for each reference
       // ex: [[Matthew 2:3]]\n[[Matthew 3:1]]
       let wikiLinks = Object.values(ref.r || {}).reduce(
-        (md, refName) => md.concat(`[[${createFileName(refName)}]]\n`),
+        (md, refName) => md.concat(`[[${createFileName(refName)}|${createWikilinkName(refName)}]]\n`),
         ""
       );
 
-      let md = `---\nLinks:\n${wikiLinks}---\n\n"${verse}"`;
+      let md = `"${verse}"\n\nReferences:\n${wikiLinks}\n`;
 
       // create a md file for every verse
       fs.writeFileSync(
-        path.resolve(markdownPath, book, chapter, `${name}.md`),
+        path.resolve(markdownPath, book, chapter, `${fileName}.md`),
         md
       );
     });
